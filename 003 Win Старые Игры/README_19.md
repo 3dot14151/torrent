@@ -21,7 +21,7 @@ Pirates of the Caribbean: The Legend of Jack Sparrow / Пираты Карибс
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ Victoria (2003) [En] (2.0.0.1/dlc) License GOG [Complete]
 magnet:?xt=urn:btih:0FC62B34C64B366361151F740CF2E0B2EAEC41F0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,7 +75,7 @@ Vermeer 2: Great Art Race / Охотники за антиквариатом (20
 magnet:?xt=urn:btih:A4F3CE80D13282035AAF92433E5B29300FB5E3E2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,7 +101,7 @@ Tzar: The Burden of the Crown / Огнем и мечом (2000) [Multi] (1.01) L
 magnet:?xt=urn:btih:17858DC033C1BABEBC7FCA15F4FBA21A62D80FD4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,7 +127,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы (2003) [En
 magnet:?xt=urn:btih:B9FC72ED31098CC2DA532ECA258D1DD510C77C96
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,7 +153,7 @@ Deathtrap Dungeon (1998) [En] (1.0 it fix) License GOG
 magnet:?xt=urn:btih:AD121AF9EEA2F679A51EA1E89FCA5041EEBF1C41
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,7 +179,7 @@ Fantasy General (1996) [Multi] (1.0.20211006/dlc) License GOG
 magnet:?xt=urn:btih:F1CB0E937F08765132D5090B4BFD46A884E58CB8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,7 +205,7 @@ Operation Blockade: Стальной бастион [RU] (P) 2007
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,7 +235,7 @@ Prey [Ru] (RePack) 2006 | R.G. Catalyst
 magnet:?xt=urn:btih:02841DFCEBF7150F744453C58EE9F8B720A382DD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,7 +261,7 @@ Warrior Kings: Battles / Лорды войны: Битва (2003) [En] (1.23) Li
 magnet:?xt=urn:btih:90D13ED4253B78ED7DAA1C03EEA9FD071429D023
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,7 +287,7 @@ The Wheel of Time (1998) [Ru/En] Repack R.G. Origami
 magnet:?xt=urn:btih:D3D3AB8254F801A456F968E75BDD72E5F7FB1259
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,7 +313,7 @@ Death Gate (Врата смерти) - компьютерная видеоигр
 magnet:?xt=urn:btih:94A302564B8195C1D0262C84591713793E26D62F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,7 +339,7 @@ Largo Winch: Empire under Threat / Ларго Винч: Империя под у
 magnet:?xt=urn:btih:0B17349BA903CC79C67F268A6DFEE474C31D765F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,7 +366,7 @@ The Curse of monkey Island  / Проклятие острова обезьян [
 magnet:?xt=urn:btih:E32D4A85893DBE86C726B2A847AEC6C33EC178FF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:FDFE546855C9DF4B8AC0F0E77DD2906E5EAD8BDA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,7 +421,7 @@ Alone in the Dark 2 (1993) [En] (1.0) License GOG
 magnet:?xt=urn:btih:C443BFAE477E4541B058C758D1478B2954D182BF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,7 +447,7 @@ Alone in the Dark (1992) [En] (1.0) License GOG
 magnet:?xt=urn:btih:B797D0354A259DE82C60A11ABA90C7937EE4F101
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,7 +473,7 @@ Alone in the Dark 3 - компьютерная игра 1995 года, трет�
 magnet:?xt=urn:btih:AB51383E316605032633E9DB908323791257E322
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,7 +499,7 @@ Far Cry (2004) [Multi] (1.1.0.1230) SteamRip R.G. Origins
 magnet:?xt=urn:btih:FD5A21C007C0C286323B929280A23A55B1C41782
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,7 +526,7 @@ Total Overdose (2005) [Ru/En] (Rus/Eng) [Lossless RePack] от R.G. Origami
 magnet:?xt=urn:btih:ED1DC64FD5C93B309C64F6F8B0B927EE53595291
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,7 +552,7 @@ Metal Slug PC Collection (6 in 1) (1996-2003) [En] (1.0) Repack Super-Coctail
 magnet:?xt=urn:btih:62812F8BF4FAB4AF3E266EA185E241EDE1483680
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,7 +578,7 @@ Army Men RTS / Вояки: RTS (2002) [En] (1.0) License GOG
 magnet:?xt=urn:btih:EACB3681518624F02C869398FF0C0670662CBE2D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,7 +606,7 @@ Red Orchestra: Ostfront 41-45 предоставляет игроку на вы�
 magnet:?xt=urn:btih:2057CA3B4FDD504B4918F85EEC74C0242BE5EEF1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,7 +641,7 @@ Earth 2150 Trilogy / Земля 2150 Трилогия (2000) [Ru/En] (2.8.7.1) S
 magnet:?xt=urn:btih:15B9A4BFF94F2BD385FA5EE9D131C9E5C5AF7805
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,7 +668,7 @@ Kult: Heretic Kingdoms / Культ. Королевства ереси (2004) [R
 magnet:?xt=urn:btih:80B1A322A68909F2102071C886E485BAD12BCACC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,7 +694,7 @@ Escape from Monkey Island (2000) [Ru/En] (1.0) Unofficial
 magnet:?xt=urn:btih:13164B904866496EF2DA0179BEBD35769AC40D96
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

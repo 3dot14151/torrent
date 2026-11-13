@@ -19,7 +19,7 @@
 magnet:?xt=urn:btih:C815A9E83933261829F0B83DC52E4862810C6E79
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Sherlock Holmes: Nemesis / Шерлок Холмс против Арсена Л�
 magnet:?xt=urn:btih:199D833817E59D30E03DD059B7413655784A2533
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.
 magnet:?xt=urn:btih:73221EECE9F65B5A59718BBB8D366303FF9153C1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
 magnet:?xt=urn:btih:221BF8288B8939DE4C9D53497BB50E9C291CC6CE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Prince of Persia Дилогия [En] (RePack) 1989-1993 | Pilotus
 magnet:?xt=urn:btih:92C19894790508ED22CA550FA1EAE2EE94B08969
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Horse Racing Manager / Фаворит: Магнат Конного Спорта 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Nancy Drew: Treasure in the Royal Tower / Нэнси Дрю: Сокровище 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Nancy Drew: Message in a Haunted Mansion / Нэнси Дрю: Призрак в 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
 magnet:?xt=urn:btih:EEB4778A9E7E03213123A5F5C1D0AC7BA23D4A88
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Final Doom - сборник из двух любительских IWAD-файл
 magnet:?xt=urn:btih:1E8BE565B607FCB3B100FD821A361FE07FD21898
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ DOOM II (1994) [En] (1.9/dlc) License GOG
 magnet:?xt=urn:btih:36743EDEBBF5D61964FFCFAD1E295F9342DDEB3F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Uprising 2: Lead and Destroy [En] (L) 1998
 magnet:?xt=urn:btih:7B0CD89B168C0806F4DC8FDFBAB30014F0A2B684
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Dreams to Reality / Мечты: Во сне и наяву [Ru] (RePack) 1997 | R
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Independence War 2: Edge of Chaos - настоящий сиквел. Перва�
 magnet:?xt=urn:btih:7EF64A82E7B15A331C00A1379663741850689C34
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Etherlords / Демиурги (2001) [Ru/En] (1.07/1.04) License GOG
 magnet:?xt=urn:btih:CACBF091F9BF3B16271D479BEC47FC56598E25C2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Legacy of Kain: Soul Reaver 2 (2001) [Multi] (1.02) License GOG
 magnet:?xt=urn:btih:BAFA7D4D02B1579BC78DE61D09C53681E2348C73
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,7 +443,7 @@ The Thing [Ru/En] (RePack) 2002 l R.G. Catalyst
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,7 +472,7 @@ Jazz Jackrabbit Коллекция [En] (RePack) 1994-1998 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,7 +498,7 @@ Revenant (1999) [En/Fr] (1.22L) License GOG
 magnet:?xt=urn:btih:A692BFD35ED4242AFD3AE99D9B194A75D82C9D8A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,7 +524,7 @@ Evolva / Evolva. Риск заражения (2000) [En] (1.2.944) License GOG
 magnet:?xt=urn:btih:3CB5B69A2C7268BBC6ED8B83453EC657C9E618D8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,7 +550,7 @@ PC Football 2007 / Лига чемпионов. Футбол (2006) [Ru] (1.6) L
 magnet:?xt=urn:btih:E5446C1B1F8B9F0F6223C41BEC17EF559D6F1E86
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -583,7 +583,7 @@ Half-Life 2: The Orange Box [Ru/En] (RePack) 2007 | R.G. ReCoding
 magnet:?xt=urn:btih:D884F45783A6D91CAAEFF345094927C802DD82FD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:AD210014B804F65A906FB8C6DCBC69A509833CAB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,7 +635,7 @@ Archimedean Dynasty [Ru] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:80E454E96B0ACBFC1A53F31CFCC161D2347F404F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,7 +663,7 @@ Dragon Throne: The Battle of Red Cliffs / Империя Дракона (Суд�
 magnet:?xt=urn:btih:D0B605017E6E5F1BC8111039FB0529E5F1B1B9F5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -692,7 +692,7 @@ Street Wars - уникальная смесь стратегии в реальн
 magnet:?xt=urn:btih:A32FC3F25A743D6B015827E9631A4E15BE4B3279
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

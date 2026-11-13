@@ -19,7 +19,7 @@ Teenage Mutant Ninja Turtles Трилогия [En] (RePack) 1989-1993 | Pilotus 
 magnet:?xt=urn:btih:5E586D60A4BE659E3C89B4F0F1E7003581BEFA31
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Atlantis. The Lost Tales от Cryo ничем иным кроме как "бро
 magnet:?xt=urn:btih:3A1681A8A14CB6C110AA8D87C1D32DF0AEDE2ACF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Dominions 2: The Ascension Wars [Ru/En] (RePack) 2003 | Pilotus
 magnet:?xt=urn:btih:5A681413FE44DFD6BFEB882A8C5B117F364D0B18
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Tomb Raider 3: The Adventures of Lara Croft [En] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:189284CC9AE17615676F6FCFC8707A337DB6CAF4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,7 +124,7 @@ Lion King Anthology (Disney) / Lion King Антология (Disney) [Ru] (L) 20
 magnet:?xt=urn:btih:5DE38901E4D36D9403E868BA4E84102651FD0F23
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Warrior Kings + Warrior Kings: Battles / Лорды Войны + Лорды Во
 magnet:?xt=urn:btih:9B7F147F5D66E3618A227F628849455920C6E4F5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,7 +178,7 @@ DDD Pool / Мастера бильярда. Американка [Multi4-] (L/1.
 magnet:?xt=urn:btih:D8315F9BD1096B7F1E74ECDBD3E766111314CFD2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,7 +208,7 @@ Spartan / Спартанцы. Легион 3 (L) [Ru] 2004
 magnet:?xt=urn:btih:60FB99EBC58E886D97D165086402E0DEBB41EFE6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,7 +241,7 @@ ALFA: аntiterror / АЛЬФА: Антитеррор Золотая коллек
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,7 +267,7 @@ Pacific Storm Gold / Стальные монстры Gold [Ru] (RePack/1.5.12511
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,7 +293,7 @@ System Shock Дилогия [Ru/En] (RePack) 1994-1999 | Sanctuary
 magnet:?xt=urn:btih:2BAE4B99144FF6D691330072774E9AF02588AD96
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,7 +319,7 @@ Fahrenheit / Indigo Prophecy / Фаренгейт [Ru/En] (RePack) 2006 | R.G. �
 magnet:?xt=urn:btih:67B45339ECF821DE63624884AE640E85DCD21BC6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,7 +346,7 @@ Yume или Повелитель снов – это увлекательная 
 magnet:?xt=urn:btih:57DF0782BE60BC7B74844CE02F88FAAD35CD3F18
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,7 +372,7 @@ Gunship: Apocalypse [Ru] (P) 2006
 magnet:?xt=urn:btih:F45AC475AD1F819A62E7B8488A9075560525C451
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,7 +398,7 @@ Clash / Схватка [Ru] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:259D29FAA27491359F5FEED5A78AFF6F33CC8481
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,7 +424,7 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 magnet:?xt=urn:btih:1C1C32652E5837799A2B6733197ACC143DEA572B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:35E244F5CA4AF1C470637C30CC06B012FED2737C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,7 +476,7 @@ Innocent Until Caught и Innocent Until Caught: Guilty [En] (RePack) 1993-1995 |
 magnet:?xt=urn:btih:26064A5E2918B8F2299B3FBA45DC66B2EA70738B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,7 +502,7 @@ Warcraft III: The Frozen Throne (от англ. warcraft — военное ре
 magnet:?xt=urn:btih:E9D04E7023689A746AB4BB54A71C3CCEA4B7E878
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,7 +528,7 @@ Pariah / Pariah: Изгой [Ru] (RePack/1.078) 2005
 magnet:?xt=urn:btih:4D98E8C5D0D46F561E8E4F7D63AABE8EE6EE42A9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,7 +554,7 @@ Resident Evil 4 [Multi5\+] (RePack) 2007 | R.G. Element Arts
 magnet:?xt=urn:btih:2ABD28ADDADBD9C1156337F5C5FBEB023585A493
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,7 +581,7 @@ Pariah / Pariah: Изгой [Ru/En] (Repack) 2005 | Sash HD
 magnet:?xt=urn:btih:73893B9862E3E34E1A962AAB7023350F6599F03A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,7 +607,7 @@ Ace Lightning [Ru] (RePack) 2002 | Pilotus
 magnet:?xt=urn:btih:A2F117AE9DD007F8E09AC1279D0E6BABDE569F9B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,7 +633,7 @@ Alien Incident [En] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:A3ABA16BEBB2B1452BEEA54494B13D5FE4C2FCA6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,7 +664,7 @@ Culpa Innata / Презумпция виновности [Ru] (RePack) 2007 | RG
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,7 +690,7 @@ Obscure 2 / Obscure: The Aftermath [Ru] (RePack) 2007 l R.G. Repacker's
 magnet:?xt=urn:btih:39E7F67538B724858017B9CA117376B3DCC4AA04
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,7 +21,7 @@ Farming Simulator 15 - это открытый мир и улучшенная г
 magnet:?xt=urn:btih:DE5EF5C3D7606D849C0F95EA2A0316AF7A222E69
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,7 +51,7 @@ Akimbo: Kung-Fu Hero / Акимбо: Маленький воин [Ru] (P) 2001
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,7 +81,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,7 +107,7 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 magnet:?xt=urn:btih:61AAA8874BBA07247BA3512E768C5BAB500AF686
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -133,7 +133,7 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 magnet:?xt=urn:btih:15DB74000D571D910D5E950267307DC9251E79FC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,7 +159,7 @@ Shadowgrounds – эпическая научно-фантастическая �
 magnet:?xt=urn:btih:041B7AB099518AB6606728F1965B9057F8BAA2A7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,7 +186,7 @@ Laura Bow Anthology [En] (RePack) 1989-1992 | RG games {The Colonel's Bequest + 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,7 +213,7 @@ Laura Bow in "The Dagger of Amon Ra" [En] (RePack) 1992 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,7 +240,7 @@ Disney's Buzz Lightyear of Star Command [Ru] (P) 2000 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,7 +266,7 @@ The Stalin Subway: Red Veil / Метро 2 [Ru] (L) 2006
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,7 +293,7 @@ Space Clash: The Last Frontier / Космические войны: Послед
 magnet:?xt=urn:btih:6EA77060C8DFCC5ABB2A36173FC1A172DF1B74EA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,7 +319,7 @@ Psychonauts (2005) [Multi] (1.1.603.0) License GOG
 magnet:?xt=urn:btih:753AE6A83C4D945391AB643746DEE94BC29E66A0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,7 +371,7 @@ Rally Championship 2000 [Ru] (L) 2000
 magnet:?xt=urn:btih:C88A3FE6C5758A5CEF268F3FBF8450575E158573
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,7 +425,7 @@ Medal of Honor: Pacific Assault (2004) [Multi] (1.2) License GOG
 magnet:?xt=urn:btih:93E462D01E838DCFE1391E3CBE103E019D229410
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,7 +451,7 @@ Star Trek: Hidden Evil (1999) [En] (1.0) License GOG
 magnet:?xt=urn:btih:8449A61C4EB5E517774915D9E57C312A9662CD3A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,7 +477,7 @@ Star Trek: Elite Force II (2003) [En] (1.1) License GOG
 magnet:?xt=urn:btih:2FB7723E44F10FCEDCA93454520DEBF09B608DFE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,7 +503,7 @@ Star Trek: Voyager Elite Force (2000) [Multi] (1.2) License GOG
 magnet:?xt=urn:btih:BF7E27DCE095D537AA89796215C98F79F82D2D56
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,7 +529,7 @@ METAL GEAR SOLID 2 SUBSTANCE (2003) [Multi] (1.0cu) License GOG
 magnet:?xt=urn:btih:09B32A45EA9F6E73F9941BCBA9F86EAFAD13D0E5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,7 +556,7 @@ Jacked / Угонщики [Ru] (L) 2006
 magnet:?xt=urn:btih:B1C5669C611678991F164A745192B1871002FFA6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,7 +614,7 @@ Crime Cities - это оригинальная комбинация шутера
 magnet:?xt=urn:btih:449C7072473AA644BDD849DF063467306584F21B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,7 +641,7 @@ Shadow Sorcerer [En] (RePack) 1991 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,7 +668,7 @@ Ghostbusters 2 – игра созданная полностью по тако�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,7 +694,7 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
 magnet:?xt=urn:btih:E8614647E01921281F8F6F9F33F0FE03AF8128DE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

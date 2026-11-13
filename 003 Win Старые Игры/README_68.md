@@ -19,7 +19,7 @@ Patrician III - это экономическая стратегия. Вы - о�
 magnet:?xt=urn:btih:56159AFD8ACB47563776A69F8B2360110AA0A222
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 magnet:?xt=urn:btih:B37E69CE6EFAA6279E023AC8B01531D1154B8E77
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ NAM (1998) [Ru] Repack R.G. Games
 magnet:?xt=urn:btih:31BC7A5DA91CD94765985DF3D63A5CA46B505268
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Harvester (1996) [Ru] RePack R. G. Games
 magnet:?xt=urn:btih:8E2B2BA614A689D9A62A0DD9EAD0348EB159EF49
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Daughter of Serpents [En] (RePack) 1992
 magnet:?xt=urn:btih:38A677A603AE9B80FB340FBC5FE2EE67C4CEC6A7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Detroit [En] (RePack) 1993 | RG games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Terminus (2000) [En] License
 magnet:?xt=urn:btih:951841530D4D00881A28B00E0FE43D2456671B13
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,7 +204,7 @@ Ghost Master / Повелитель Ужаса (2003) [Ru] Repack Sandy Ann
 magnet:?xt=urn:btih:91BA7D08954B65615297CA53824406763AAABA6E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,7 +230,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
 magnet:?xt=urn:btih:A21D157716CB3FC716761DB427B81587F422BE60
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,7 +256,7 @@ Traffic Giant - это удивительная игра-симулятор, к�
 magnet:?xt=urn:btih:93C7A51FD62C367211EBC7D16B9321B29F52F600
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,7 +282,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 magnet:?xt=urn:btih:1CE6421DF4DB454C2504F3775CE95D864699FC78
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,7 +308,7 @@ Inner Worlds [En] (RePack) 1996 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,7 +334,7 @@ Polanie (1996) [Ru] Repack R .G. Games
 magnet:?xt=urn:btih:2AF994D3603D1893018112C9F25CD6D03C5284E8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,7 +360,7 @@ Uncharted Waters Дилогия [En] (RePack) 1990-1995 | RG Games/Pilotus
 magnet:?xt=urn:btih:E5C4E7EEA8EF83C6FFBDA9FC68043E8817D74DD2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,7 +386,7 @@ Descent (1995) [Ru] Repack R. G. Games [OpenGL Edition]
 magnet:?xt=urn:btih:5A55469FA793B05294AE8246F94FE5C7CFF928C2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,7 +412,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 magnet:?xt=urn:btih:5240F170BFE33C592C95182893E7D10082D3E158
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,7 +438,7 @@ XIII (2003) [Ru] (1.01) Repack anton210896
 magnet:?xt=urn:btih:C458DD7686D7F8A04398BAFCC34CCD08F8F22BBA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,7 +465,7 @@ Neighbours from Hell 2: On Vacation / Как достать соседа 2: Ад
 magnet:?xt=urn:btih:B3C84C543C7E52EC72F7F815C41790A0BCBDF2B9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,7 +491,7 @@ Waxworks (1992) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:FF2B4DE245A2D6C057BB2AE73E8502069904997E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,7 +517,7 @@ Company of Heroes (2006) [Ru] (1.0) License
 magnet:?xt=urn:btih:9046736EE59AA7F218454902333AAE2C307B4EBF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,7 +543,7 @@ Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
 magnet:?xt=urn:btih:6C5374389394CDAE3BB7AADB61D98279CD649D49
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,7 +569,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru/En] (1.2.12) License GOG
 magnet:?xt=urn:btih:2C818AF17F4BEE92786DFB4DC2BB1840A2D85DDB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,7 +595,7 @@ Imperium Galactica (1997) [En] (1.0) License GOG
 magnet:?xt=urn:btih:884B8988BF1424A723B622AE0C4762A190553D28
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,7 +623,7 @@ Unnatural Selection [En] (RePack) 1993 | RG games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,7 +652,7 @@ Neighbours from Hell Dilogy (2003-2004) [Ru/En] (1.0/1.01) Repack R.G. Меха�
 magnet:?xt=urn:btih:AB96FC3689B9BA85EAE08E237C9360EE29CD96DD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,7 +678,7 @@ Lure of the Temptress (1992) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:6F4708C0E6B160BE8A552A8F54C613FF221D614D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

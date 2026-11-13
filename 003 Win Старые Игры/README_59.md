@@ -20,7 +20,7 @@ The Moment Of Silence / Момент истины [En] (L) 2005
 magnet:?xt=urn:btih:00BCFC0C7FA53EA0F3CC5CD5011A599149D52A8A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Scrapland / Scrapland: Хроники Химеры [Ru] (RePack) 2004 | Fenixx
 magnet:?xt=urn:btih:9080652167AB16E2ED2505874253257C1A90722D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Magic Chronicle (2003) [En] (1.1) License
 magnet:?xt=urn:btih:BAD988D5BDF9F8EB151D0C145A5C965A977CAED5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Mad Dog 2: The Lost Gold / Mad Dog 2: Золотая лихорадка [Ru] (L)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,7 +124,7 @@ Blitzkrieg / Блицкриг (2003) [Ru] (1.2) Repack/Mod Sprut [Сборник
 magnet:?xt=urn:btih:95C28F9896379C7DF7A97B05BB248A57C31C2EF1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,7 +150,7 @@ GZM9 – наиболее крупномасштабный проект на б�
 magnet:?xt=urn:btih:5FC00E7680DC57C9561F51C0DB974E88A50EED4A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,7 +176,7 @@ Diablo 2 + Lord of Destruction [Ru/En] (RePack/1.13d) 2000 | Sanctuary
 magnet:?xt=urn:btih:6891B95C4C8FBB1CD424F2E220DD1147F605E7CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,7 +202,7 @@ CivCity: Rome — новаторский симулятор градострои
 magnet:?xt=urn:btih:03A83457BEC5B1BDB4F1F0CB8524D03959CCBC79
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,7 +228,7 @@ Sid Meier's Civilization III: Complete — это самое последнее 
 magnet:?xt=urn:btih:B1A55E6DEB4DF5755AF39AA5E1F44A9DF01C30D8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,7 +256,7 @@ Rebels: Prison Escape / Повстанцы [Ru] (L) 2003
 magnet:?xt=urn:btih:CFE40E9C2D1A832CDE51141E34397A452E3EE341
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,7 +282,7 @@ Sea Legends / Морские легенды (L) [Ru] 1996
 magnet:?xt=urn:btih:A775B8490B5F44EAF49C78F2208AD82FD709CB5F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,7 +308,7 @@ Judge Dredd: Dredd vs Death (2003) [En] (1.0) License GOG
 magnet:?xt=urn:btih:25DD78EBAA782AEB97BB097A5EE7CAF44853B2D1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,7 +334,7 @@ Dark Seed Антология [En/Ru] (RePack) 1992-1995 | Pilotus
 magnet:?xt=urn:btih:C34EC54304FCB2A5CE9AC72833928247C88DA2B4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,7 +360,7 @@ Hidden & Dangerous [En/Ru] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:5ECB39AB46EE8B69CA4B2757DC290057A59B8249
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,7 +386,7 @@ Psychotoxic: Gateway to Hell / Психотоксик: Врата Ада (L) [Ru
 magnet:?xt=urn:btih:788E8EF51E2188BEF6E33A3222BC6F11E8F30300
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,7 +412,7 @@ Sanity: Aiken's Artifact - игра жанра экшен от компании 
 magnet:?xt=urn:btih:CBA9B195050111343E9F90F0C69F7A60D717C83A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,7 +438,7 @@ Stonekeep представляет собой dungeon crawl (поджанр RPG,
 magnet:?xt=urn:btih:5B5049FE35C1735D17B63C87A245D50EDBDC086D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,7 +464,7 @@ Anvil of Dawn [Ru/En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:016A3A183AA8F82AA1F3DE1E81AB652701B2EED8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,7 +490,7 @@ RIM - Battle Planets / Периферия [Ru] (L) 2002
 magnet:?xt=urn:btih:2E7D27D7142AC5B321383431257926D4A1CFC41D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,7 +516,7 @@ Tomb Raider III – присоединяйтесь к Ларе Крофт в е�
 magnet:?xt=urn:btih:5D63971AA57622AE6C3B33608AB6E1745A2D1C57
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,7 +542,7 @@ Original War (2001) [Ru/Multi] (1.10b) License GOG
 magnet:?xt=urn:btih:14A4F9F970FBDAA641CEB658367B9F0DA5A19B5A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,7 +568,7 @@ Stranglehold — высокотехнологичный компьютерный
 magnet:?xt=urn:btih:3890929F0052339B720CC25E2B5BE6D40A5E6FD6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,7 +594,7 @@ Realms of the Haunting [En] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:100767FD24451F01EB1140270A6F7D556AD0F90C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,7 +620,7 @@ Warlords 4: Heroes of Etheria / Варлорды 4: Герои Этерии (P) 
 magnet:?xt=urn:btih:327F17A652ED00982032C0A5315CDE2D5E5630C4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,7 +646,7 @@ The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
 magnet:?xt=urn:btih:8D9EF729C912CF1F9EAC6FC6003CD400C2A08911
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,7 +672,7 @@ Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
 magnet:?xt=urn:btih:354CAA27A955DADEE51AD8A7D4BEAC92B55E9640
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

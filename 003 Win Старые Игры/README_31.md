@@ -20,7 +20,7 @@ Philip Jose Farmer's Riverworld (P) [Ru] 1998
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,7 +48,7 @@ In Cold Blood / Не зная страха [Ru] (P) 2000
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,7 +77,7 @@ Silver [Ru/En] (P) 1999
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,7 +103,7 @@ Mine Bombers [En] (RePack) 1996 | RG games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,7 +129,7 @@ Catan - Die Erste Insel / Колонизаторы [Ru] (P) 2005
 magnet:?xt=urn:btih:D2802CCA05864F246E52D84F7D7E5209212D0E1D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,7 +157,7 @@ Frankenstein: Through the Eyes of the Monster [Ru] (RePack) 1995 | RG Games (Pil
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,7 +183,7 @@ Dominion: Storm Over Gift 3 (P) [Ru] 1998
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,7 +209,7 @@ Pacman — круглое жёлтое существо, состоящее из
 magnet:?xt=urn:btih:B1096B399F9D268347A2C68F6A5579F6CF8B0791
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,7 +240,7 @@ Praetorians – потрясающая воображение игра от зн
 magnet:?xt=urn:btih:84CC7CAD9EA1F2EB259FB36E98EB05B4BB68ED57
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,7 +266,7 @@ King of Dragon Pass [En] (RePack) 1999 | RG games (Pilotus)
 magnet:?xt=urn:btih:311DA22C364CF8200518FDD0ACB6108AC1F2E7CC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,7 +293,7 @@ Imperialism II: Age of Exploration (RePack) [Ru] 1999 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,7 +319,7 @@ Star Trek: Elite Force 2 [Ru] (P) 2003
 magnet:?xt=urn:btih:DE917585D5379A8A15AEC056D818CF1B203590AF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,7 +346,7 @@ Beach Life (Virtual Resort:  Spring Break) (RePack) [Ru] 2002 | RG games (Pilotu
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,7 +372,7 @@ Obscure [Ru] (RePack) 2005 | MOP030B
 magnet:?xt=urn:btih:AA1BF356EE5F1615764F081C8B48E050EAB4AB58
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,7 +398,7 @@ Massive Assault (2003) [En/Fr] (1.2.204) License GOG
 magnet:?xt=urn:btih:853D61060B4C4F0AD57471DF4B140504FF85D370
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,7 +424,7 @@ Massive Assault: Phantom Renaissance / Massive Assault: Расцвет Лиги 
 magnet:?xt=urn:btih:23168FED878019504FF5313C3C4CC8FBAD7AE627
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,7 +456,7 @@ Driver: Parallel Lines (2007) [Ru/En] (1.0) Repack R.G. Games
 magnet:?xt=urn:btih:7252FBE2028C5081D89F12C4C90E7AE1BC1FC0BB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,7 +482,7 @@ Perimeter / Периметр (2004) [Ru/En] (1.03.19064) License GOG
 magnet:?xt=urn:btih:5664BC4CD59096179C4463C89BCC8EF6A082FB39
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,7 +508,7 @@ Gish (2004) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:DA3B45B39BC5C5FCE1951A91EA61DF81C0D76F1C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,7 +534,7 @@ RollerCoaster Tycoon 2: Triple Thrill Pack (2002) [Ru/En] (1.0/dlc) License GOG
 magnet:?xt=urn:btih:90439BCF00680A1D8593288826F5B9E80969503D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,7 +560,7 @@ Impossible Creatures (2003) [Ru/En] (1.1) License GOG
 magnet:?xt=urn:btih:5799D7BFB63923BDF99F33B6D3EE86E102EC01C9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,7 +586,7 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 magnet:?xt=urn:btih:3FC95089AA3EB55A9B0866BD301DB84130E5D913
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,7 +612,7 @@ Micro Machines V4 [Ru] (RePack) 2007 | Fenixx
 magnet:?xt=urn:btih:8731DB369659B55FF5ECC03D319AE7FF9E12486E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,7 +645,7 @@ Penumbra Collection (2007) [En] License GOG
 magnet:?xt=urn:btih:86AA61291C6525A56CFB28B16E08B12EC5348122
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,7 +671,7 @@ Post Mortem (2003) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:1E221A322A8CA2438A87F1F541737BB36C7E2B26
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,7 +697,7 @@ RIM: Battle Planets / Периферия [Ru] (RePack) 2002 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

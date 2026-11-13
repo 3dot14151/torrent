@@ -19,7 +19,7 @@ Pool Shark 2 / Акулы бильярда 2 [Ru] (L) 2005
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ MicroProse™ Soccer (1988) [En] (2.0) License GOG
 magnet:?xt=urn:btih:AE48DFF8EE02809DCF66B15F95297FC61F078776
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,7 +75,7 @@ The Punisher / Каратель [Ru/En] (RePack) 2005
 magnet:?xt=urn:btih:99291BBDB338B58B6C459DAC7E1F73344B21250B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,7 +101,7 @@ Grandmaster Chess (1992) [En] (1.0) License GOG
 magnet:?xt=urn:btih:77AD9BF454655CD89EE56EB3EF665A48E0675615
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,7 +127,7 @@ The Elder Scrolls: Arena - первая игра в серии Elder Scrolls. Э
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,7 +153,7 @@ King's Table - The Legend of Ragnarok (1993) [En] (1.0) License GOG
 magnet:?xt=urn:btih:ECD9BC1859F56C443F8F08B1E5458041EA312A05
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,7 +212,7 @@ Driver: Parallel Lines [Ru] (L) 2007
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,7 +242,7 @@ Far Cry Дилогия [Ru] (Repack) 2004-2008 | R.G. ReCoding
 magnet:?xt=urn:btih:900290AA830926678FBDF412B4CF269C4577A343
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -268,7 +268,7 @@ Fallout Resurrection (2016) [Ru] (1.5.116) Repack/Mod Pyran
 magnet:?xt=urn:btih:97ECEB5CEA6112D63AEC75F7DC76CFA9233BA587
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -294,7 +294,7 @@ Patrician 3: Расцвет Ганзы [Ru] (L) 2004
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -322,7 +322,7 @@ Harvester (1996) [Ru] (1.0.0) Unofficial
 magnet:?xt=urn:btih:EDFFE870CA50D53CFCF697FF20165C24A7BAA8AC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,7 +348,7 @@ Caesar - компьютерная игра в жанре стратегия, р�
 magnet:?xt=urn:btih:5459C7BB053A17A0E77D9F3640B51E6E2FB97699
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,7 +374,7 @@ Caesar II - это прежде всего отличнейший продума
 magnet:?xt=urn:btih:4ADB7B42F91DF8A5E15880A19F2636CCC43713EA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,7 +400,7 @@ Emperor: Rise of the Middle Kingdom (2002) [En] (1.0.1.0) License GOG
 magnet:?xt=urn:btih:5ABC8CCED250898E2D3BE023237FF7E118B705B1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,7 +426,7 @@ Wing Commander™ 4: The Price of Freedom (1995) [En] (3.0.1.0) License GOG
 magnet:?xt=urn:btih:6F60B1C62D1C71FA0B684CFF9140F5FCD11BBDE6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,7 +452,7 @@ C древнейших времен клан Хранителей оберега
 magnet:?xt=urn:btih:55158A1CE1127D9F3D2D3B551DD75D53A16CBFE2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,7 +481,7 @@ Sheep [Ru/En] (P) 2000
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,7 +507,7 @@ Cultures:The Discovery of Vinland / Деревня Викингов [Ru] (P) 200
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,7 +533,7 @@ Leisure Suit Larry 6: Shape Up or Slip Out (1994) [En] (1.000.000) License GOG
 magnet:?xt=urn:btih:0147A9F53BFD8FF2189DC5C95F8D237689C5BDBA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,7 +559,7 @@ Medal of Honor Коллекция [En/Ru] (P) 2002-2007
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,7 +585,7 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 magnet:?xt=urn:btih:367671AF8F8B22960F5B18B5FF1DF519CEAAD4CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,7 +611,7 @@ Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
 magnet:?xt=urn:btih:EB7A076A093F731166A160E4F870509A0A58A802
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,7 +637,7 @@ Jets’n’Guns - один из лучших представителей арк
 magnet:?xt=urn:btih:AE61AD8F30A32A42543F6345085D207CA5CF4B0F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,7 +663,7 @@ SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
 magnet:?xt=urn:btih:54BCACB0FB9E1D111C7DB6F68BDF0234B1ADB543
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

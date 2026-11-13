@@ -20,7 +20,7 @@ Perfect Weapon [Ru] (P) 1997
 magnet:?xt=urn:btih:D1978D4E8EB90B86FBCB4EA46A1DAE40DBB7511A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ Sinistar Unleashed [En] (L) 1999
 magnet:?xt=urn:btih:5AA3A8608E662B2F66EE56F388770CDDE0E37B65
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,7 +74,7 @@ Men in Black: The Game [Ru] (P) 1998
 magnet:?xt=urn:btih:B395F154FD279A08341EF5543C61906D04989384
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,7 +100,7 @@ Zoo Tycoon [Ru/En] (P) 2001 | 7Wolf
 magnet:?xt=urn:btih:7782EA1E4FE7F2A11B74A3385D0149C7584D2A00
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,7 +128,7 @@ MediEvil 2 навсегда стала одной из тех игр, котор
 magnet:?xt=urn:btih:48B2E7E85AAD8E1716F44D5280C0531EA94321E6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,7 +154,7 @@ Sabre Team [En] (RePack) 1994 | Pilotus
 magnet:?xt=urn:btih:8B09F12FCA3802BF3498DAA13AD3E5244AF776C9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,7 +182,7 @@ CyberMage: Darklight Awakening [En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:478E1C4393AB9B8B8CA6A2DBCE522190F074BEA3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:D8F5820F044778C7B19EE158C1135F49207A0487
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,7 +234,7 @@ SEAL Team [En] (RePack) 1993 | Pilotus
 magnet:?xt=urn:btih:075F78120F0A22540D420D9B4A5662A19F5935CA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,7 +260,7 @@ Evil Twin: Cyprien's Chronicles [Ru] (RePack/1.1) 2001 | R.G. Catalyst
 magnet:?xt=urn:btih:4524CC63E0158E7E5B91B2DBBE43A38A43ED9288
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,7 +290,7 @@ Re-Volt [En/Multi8] (RePack/1.2a12.1225) 1999 | R.G. Revenants
 magnet:?xt=urn:btih:CA0A3E26188AE0472324871FDF6B6CA2E98A6E82
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,7 +316,7 @@ Time Warrior: The Armageddon Device [Ru] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:DE1F95187733DF671E97E5B894EDF78F33C33F3A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,7 +343,7 @@ MechCommander Gold – фантастическая стратегия в реа
 magnet:?xt=urn:btih:80BA364DD473CAD65FCE10462F7B81A2B8EF8C28
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,7 +369,7 @@ Deadline [Ru] (RePack) 1996 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,7 +400,7 @@ Psychonauts [Ru/En] (RePack) 2005 | R.G. Механики
 magnet:?xt=urn:btih:64839A27D00F21206AB2BFFA8032BCFD2BBE0330
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,7 +426,7 @@ Rising Kingdoms / Королевства: Восхождение к власти
 magnet:?xt=urn:btih:4BF14C51356435C32E52AF29427C3775CBEE6E29
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,7 +456,7 @@ Atlantis Evolution / Атлантида: Эволюция [Ru/En] (RePack) 2004 
 magnet:?xt=urn:btih:2A971B54CBF12209FE11E707794111A1ED338419
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -483,7 +483,7 @@ Toribash - это файтинг, в котором на красивый сме
 magnet:?xt=urn:btih:12966ECCCC5296D3C9C61B17CE64316BAA13E5C5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,7 +509,7 @@ Chicago 1930 [Ru] (RePack/1.1) 2004 | R.G. ILITA
 magnet:?xt=urn:btih:9C174EDF25F048DD8C733ACBDE4A6614586FF2BA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,7 +535,7 @@ Anne McCaffrey's Freedom: First Resistance [Ru/En] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:6C99487CFF6B6ACDB8EE614644068EC9112DCA47
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -561,7 +561,7 @@ Infestation [Ru] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:16319690EC85707E4CBF39926B3F73C9B3BBDF53
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,7 +587,7 @@ Dino Island / Магнаты Юрского периода (P) [Ru] 2002
 magnet:?xt=urn:btih:04AB7638081D5F6CAB197C57850F83995C454287
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,7 +613,7 @@ Monster Truck Fury / Монстры бездорожья [Ru] (P) 2003
 magnet:?xt=urn:btih:DB61959AC4437F61B69CC953D8AB74237A380ED2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,7 +639,7 @@ Psychonauts\Психонавты.  [7+] (L) [полностью RUS] (2005)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:A2DAE4E6FD77E8094364D8C637206D18AF75243D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,7 +691,7 @@ Imperialism II / Империализм II: Век исследований [Ru]
 magnet:?xt=urn:btih:F8C5BF606589D51AADC5189EBA4C1242AA569202
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

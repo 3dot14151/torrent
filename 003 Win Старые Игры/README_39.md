@@ -19,7 +19,7 @@ Action по мотивам выходящего тогда же фильма. В
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -52,7 +52,7 @@ TMNT - увлекательная игра, созданная по мотива
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -78,7 +78,7 @@ BioShock (2007) [En] (1.1) License GOG
 magnet:?xt=urn:btih:95996735210C35ABDA944F1E6E55B00278FE52B0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -104,7 +104,7 @@ Age of Wonders представляет собой, пожалуй, одну и�
 magnet:?xt=urn:btih:5DE3C7E37360A41A72D5CCD1A92A90A5F405AFE8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -130,7 +130,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:282EF49ECFA1EB5160C5634247EB41E57D75CEFF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,7 +156,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:6DC12CB92F1A03E189679F3EC6203D241470D60F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,7 +182,7 @@ Theme Hospital (1997) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:8B8F2D9A8B1B437C3B80A9D35A3E10274C04B34D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,7 +208,7 @@ Inherit the Earth (1994) [En/Ge] (1.1) License GOG
 magnet:?xt=urn:btih:EEC415D56DD261B087CF25593002633F7AFDBBBA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,7 +236,7 @@ Fur Fighters - игра от разработчиков серии игр Projec
 magnet:?xt=urn:btih:16F7E59734830EF9375F47E2433384892D2BBD4C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,7 +262,7 @@ UBIK [Ru] (P) 1998
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,7 +288,7 @@ Anachronox — трёхмерная компьютерная ролевая иг
 magnet:?xt=urn:btih:8529EC8995E83070E57203CD1477366880EBDD8A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,7 +314,7 @@ Jerusalem: The 3 Roads To The Holy Land [Ru] (RePack) 2002 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,7 +341,7 @@ SWIV 3D [En] (RePack) 1996 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,7 +368,7 @@ Universal Monsters: Monsterville / Монстроград [Ru] (RePack) 2002 | R
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,7 +394,7 @@ Anachronox [En/Ru] (RePack/Build 46) 2000 | RG games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,7 +422,7 @@ The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG game
 magnet:?xt=urn:btih:826A0E4E894AD737394999FBE4BDB030EE2F5F4E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,7 +450,7 @@ State of War / Военное положение [Ru/En] (RePack) 2001 | RG Game
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,7 +476,7 @@ Marvel Comics Spider-Man: The Sinister Six [En] (RePack) 1996 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,7 +504,7 @@ Gabriel Knight: Sins of the Fathers [Ru] (RePack) 1994 | Pilotus
 magnet:?xt=urn:btih:1D1CEFA385609E8CBE2E47E1CB8579F1501CD4A0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,7 +534,7 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Origami
 magnet:?xt=urn:btih:8F812C867032E47E45277D02B8CE256964F5B11E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,7 +560,7 @@ S.W.A.T. 3 [Ru] (L) 1999
 magnet:?xt=urn:btih:4E613962F0B9BA5DF93A95B6B4C05742D2724B78
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,7 +586,7 @@ The Hobbit / Хоббит [Ru] (RePack) 2003 | MOP030B
 magnet:?xt=urn:btih:BE2489B0E0082D376CB6D9B612BFADA2C9A9E061
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,7 +612,7 @@ Cyberia 2: Resurrection [Ru] (RePack) 1995 | Kirill Гамес
 magnet:?xt=urn:btih:5A2F3FD3C86E62398C73BFDB9B627288AD7D4CAE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,7 +639,7 @@ BloodRayne Дилогия [Ru/En] (RePack) 2003-2005 | R.G. Catalyst
 magnet:?xt=urn:btih:0795E4E073FDE1236FBAE7CB41A1718D4A5DB505
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,7 +667,7 @@ Star Wars: Empire at War | Гражданская война охватила Г
 magnet:?xt=urn:btih:22971AA7CC4664E9ADF25C61618DA0BF7F305FDC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,7 +693,7 @@ Jazz Jackrabbit 2 [En] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:6C8A870B69F76916195CF87CDCF84BC2F2F2AB6C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

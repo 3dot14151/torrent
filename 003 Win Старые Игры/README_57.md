@@ -19,7 +19,7 @@ Chronomaster [Ru/En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:0438A9ADEAEADF6E99F19AB1FDC8EAEAD564720B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ Tomb Raider 3: The Adventurs of Lara Croft [Ru] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:A2AFF859F1D4BD1914BD440EA4B2514E01884DF2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,7 +75,7 @@ Tomb Raider 4: The Last Revelation / Lara Croft Tomb Raider: Последнее 
 magnet:?xt=urn:btih:475F529CA82A47239A141C80A672A3225E76EFD9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,7 +105,7 @@ Tomb Raider: Chronicles / Tomb Raider: Хроники [Ru] (RePack) 2000 | Donal
 magnet:?xt=urn:btih:F985C7DC6DB0622856D85C0AE662DBAC44E1CDFF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -131,7 +131,7 @@ Evolution GT - новый представитель славного семей
 magnet:?xt=urn:btih:4D106F87BD81264DB2460723587E3716EEF68F2F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -157,7 +157,7 @@ Black & White: Creature Isle - дополнение к игре, получив�
 magnet:?xt=urn:btih:445F96EB141FEA33DC8FE31D20996230B185548B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,7 +183,7 @@ Shadow Vault / Shadow Vault: Зона теней [Ru] (L) 2004
 magnet:?xt=urn:btih:A29DBAAADCF35D26151697583E8C5CE3371A36A4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,7 +209,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru/En] 
 magnet:?xt=urn:btih:AAE946CD88C67DC28921F14F099739CDE3058F16
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,7 +235,7 @@ Roller Coaster Tycoon [Ru] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:912219579528F8055CB403F3B6FE645FE5E439FF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,7 +264,7 @@ Abomination: The Nemesis Project [Ru] (Rip) 1999 | Pilotus
 magnet:?xt=urn:btih:AF7868CFD163383B3ADD52DCB8D274ACF25CCF8F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:A82BE4A6618102931B4988CC344A45DFBBC7FB7E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:8700A10EE84021BDB32AAB545F4B8EB62102BA00
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:9A4EAA05493EEEB28E88F1DB25F422C929444F34
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,7 +371,7 @@ The X-Files Game [Ru] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:584BA5536EFC47ACB6D5D6E3AA2E9E64E84B4799
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,7 +397,7 @@ DarkStone / Камень Тьмы [Ru] (P) 1999
 magnet:?xt=urn:btih:6B93E7EBFB4F09206E4ABAE9244DC19434F59E26
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,7 +423,7 @@ Fallout 2 – культовая ролевая игра, справедливо
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,7 +451,7 @@ Tomb Raider [En] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:A3E45EBC9BFB8CC91FF7F8C4004223AF2C16D15C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,7 +481,7 @@ Seven Kingdoms это довольно оригинальная игра. С о�
 magnet:?xt=urn:btih:E00AD8A5DF7872BF0DDD579E8336AC622AB9137E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,7 +508,7 @@ Big Time Software сделала самолетные бои с малыми э�
 magnet:?xt=urn:btih:1602A5EDB833997018CBAFB425F13916410BB4FB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,7 +534,7 @@ Quest for Glory Антология [En/Ru]  (RePack) 1989-1998 | Pilotus
 magnet:?xt=urn:btih:BBD27E6D82CEA99535CA1D445CA590E08974AA52
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,7 +562,7 @@ Mafia: The City of Lost Heaven / Мафия [Ru] (RePack) 2002 | R.G. Element Ar
 magnet:?xt=urn:btih:7B32D7907D57C5F008C6A6795C586F2ECC1D1326
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,7 +588,7 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 magnet:?xt=urn:btih:315554E0BA995EE95BAEEA90DDFA4C02FEB551A6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,7 +614,7 @@ Dragon Lore 2: The Heart of the Dragon Man [Ru] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:FBEEFFC3EDCE2FBF9A06ACC18D66FD03A4C17586
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,7 +644,7 @@ Police Quest Антология [En] (RePack) 1987-1993 | Pilotus
 magnet:?xt=urn:btih:E754B3A1180997B6D6FD1DF35257FF9E69617794
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,7 +670,7 @@ Lord of Magic [Ru] (P) 1997
 magnet:?xt=urn:btih:62A6BCCBDBA5797E9B3F8903A382A7A6210BD8C8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,7 +700,7 @@ Edge of Chaos - не просто космических симулятор с �
 magnet:?xt=urn:btih:BF526D6254A8B39B6DD4A83919A5B8272784FCBE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

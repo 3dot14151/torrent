@@ -19,7 +19,7 @@ PowerSlave (1996) [En] (1.0) License GOG
 magnet:?xt=urn:btih:7E179E003E0FAB7050A9B8E82D44C30C08ED2252
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ STORROR Parkour Pro - это игра о паркуре, которая испо
 magnet:?xt=urn:btih:A5DE78C86FD6ACCA1892177EDBA752F995C43F05
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ The Blackwell Unbound (2007) [En] (4.5) License GOG
 magnet:?xt=urn:btih:C2A7378ABE23C3DA15BD1F652A6EC86FCB0D41B1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Seal of Evil (2006) [En] (1.06) License GOG
 magnet:?xt=urn:btih:8511C3156E84C1AF545C5729CA4D6E39AD36634F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

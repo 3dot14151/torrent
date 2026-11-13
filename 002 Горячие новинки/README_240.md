@@ -19,7 +19,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.264/1080p]
 magnet:?xt=urn:btih:1545C340250EE2A3C1FF301F759A9D69F43AA5F9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, SDR, 
 magnet:?xt=urn:btih:99B21B826F650DC6FB45B272C0E185746493D29C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:E14C0EC572C1FEC7E26D1462B77CCE8A9183CE69
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:5387324BD30D639FDCC90904D6B71DD54C0A3D4B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:554166C227DAFC241A1B89E585E26F1B6C98AA6E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:7265419983928EF1C9B0E54A11BAEC3C577B0E7E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:1A6BDBB13909BD1973C4B83475F835B5589FC695
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:9F7B431F5F696795CEEB765299E60C2954A768AA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:D80370B5F97126019898821622E2FC51A44C7BC5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:DE3FB6640E1B3AFB2000B869A71937963F099D52
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:73539D7DFE48861CDAA8CABFFA41BDB7F04A0B1A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:0E6F5D8CD1C184B077DD0FDB5A2FC55EB3235981
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:15C885138EB906CB406591BE8B8EB56378350CB3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:35C40162A9B9285752B01CEAD8242E03EF062FD3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:D0ACC58914545D3EBCDDD75E516BE02730F6294F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:93B501E4D1B78E5E5C0E1E3269B4BE5B0535E354
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:A1B93A56464650AFDB60C9F321E3B50F8D76DBC5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:77065D8FD180780734446395AE48C5F010D02EEB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:0C19CD5047DB1598A7EF9419FABC68B72FE8C3B8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:C470089DF80F66DF4D2BC4B316FB1E323FA0C9AB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:CE21EA87A9F08016B5B892D1739905298FA0A0FB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:644AE12661200A86272917C61CA0E7F87BC93684
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:CE067375E71980456725226801BE6A1407A56BF6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:064B69D6D2F0F80A48DD9A2B46097BD51822CAAF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:62E25A9A1CCF13027B6BD542D6DAD4DCF6B38747
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:CDF46F03C03A4DF75C2299A111714D0677EBA006
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

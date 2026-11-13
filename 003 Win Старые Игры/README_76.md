@@ -20,7 +20,7 @@ MegaLoMania [En] (RePack) 1992 | RG games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ Drilling Billy [Ru] (Rip) 1998 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ Dark Sun: Shattered Lands и Dark Sun: Wake of the Ravager [En] (RePack) 1993-19
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,7 +100,7 @@ Battleship: Surface Thunder [Ru] (Rip) 2000 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,7 +126,7 @@ Midtown Madness 2 [Ru] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:FEF7123F9BB721BF64118C79D3B8BB9707DCCAA6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,7 +154,7 @@ Ultrabots [En] (RePack) 1993 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,7 +181,7 @@ Arcomage [Ru/En] (RePack) 2000 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,7 +209,7 @@ BioShock - шутер, не похожий ни на один из тех, в к
 magnet:?xt=urn:btih:DB652D17E8A0065CEC0AFC4CB77A62BEE9242673
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,7 +236,7 @@ OpenTTD - это полный клон Transport Tycoon Deluxe с открыты
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,7 +262,7 @@ Operation Steel Tide - аркадный симулятор подводной л
 magnet:?xt=urn:btih:E97EFC138F687A7D6A0D090BC202C5A4EEBA5AFB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,7 +290,7 @@ Ocean Trader [En] (RePack) 1996 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,7 +316,7 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 magnet:?xt=urn:btih:12A10019087BA80DDC03351268063B15783963D6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,7 +342,7 @@ STAR WARS Empire at War - Gold Pack – сборник стратегий в р�
 magnet:?xt=urn:btih:116EAE12C56669A6CE23099F643DD9C7D00DEE44
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,7 +371,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 magnet:?xt=urn:btih:59288289D62B2E5AFF57F45B2C0E23EC2AE1F2AE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,7 +398,7 @@ Star Trek: New Worlds [Ru] (P) 2000
 magnet:?xt=urn:btih:4971732D3A16E6BCA8CDF14281528AE3AF49CFD0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,7 +425,7 @@ Jeff Wayne's The War of the Worlds [Ru] (P) 1998
 magnet:?xt=urn:btih:66FC15CB00E9FAD98305CB50C828683B7C2E469F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,7 +452,7 @@ Star Wars: Jedi Knight: Dark Forces 2 [Ru] (P) 1997
 magnet:?xt=urn:btih:8E2E36BA419FC8B07A05DA322C965670E18ACC8B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,7 +479,7 @@ Animorphs: Know the Secret [Ru] (P) 2000
 magnet:?xt=urn:btih:651100C3A6F37F93012DC85ADAF9649A7368F332
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,7 +506,7 @@ Eliminator [Ru] (P) 1999
 magnet:?xt=urn:btih:174F11B086690764F51A4E8A23F689CA6CA8FF2D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -532,7 +532,7 @@ Holiday Island - великолепная, насыщенная радужным
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -559,7 +559,7 @@ Industry Giant [Ru] (P) 1997
 magnet:?xt=urn:btih:C13442F5EDCC3F655DEB783F3915868317F973D5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,7 +585,7 @@ Hunter Hunted [En] (P) 1996
 magnet:?xt=urn:btih:073B8A8A3B3C63D44A3E5C7B1D6D0574D6632336
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,7 +612,7 @@ Deadly Dozen [Ru] (P) 2001
 magnet:?xt=urn:btih:01B9731E288E8C33FCFAFAE508E9129D9DA3C1D5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,7 +638,7 @@ Rising Lands [Ru] (P) 1997
 magnet:?xt=urn:btih:B5183A0527E5F32DFC9294F1B31476F5EB879BD2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -666,7 +666,7 @@ Impossible Creatures [Ru] (P) 2003
 magnet:?xt=urn:btih:79B92FB781874D8EF848C6346B2F69B114B87455
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,7 +693,7 @@ Pac-Man All-Stars [Ru] (P) 2002
 magnet:?xt=urn:btih:CEDA5934D4C4217432BA40D367169A30D6E293F6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,7 +19,7 @@ Heavy Metal: F.A.K.K.2 [Ru] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:9513D2D3644AC657E19788BAE8F241C40427CCBA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
 magnet:?xt=urn:btih:F858B1EF87264A0280887547E44172B838A10672
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ Alien Breed™ Impact — это взрывной научно-фантасти�
 magnet:?xt=urn:btih:D5A35CAA870083314A766994E1D96E2221B77A73
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Odyssey: The Search for Ulysses / Одиссея [Ru] (L) 2000
 magnet:?xt=urn:btih:890CC87EAFD21212ECFEE837B4FF78850D230E65
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Rails across America / Америка на шпалах [Ru] (RePack) 2001 | RG 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,7 +152,7 @@ Orion Pirates - хорошо организованная преступная �
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,7 +179,7 @@ Paris-Dakar Rally - название игры говорит все само з�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,7 +206,7 @@ Disney's Aladdin in Nasira's Revenge [Ru] (RePack) 2000 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,7 +233,7 @@ Twisted Metal 2 [Ru] (Rip) 1996 | RG games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,7 +259,7 @@ AquaNox 2 Revelation / Aquanox 2: Откровение [Ru] (RePack) 2003 | RG g
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,7 +286,7 @@ L. A. Rush [Ru] (RePack) 2006 | R.G. Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,7 +312,7 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 magnet:?xt=urn:btih:A994385B8EC35B7DF8BEB90ABB150F2B4E122F08
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,7 +339,7 @@ I Have No Mouth, and I Must Scream [Ru/En] (RePack) 1995 | Kirill Games
 magnet:?xt=urn:btih:36636C999B0156098DDC31015FDAA3BEB12DD403
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,7 +367,7 @@ Emperor of the Fading Suns (Император Гаснущих Солнц) — 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,7 +393,7 @@ Gladiators of Rome [Ru] (RePack) 2002 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,7 +421,7 @@ Jane's F-15: The Definitive Jet Combat Simulator [En] (RePack/1.17f) 1998 | RG G
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,7 +474,7 @@ Red Jets / Крылья России [Ru] (RePack) 2004 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,7 +500,7 @@ Ultimate Spider-Man [Ru/En] (Repack) 2005 | R.G. Механики
 magnet:?xt=urn:btih:2427FFB3BB4C569E3E70302779033567F52248E9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,7 +527,7 @@ Colt's Wild West Shootout (1999) [Ru] Unofficial
 magnet:?xt=urn:btih:246F2C321E30E1D79B5A8DFF55425A172F010AD1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,7 +553,7 @@ Alien Nations / Затерянный мир (L) [En] 1999
 magnet:?xt=urn:btih:8BC4A6A93A0A550E9A8E391164E07B75B4F59525
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,7 +580,7 @@ Imperialism II: Age of Exploration (1999) [Ru] Unofficial
 magnet:?xt=urn:btih:A80A1B4FC50EDB74A51D303668CF985455D5429A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,7 +607,7 @@ Armored assault [Ru] (RePack) 2002 | RG games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,7 +633,7 @@ Ground Control 2: Operation Exodus / Ground Control 2: Операция "Исх�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,7 +659,7 @@ SiN - футуристический шутер о борьбе бравого �
 magnet:?xt=urn:btih:DB69094D409C714A4B90BA3E645D791059DD3FA4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -686,7 +686,7 @@ Majesty: The Fantasy Kingdom Sim - Золотое издание [Ru] (L) 2000
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

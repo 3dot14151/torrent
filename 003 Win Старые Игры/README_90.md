@@ -19,7 +19,7 @@ GTA - Flame's Story (2024) [Ru/En] (1.7) Repack/Mod CTXMaps
 magnet:?xt=urn:btih:F770573EE2B39D95F039D274EEF0383E9FF5557A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Take no Prisoners (1997) [Ru/En] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:F5F25B75D26B787954635FD51205C3DDF2EBE8B0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Dragonsphere (1994) [En] (1.01) License GOG
 magnet:?xt=urn:btih:74EAA125E5D6DD0D4D7EEAFD83BDF88A63C0442F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Populous™: The Beginning (1998) [En] (1.02/dlc) License GOG
 magnet:?xt=urn:btih:1E2913B68188D5D9DA076BB45DB4CCD5A5B43F1A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Sid Meier's Alpha Centauri™ (1999) [En] (1.1/dlc) License GOG [Planetary Pack]
 magnet:?xt=urn:btih:4689B481A9B9F009AA1FFC44EAFEDE2F82936B9C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парус�
 magnet:?xt=urn:btih:A9A04E52F6EF7B28962AAD24036305EBBAE3D791
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Tyrian 2000 (1999) [En] (3.01) License GOG
 magnet:?xt=urn:btih:F983A9B486D7BD71A495A5ACE57C49DF4C29DCB6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Bicycle Board Games - это лицензированный сборник на�
 magnet:?xt=urn:btih:268B7428BC3D1D3A13CB7039C44A256C0BB9890A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ S.T.A.L.K.E.R. Trilogy (2007-2010) [Ru/Multi] (1.0006/1.5.10/1.6.02) Repack Dece
 magnet:?xt=urn:btih:1E83B090946F85F7617D81A61E21C5400651D45B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Dungeon Keeper 2 (1999) [En] (1.7) License GOG
 magnet:?xt=urn:btih:D9AE3BA2D5175726BC1915A5C8EB9B25B7C25DAF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Dungeon Keeper (1997) [Multi] (1.01fix/dlc) License GOG [Gold]
 magnet:?xt=urn:btih:9151B949051B2C0ABC4189C0D181148140155F9D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Muppet Monster Adventure (2000) [Ru] (1.0.0.1) Repack Ma2012ks
 magnet:?xt=urn:btih:4897948992F5B504E80D084C69046AB1A1D8EB49
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay [Ul
 magnet:?xt=urn:btih:2CBE780BE7A1CE452C92C7D38A12BFC0BB78E082
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ The Hell 3 - это тотальная модификация Diablo: HellFire, 
 magnet:?xt=urn:btih:3414D2B1B38DA72B80ED0C13D2A9A8C4207CBF5E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
 magnet:?xt=urn:btih:A9AE378988E74107FDA2DD5C98FA70231845547E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ District Wars / Кровавая Месть (2009) [Ru] (1.0) License Акелл
 magnet:?xt=urn:btih:7E8C61D11BB402BC434CD0A85F674AEA8826E347
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Resident Evil (1997) [Multi] (1.0 HotFix 3) License GOG
 magnet:?xt=urn:btih:18F397333BCDBA00060046C5E246359DBAC471AB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
 magnet:?xt=urn:btih:502A0F7FFDB5A355CC126F2225F4FB0535BF66A9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:DE845236FDD140C51C80AC7555321D141358BE95
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ Monster Jam - это гоночная игра на монстр-траках, �
 magnet:?xt=urn:btih:EC0A5A947316F02D87834F619BC950EBCDB734B1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ MediEvil: Resurrection является переосмыслением перв�
 magnet:?xt=urn:btih:5D82D6D28D6FC50DB13865E1261178B4A73DD2FC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ Garry's Mod - физическая песочница. В отличие от о
 magnet:?xt=urn:btih:7424F5ABEE071EEB21484241C16CE5A641471532
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ Prelude To Darkness - игра, разработанная независимо�
 magnet:?xt=urn:btih:2FB77345DAD01F1031375A28FCBE77D5CA2BFE7F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ Manhunt (2004) [Ru] (1.1) Repack TaloN
 magnet:?xt=urn:btih:179DD8E83C5F7C1F934FAD12175658471A477D0B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ Bugs Bunny & Taz: Time Busters (2000) [Ru/Multi] (1.0) Repack Ma2012ks
 magnet:?xt=urn:btih:7725D29CA7FE481D5E0A74EED20DD78E2E89EDC9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.080.00) Repack R.G. Ме
 magnet:?xt=urn:btih:5F3DD59865DCF9D6A8173884441BF7F7B65ED13F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

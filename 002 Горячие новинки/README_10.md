@@ -19,7 +19,7 @@
 magnet:?xt=urn:btih:BF3A2C605AD72CDF23135B1EF9D4F5F9157E1F4F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:E9F72ED8D50F60006C16BCFB3D62A959E9B7D8C5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Matchbox. Фильм / Matchbox the Movie (2026) WEB-DLRip [H.264]
 magnet:?xt=urn:btih:023473A49EE8550E89B868CF3E86D7009ECD3D8F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Matchbox. Фильм / Matchbox the Movie (2026) WEB-DL [H.264/720p]
 magnet:?xt=urn:btih:E1F268CC171FA254232A05A81D92F91AA67C0F59
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:920A37FD83DFDC927FC56A7639C6FF7542F7306D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:C1D0572ED1CC91BC84B937E19611790A41F5F860
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:92D1C6EAED0745FE018E389EDB7151312516D20A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:4BA78ED15B174B371D1CD527A033F3BD2CE0680D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Matchbox. Фильм / Matchbox the Movie (2026) WEB-DL [H.265/2160p] [4K, SDR, 
 magnet:?xt=urn:btih:3FF450AC62B2F8B877D4F87FB8B227CEE7F14560
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:12BF35F2F9A331D06B4400F7F8A30C2403C1748B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:91C7084460820F63D30AA41DE18E74B42BABEDAF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:D128D6334E188D2659752243F66BE8D36148A615
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Matchbox. Фильм / Matchbox the Movie (2026) WEB-DL [H.264/1080p]
 magnet:?xt=urn:btih:FBF55C193A662FAB41171B780091C52CD0FEC1EC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Matchbox. Фильм / Matchbox the Movie (2026) WEB-DL [H.265/2160p] [4K, HDR10
 magnet:?xt=urn:btih:839E650079E77A7452C141A062A38F486FF02611
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:52ED3DCBE73A314E4BAC73B684482B5FEDD7CCD8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:40D5DF0243AAF0C4B4236B5295AC65C221B2D609
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:4E8FEE83614651F0D8B1258313C7E36AF4E2ACD2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:BF3C1D0AF862F80CF37F7B1247133CDF6D7EC6DC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:50BFDBD8C60FA8BDEB90519DFB10F98D6B015C9B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:F71B8FA02B5CA47EA3771B9D8CC42E9A8A9F1453
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:6C8F478E74D66C29C6C3EC34F2B77DCB0CDF9968
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:CD5605C483B05C40F278AC6D17F3F4801801DDE6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:262AA9E19151461068C542E7C5AE3AC01A379726
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:0C991460AB6B297A6851359847F2E2B0A5200DAF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:3EB33D1E7F00926A69685D576A9C559686163E60
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:4E9618A00304823728B6087E5CAA063D987DCCF9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

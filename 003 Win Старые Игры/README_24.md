@@ -20,7 +20,7 @@ Shellshock (1996) [Ru] Repack R.G. Games
 magnet:?xt=urn:btih:638AA964F022F462E01CEF7B366FE78A0C97FF79
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,7 +48,7 @@ Titanic: Adventure Out Of Time (1996) [Ru] Repack R.G. Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,7 +74,7 @@ Apocalypse: Party's Over - безбашенный и отвратительны�
 magnet:?xt=urn:btih:937EA1CCC6A39857CF55D9C582222CAE8B54EB6B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,7 +100,7 @@ Max Payne 2 - продолжение игры Max Payne, одного из лу�
 magnet:?xt=urn:btih:F449CBD47CA3F8B5B7045AB6EF54FA3CD05B631E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,7 +126,7 @@ Blades of Time (2012) [Ru/Multi] (1.0/dlc) License GOG [Limited Edition]
 magnet:?xt=urn:btih:2DDD12D4C1ADAF868F40311421D4C7BF5CED90A2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,7 +152,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 magnet:?xt=urn:btih:A8CF760C915B4937F3A5081E7C620A81C5AB29C0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,7 +181,7 @@ John Romero's Daikatana (2000) [En] (1.2+) Repack ATTACUE
 magnet:?xt=urn:btih:1A8FEB96A5B0A3AD2A3EF4232E84F3A53859DAA7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,7 +208,7 @@ Port Royale / Порт Роял [Ru] (L) 2003
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,7 +234,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 magnet:?xt=urn:btih:DF5E6916CF119FAD13C2777B21A67880CB80A7CA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,7 +263,7 @@ Heroes Chronicles: Masters of the Elements / Хроники Героев: Пов
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,7 +289,7 @@ Men of Valor [Ru/En] (RePack/1.3) 2005 | R.G. Catalyst
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,7 +315,7 @@ James Bond 007: Nightfire / Джеймс Бонд 007: Ночной огонь (
 magnet:?xt=urn:btih:3D4ACA7ECF7A2192ECF013DD426E92461FA4FE85
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,7 +341,7 @@ HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Re
 magnet:?xt=urn:btih:EC6AF9182E2767ECB9F1D7258F20BEEFAD2A3AF4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,7 +369,7 @@ Fire Chief / Будни пожарного  [Ru/En] (L) 2003
 magnet:?xt=urn:btih:A212C837E5B2C2BED5D8218463C4C00A0E7A2184
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,7 +395,7 @@ The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
 magnet:?xt=urn:btih:C8892788555FF5FC81332839D66F0396183AC59E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,7 +424,7 @@ Postal 2 Complete включает в себя оригинальную игру
 magnet:?xt=urn:btih:6CF24A4BF8DB74ECC35FE737FC673B3493FBD84F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,7 +450,7 @@ Celtic Kings: Rage of War / Король друидов [Ru] (L) 2002
 magnet:?xt=urn:btih:F83AA5FB283265311380544470191E3E1787BF22
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,7 +476,7 @@ Pharaoh + Cleopatra (1999) [En] (2.1.0.15/dlc) License GOG
 magnet:?xt=urn:btih:23126A7E3FAF3CA0E20AE73218CDFA8226871AAA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,7 +502,7 @@ FireStarter (2004) [En] (1.0) License GOG
 magnet:?xt=urn:btih:00EB1CBB0F9E9E7996D4F79F84EC3A2E585C471A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,7 +528,7 @@ Birthright: The Gorgon's Alliance / Право на жизнь: Союз Гор�
 magnet:?xt=urn:btih:305E40152CD92D26DC075694A8F8FA136C5BBB72
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,7 +555,7 @@ The Cassandra Galleries (1997) [Ru] Repack Kirill Games
 magnet:?xt=urn:btih:CF90CD69D253FBC5E0736C7EF3B335E56092F9E6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,7 +581,7 @@ Fallout 1, 2 [Mod] (2015) [Ru/Multi] (Mods) Unofficial [FanKit]
 magnet:?xt=urn:btih:CAD4E812DC30B565A293F704A8D9A7F4EBA3BD51
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,7 +608,7 @@ Atria II The Resurrestion (2001) [En] Unofficial
 magnet:?xt=urn:btih:3100080E22BDF7754E6784CA0B19784CD33CF661
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,7 +634,7 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 magnet:?xt=urn:btih:410D802BDE443F722A1A3651BDBDD67E80341632
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,7 +663,7 @@ Beyond Normandy: Assignment Berlin / Пункт назначения: Берли
 magnet:?xt=urn:btih:F7E44C0206D85BB8DC27AED9F1CA13827A8AA64F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,7 +690,7 @@ F/A-18 Precision Strike Fighter (2001) [Ru/En] Unofficial
 magnet:?xt=urn:btih:BA1881275F4CBCB5C12D54CC5C4EF8B35DDF20D1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

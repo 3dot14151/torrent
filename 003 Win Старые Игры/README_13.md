@@ -29,7 +29,7 @@ Indiana Jones Anthology / Индиана Джонс: Антология (1989-20
 magnet:?xt=urn:btih:F8F9FBD1D367646A02A7D690A550D60EA567C468
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -55,7 +55,7 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (Beta, 1.00-1.
 magnet:?xt=urn:btih:07D884E7FF6A6B0E67DA29F9DBECA1EFF8970EA6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -81,7 +81,7 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) U
 magnet:?xt=urn:btih:35F93C0966FAFCB03B2C8B220BCBE0C0CBDB8BC7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -107,7 +107,7 @@ WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) U
 magnet:?xt=urn:btih:DF1F4359B6DE4297328ED14A1CBE2D1298F2B8B3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,7 +134,7 @@ KA-52 представляет собой продвинутый вертоле�
 magnet:?xt=urn:btih:3CA71D08A3A32B88D04F7C66180AB9DDAA84AA3C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -161,7 +161,7 @@ GTR – один из наиболее реалистичных автосиму
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,7 +188,7 @@ KA-52 представляет собой продвинутый вертоле�
 magnet:?xt=urn:btih:F8FA14E43CE37C6701C5679A18B38164086E5E6A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -214,7 +214,7 @@ Enemy Engaged: RAH-66 Comanche vs. KA-52 Hokum / Разорванное небо
 magnet:?xt=urn:btih:765B5729B0091A900E4E926F0486BB64655AF90A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,7 +240,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) License GOG
 magnet:?xt=urn:btih:764C7D0886DFF76443568F433E1C36EF90CCA4CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,7 +266,7 @@ Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack
 magnet:?xt=urn:btih:7BCA7E98B5923F764497D7E2B7EC6CCABA3A1F33
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,7 +293,7 @@ CrashDay - это своего рода "всё в одном" для любит
 magnet:?xt=urn:btih:2062C2BEB7E367B33BD55264CC87DCF80D506686
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -319,7 +319,7 @@ Airline Tycoon Evolution / Аэропорт 2: Эволюция [Ru] (L) 2002
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,7 +345,7 @@ SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
 magnet:?xt=urn:btih:D8F4079377F3F8328FBEFF010A8ECDFC771600B2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,7 +371,7 @@ Max Payne 2: The Fall of Max Payne — жестокая любовная ист�
 magnet:?xt=urn:btih:AD4BA0067DA4F0B35A1F3A5290FB9A063259B0B4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,7 +397,7 @@ Global War on Terror: Death Strike / Death Strike: Силовое решение
 magnet:?xt=urn:btih:579566B7788577ABA6A4937EEE62DEB0CBDC971C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,7 +426,7 @@ Earth 2150 и The Moon Project...
 magnet:?xt=urn:btih:B2AC7908534347BA6DFFE83366C25FB6D772AAA6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -454,7 +454,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.6) License PROPHET
 magnet:?xt=urn:btih:2DFD94A43D77AE985EED130C4E5358AA54B1E012
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,7 +481,7 @@ Deo Gratias [Ru] (P) 1998
 magnet:?xt=urn:btih:80D521F70FAB848C516AD61EEA9A4D0245C576CF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,7 +508,7 @@ Primal Prey [Ru/En] (P) 2001
 magnet:?xt=urn:btih:B3649EAA6EE80D718F62C59558C0616122444485
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,7 +536,7 @@ Dragon Hunters \ Охотники на Драконов (L) [Ru] 2007
 magnet:?xt=urn:btih:71525CA30689812EF331AF1E1B4178702F717E9B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,7 +562,7 @@ Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
 magnet:?xt=urn:btih:617012D0E3EB033318C52191474FF1385C6687E1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,7 +588,7 @@ Police Quest: SWAT 2 является своеобразным продолже�
 magnet:?xt=urn:btih:0412CA1FD9B6F924A4D99529E6F8CD0FC7A3C7D8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,7 +614,7 @@ Star Wars Episode I: Jedi Power Battles (2000) [En] (1.0.4/4.1) Repack West4it
 magnet:?xt=urn:btih:F8ECA5E8B3B3A98713357787FEC4178F73EE5A18
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -640,7 +640,7 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 magnet:?xt=urn:btih:E970DA93C0BA8D8D23A95D06DE1D4A35F628AA61
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,7 +667,7 @@ Throne of darkness / Семь самураев [Ru] (L) 2001
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -697,7 +697,7 @@ WoG предоставляет всем любителям серии игр «�
 magnet:?xt=urn:btih:07916A2FD13D15AB7B2710DB27E496BC94EEB14C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

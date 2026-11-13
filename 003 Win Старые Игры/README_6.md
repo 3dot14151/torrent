@@ -20,7 +20,7 @@ Empire of the Ants [Ru] (P) 2000
 magnet:?xt=urn:btih:7E5138BFC98910CC8994FD90AC0A4B95A4A4BD15
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ Worms 2 [Ru] (P) 1997
 magnet:?xt=urn:btih:CA2A2B6954A3B8F0855A4C645EACF5E62193AF99
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,7 +74,7 @@ Star Wars: Jedi Knight: Mysteries of the Sith [Ru] (P) 1998
 magnet:?xt=urn:btih:4A96E73560A8C3A950EABA5C3B85078C1AADEA02
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,7 +100,7 @@ Heavy Metal: F.A.K.K.2 [En/Ru] (RePack/1.2) 2000 | RG Games
 magnet:?xt=urn:btih:19E957F259076E3B4842F6BE5C6A597DAA717F01
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,7 +127,7 @@ Age of Empires / Эпоха Империй [Ru] (P) 1997
 magnet:?xt=urn:btih:FF7BE39D6717E44079E683DAD284D61EC7D89998
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,7 +153,7 @@ Boat Fury [Ru/En] (P) 2002
 magnet:?xt=urn:btih:6A8F2B379A25F80236FDDF3A1DDB2ABECCE14A3C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,7 +180,7 @@ Traitor's Gate [Ru] (P) 1999
 magnet:?xt=urn:btih:B72FDA0B74405AC7CC736F769BDC008ED14C6309
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -207,7 +207,7 @@ Rome: Caesar's Will [Ru] (P) 2000
 magnet:?xt=urn:btih:D915E4B59B46CD81D8EB66302DDA68A91F179EA1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,7 +234,7 @@ Starsiege / Earthsiege 3: StarSiege [Ru] (P) 1999
 magnet:?xt=urn:btih:B9A53348A4F90088DC585AA5D193ABEA372CF950
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,7 +262,7 @@ Shivers 2: Harvest of Souls [Ru] (P) 1997
 magnet:?xt=urn:btih:3463B8D2A67299CB456A559A34239B0F05A21704
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,7 +289,7 @@ Road Wage [Ru] (P) 2001
 magnet:?xt=urn:btih:D8F7B1BE3D146EFEABDFF44EE607DD8F4905313E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -315,7 +315,7 @@ Shadow Watch [Ru] (P) 2000
 magnet:?xt=urn:btih:C3E9BD886909CAD22C58143144DB972DFD139CB7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,7 +342,7 @@ Third Rome / Третий Рим: Борьба за престол [Ru] (L) 1997
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,7 +368,7 @@ The Creed [Ru/En] (P) 1998
 magnet:?xt=urn:btih:55A9BB59113BA46D3508B1A6256F883792C3D0A2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,7 +395,7 @@ Icarus: Sanctuary of the Gods [Ru] (P) 1998
 magnet:?xt=urn:btih:D69661238B3266A9D8E8F3914202DFD13EE0BC4C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,7 +422,7 @@ Treasure Planet: Battle at Procyon / Планета сокровищ: Битва
 magnet:?xt=urn:btih:AC3FB1998F2DDA69E638840A10A7AF3C98B4ED06
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,7 +449,7 @@ Rayman 2: The Great Escape [Ru] (P) 1999
 magnet:?xt=urn:btih:DF8D9FBD6E67607F179BD1D9B4089A446BD8822B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,7 +476,7 @@ Celtica [Ru] (P) 1998
 magnet:?xt=urn:btih:EF455155EDCEE9802E7673A05A51B0C053DD218B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,7 +503,7 @@ Treasure Hunter [Ru] (P) 1997
 magnet:?xt=urn:btih:70CB8170B0ED5B9A7453536CC3C19A9967C2C302
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,7 +529,7 @@ Sega Коллекция русских игр 124 in 1 [Ru] (RePack) 1992-1995 |
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,7 +555,7 @@ RollerCoaster Tycoon 3 / Roller Coaster Tycoon 3: Магнат индустри�
 magnet:?xt=urn:btih:B0A70058B9D7981DC8D79355F8F9FDDA646529F3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,7 +581,7 @@ Seven Cities of Gold [En] (RePack) 1993 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,7 +611,7 @@ D-Day -  тактическая стратегия в реальном врем�
 magnet:?xt=urn:btih:26969BD9014EDCB1C64987815257BFB1927D3DDB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,7 +637,7 @@ Stronghold [En] (RePack) 1993 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,7 +663,7 @@ Republic: The Revolution / Республика: Революция [Ru] (L) 200
 magnet:?xt=urn:btih:31F6409E798969CA6DEE43DAB8923C9E0346F8F8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,7 +690,7 @@ Frogger 2: Swampy's Revenge [Ru/En] (P) 2000
 magnet:?xt=urn:btih:8958E62DFA73832F00665D8C7ED047383F39F025
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

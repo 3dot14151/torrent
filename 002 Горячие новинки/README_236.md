@@ -19,7 +19,7 @@
 magnet:?xt=urn:btih:A9397F13EC795CC70A6910A31D516324168C3CDD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEBRip [H.265/1080p] [10-bit]
 magnet:?xt=urn:btih:A2CB24F113FD9969D86608147B3DE6AFCD782113
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:27C2843129E0B7390DE051CB764B8FAF88DA3751
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:D3F314D61379C8FBAE721E25789E91E73E860932
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:D35DEBCB0A7D8FBE05C5AEE8BD888F772F3A2732
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:95345B6D57BC3566660EE167DA5498907D22500F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, SDR 8
 magnet:?xt=urn:btih:D2F77DE03B4C87172D25FB0299B3436D285AB473
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:56B1C04A66686C37D6E94F32B0B917517C323F08
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:711BF8F115E49638EA8F0921FB572933D48F787A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:95363B18EAE0566FA9345596A79E511F13F910B9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:B75B29F41814318D48213F8B683E45EF97151ED0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:C49A34C9B6D98ABA086AE80284F4FB07E579126C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:2D9C01A611B1C042C75F2D39F2BB7721E2233687
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:ABE48EFF5F33D25115EF4582D8DB5ED2EFB7A80D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:8E179D8C8E965EE538403C7F6FF814D2EE48305C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:75F7DB0DF1D563CDAFC309521BE51993B39BEECF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DLRip [H.264/720p]
 magnet:?xt=urn:btih:1FFE0A98185DA6CB61C6637E1BEC62AEF064473D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:84435688AE0AA02CEC04BAC999295DB392147230
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:248C94A7BFC266917F2A258B98915D6D930632A4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:58C4F659B49AE5C3377AFEB8235E95DABFDB900D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,7 +540,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.265/2160p] [4K, HDR10
 magnet:?xt=urn:btih:FF2D11049D56F6BC4AFCD44C72792C0D345EDB6C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:41A656CF400FDE1574869788ABF4EE1A0378323E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:861484529DE4992AAC684D69078E88B951287623
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:702CE3B78C59584A62D5BAF671B035BC95A5D8B0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:71E1D226DBEA103B8EAE6B216CF940D8F0E46940
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:1C0BDB98957FE7CD5CA9465A483459E43A421DA1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

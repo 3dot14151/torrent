@@ -20,7 +20,7 @@ The Immortal [En] (RePack) 1991 | Pilotus
 magnet:?xt=urn:btih:62A56C78A7E470E18885046CF336A72F3303D823
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Ishar Антология [En] (RePack) 1992-1994 | Pilotus
 magnet:?xt=urn:btih:430F2757850ED8987EAFFB181154C5F19EE94426
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:CA50A38AD1B8C8798CBEEAE3813B95DA8E3E5E73
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Grand Theft Auto 3 [Ru] (Lossless RePack) 2002 l R.G. ReStorers
 magnet:?xt=urn:btih:A8EF4F143B5FBE926AC3964B1A8BEEA609A0040E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ XIII [Ru/En] (Lossless RePack/1.1) 2004 l R.G. Origami
 magnet:?xt=urn:btih:0011E77528EDBF3C7F8065EDC63E3445C79D0AEB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Sinking Island / Б. Сокаль. Sinking Island [Ru] (P) 2007
 magnet:?xt=urn:btih:AB0363C611AA6E96BF7FE562504703C9AD1A074F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Overlord [Ru] (RePack/1.4) 2007 | R.G. Element Arts
 magnet:?xt=urn:btih:AA7ACA57C56E18EB0B32B6C916B8420FFF0F0EA4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,7 +206,7 @@ The Eighth Wonder of the World продолжение, а вернее втор�
 magnet:?xt=urn:btih:032533DCBB03E0B0A6FA08B1A99511E99A5FA102
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -233,7 +233,7 @@ Blue Force [En] (RePack) 1993 | Pilotus
 magnet:?xt=urn:btih:483FCAEB685954118BA16B9BE0EE45C5A5A7885C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,7 +259,7 @@ Warhammer 40,000: Dawn of War - Soulstorm - самостоятельное до�
 magnet:?xt=urn:btih:0CF4CA4D223ACBE10A6DFB1E38676340BE599A9C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,7 +285,7 @@ Questron II (1988) [En] (1.2) License GOG
 magnet:?xt=urn:btih:8EE28C8334955284F777C8C23F72A18B39302965
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,7 +311,7 @@ Star Trek: Judgment Rites, продолжение игры Star Trek: 25th Anniv
 magnet:?xt=urn:btih:ABCB36DFC2A225E59EF0F440CA767C41184C9241
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,7 +337,7 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 magnet:?xt=urn:btih:7BEE977EA12231AB6669AB85AF755E65EE02BB7B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,7 +363,7 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 magnet:?xt=urn:btih:B97966C8E16FB10E2C11D11F6BF220FE7DEE7516
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,7 +389,7 @@ Wing Commander: Prophecy является продолжением легенд�
 magnet:?xt=urn:btih:A5EB3D8510E59C6205AC2FEC11BD3B391E7E9E72
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,7 +415,7 @@ Star Wars: Dark Forces [En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:8D107A2000F8B42E0BC9EC937D906C81812B5B86
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,7 +445,7 @@ Wing Commander IV: The Price of Freedom [Ru/En] (RePack) 1996 | Skulov
 magnet:?xt=urn:btih:59BFEEC4C400C1A6522590047ED45DCEDE694A4D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,7 +471,7 @@ UFO's [Ru] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:E6825B8CD8EAA33EE13B72DDBB0FCBAB01C737F3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,7 +497,7 @@ Transformers: The Game [Ru] (RePack) 2007 | R.G. T-G
 magnet:?xt=urn:btih:582E455BA63F856F865DE0CEF74EAC3176408C89
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,7 +524,7 @@ Armed and Dangerous [Ru] (P) 2003
 magnet:?xt=urn:btih:9DAEA468B241052D96CFBD97BD7A4C9743E0B828
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,7 +550,7 @@ Myth 2: Soulblighter [Ru] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:0888C33A0090F79F91A4AA0A812DA7D97E74254F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:6FA34888BABA5ADDD9A7BF1E51709C3F1E30582C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,7 +602,7 @@ Quake II: Add-on Mod Pack (1997) [En] Repack/Mod firstlast2
 magnet:?xt=urn:btih:CC5E11375AB141F353E2CD67E74A6A3CB7B77A02
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,7 +628,7 @@ The Lord of the Rings: War of the Ring предлагает полностью �
 magnet:?xt=urn:btih:4BD436694871A024AE71BFEBA43CB1CC850AB641
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -654,7 +654,7 @@ Victoria 2 – масштабная компьютерная игра в жан�
 magnet:?xt=urn:btih:F65F19E830EF8958EBF332C7FEF7375FBD235262
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -680,7 +680,7 @@ Sword Art Online: Alicization Lycoris – новейшая игра по мот�
 magnet:?xt=urn:btih:FC89AFC447C5431E34AE95D5D104FE6FEEE278C3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

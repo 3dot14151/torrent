@@ -20,7 +20,7 @@ Aerial Strike: The Yager Missions / Крылатый охотник [Ru] (RePack
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Pirates of the Caribbean: At World's End основана на событиях 
 magnet:?xt=urn:btih:90673418F025396A3D2B4F257C065FB3E96A8613
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ BeachHead Трилогия [En/Ru] (L) 2003
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,7 +100,7 @@ Anito: Defend A Land Enraged – изометрическая RPG, перено�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,7 +126,7 @@ Medieval Lords: Build, Defend, Expand / Властители Средневек�
 magnet:?xt=urn:btih:385C2B4B130E3EE3531B1EC5E441BDD645949920
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,7 +152,7 @@ Freelancer [Ru/En] (RePack) 2003 | R.G. ReCoding
 magnet:?xt=urn:btih:0597B080C7097555812C6D0352E81737CB1E1898
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,7 +178,7 @@ Real Myst (2000) [En] (1.11) License GOG
 magnet:?xt=urn:btih:A3BCC41404E744AD0E2BF000B1526750A89CF854
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,7 +204,7 @@ Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
 magnet:?xt=urn:btih:132D085745FE8F4D36121A1E4EAAE7130A59B690
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,7 +232,7 @@ Star Gunner [En] (L) 1997
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,7 +258,7 @@ Pizza Tycoon - еще один вариант серии экономическ�
 magnet:?xt=urn:btih:344A0A913876BE0649485433BF135B71BC28F46E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,7 +284,7 @@ Dream Pinball 3D / 3D Пинбол. Во власти азарта (P) [Ru] (200
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,7 +311,7 @@ The CLUE: Murder at Boddy Mansion [Ru] (RePack) 1998 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,7 +337,7 @@ Silent Hill 2 Director's Cut [Ru] (RePack) 2002 | mefist00
 magnet:?xt=urn:btih:5BBBD8654B36AF70341C9083E6629C73587EAA1E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,7 +364,7 @@ Airline Tycoon Evolution / Аэропорт 2: Эволюция [Ru] (RePack) 20
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,7 +390,7 @@ Aliens vs Predator 2 [En] (RePack) 2001 | Pilotus
 magnet:?xt=urn:btih:CC5AEEB2B6C407FEA3E51B1667E1D2F378350D0E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,7 +416,7 @@ Teenage Mutant Ninja Turtles 2: Battle Nexus [Ru] (RePack) 2004 | RG games/Pilot
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,7 +442,7 @@ Immortal Cities: Children of the Nile / Дети Нила (2004) [Ru/Multi] (1.0
 magnet:?xt=urn:btih:A05331A04FC690D0B865E179F35204E9611331CD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,7 +469,7 @@ Wings over Vietnam / Асы над Вьетнамом [Ru] (RePack) 2004 | RG Ga
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,7 +495,7 @@ TRON 2.0 [Ru/En] (Repack/1.042) 2003 | R.G. Механики
 magnet:?xt=urn:btih:AC26392BD56B32B1843FC2F2FFA9A1EC2016095C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,7 +521,7 @@ Horror-action по сюжету известного писателя и реж�
 magnet:?xt=urn:btih:6B717027FBE3C23BE3B1FA2DB56AD1080D445395
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,7 +548,7 @@ Sam and Max Anthology (2007-2010) [Ru/En] Repack R.G. Механики
 magnet:?xt=urn:btih:C7911B7E579840E9E931C586E0C5F4BC16DE0B50
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,7 +574,7 @@ Massive Assault: Phantom Renaissance / Massive Assault: Расцвет Лиги 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,7 +600,7 @@ Tomb Raider 2: The Dagger Of Xian [En] (L) 1997
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,7 +627,7 @@ Castles & Catapults [Ru] (RePack) 2003 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,7 +653,7 @@ Indiana Jones and The Fate of Atlantis - замечательный квест, 
 magnet:?xt=urn:btih:5C5A8685CCB89B4DDD8597F5437D67EE6D789F98
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,7 +679,7 @@ M.A.X. 2: Mechanized Assault & Exploration - мало чем отличающе�
 magnet:?xt=urn:btih:0E2E995B6649F3F21E308B67CCA42BCEEFC4A18A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

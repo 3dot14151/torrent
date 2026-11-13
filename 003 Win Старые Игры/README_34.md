@@ -19,7 +19,7 @@ Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License
 magnet:?xt=urn:btih:05EDE49559BCAC186F6D35072F3C518A20974326
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Soldiers: Heroes of World War II / В тылу врага (2004) [Ru/En] (1.28.3
 magnet:?xt=urn:btih:D6F23819D1E17525F65D4E18F410B2981687BB31
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Eragon [Ru] (L) 2006
 magnet:?xt=urn:btih:2B649E48A7D2DD8ED6BBAE4FB41766A74014F46A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,7 +101,7 @@ Anito: Defend A Land Enraged – изометрическая RPG, перено�
 magnet:?xt=urn:btih:C7606713413A596AAB40B050A85474C610EC153E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,7 +127,7 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 magnet:?xt=urn:btih:AD57755F13E2FB83CBA068885201AEDE474C5C21
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,7 +153,7 @@ BSE Bomber / Бешеные Бурёнки [Ru] (L) 2001
 magnet:?xt=urn:btih:DCA1A4476ED1AFC7A9500E3135FA4E9668B9430E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,7 +180,7 @@ Dark Messiah of Might and Magic — ролевая игра нового пок�
 magnet:?xt=urn:btih:305A90CE9E3848973EB3FF5E4752EBFD692814B8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,7 +206,7 @@ Avernum – настоящая подземная тюрьма с сотнями
 magnet:?xt=urn:btih:443F5698A6591273088B371E647C159DDF297A2D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:3D6431D8A53A26FD4E46B57FFE307AD45026D053
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,7 +258,7 @@ London Racer: Destruction Madness / London Racer: Тотальное разру�
 magnet:?xt=urn:btih:363E7AD3501B0D22D9E2CB9D766D3525E488D102
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,7 +284,7 @@ Sherlock Holmes: Mystery of the Mummy / Шерлок Холмс: 5 египет�
 magnet:?xt=urn:btih:F6A1178C11E7118F2D6DE87ED5644DC496768A11
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,7 +310,7 @@ Hostile Waters: Antaeus Rising / Враждебные воды: Территор
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,7 +339,7 @@ Economic War / Экономические войны (P) [Ru] (2003)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,7 +366,7 @@ Sphinx - таинственное приключение, наполненное
 magnet:?xt=urn:btih:6B2BEB1943AD42791FA77DF685DA430BB59EC653
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,7 +394,7 @@ Turok: Evolution [Ru/En] (P) 2003
 magnet:?xt=urn:btih:B3524FB9F48073F060DCD0FFEA47827C797C79A3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,7 +420,7 @@ World Racing 2 / World Racing 2: Предельные обороты [Ru/En] (Re
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,7 +446,7 @@ Aven Colony (2017) [Ru/Multi] (1.0) Repack Covfefe
 magnet:?xt=urn:btih:FC5D68DE696B3B6AABF55B6B954E7E4D3AECF2F8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,7 +474,7 @@ Defender of the Crown перенесет вас в эпоху благородн
 magnet:?xt=urn:btih:3AC659DAC33080BE797DFA1119892F2D4BA4DFC2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,7 +501,7 @@ Electro Man (1992) [En] Repack R.G. Games
 magnet:?xt=urn:btih:C4BD825A51A060CCAC784B8B0E06B0D0BFF6CEB1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -533,7 +533,7 @@ Max Payne Дилогия [En/Ru] (RePack) 2001-2003 | R.G. ReCoding
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,7 +560,7 @@ Pike: Operacija Gromoverzhec / Pike: Операция Громовержец (19
 magnet:?xt=urn:btih:DFD63216D0084B2342ED09D5AA86D820B9F5896A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,7 +586,7 @@ Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
 magnet:?xt=urn:btih:12B9C3206E6A181E60C4AD75A878638A8641C0B4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,7 +612,7 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 magnet:?xt=urn:btih:946DBFE5961F41CFDF0B9C81EA703FC2EFD40968
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,7 +638,7 @@ Lord of Magic / Владыки Магии (1997) [Ru] RePack Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,7 +664,7 @@ Worms Armageddon / Worms: Армагеддон (1999) [Ru/Multi] (3.8.1) Repack 
 magnet:?xt=urn:btih:143D158352DBE33AD592AD589F9C5B40051DC3CC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,7 +690,7 @@ Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) Li
 magnet:?xt=urn:btih:8A2960F2019029BF03ECE8A2163913332EF110C4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

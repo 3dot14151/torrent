@@ -21,7 +21,7 @@ Tex Murphy: Under a Killing Moon [En] (RePack) 1994 | Pilotus
 magnet:?xt=urn:btih:19748D680E5A3DFC2C635BBFE4E4A34349EBA9DD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ The Suffering Дилогия [Ru] (RePack) 2004-2005 | R.G. ReCoding
 magnet:?xt=urn:btih:28D90D8FAC5CF701BF1F7E26115080BFF074EC36
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ MechCommander Gold – фантастическая стратегия в реа
 magnet:?xt=urn:btih:42F54CA98187323615D8E1010C2034183072A7B5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Real War [Ru] (L) 2001
 magnet:?xt=urn:btih:33E6507056BCFC16DB7751CE9FA3642E26C6DD0B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Traffic Giant - продолжение серии GIANT, благодаря ко
 magnet:?xt=urn:btih:5C3F6E9189B4ACF8315814C51AC63CFA135795BC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ War World: Tactical Combat / Планета Роботов: Вечная вой�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Stargunner [En] (RePack) 1996 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Blood - кровавый 3D шутер от первого лица, созда�
 magnet:?xt=urn:btih:ED8CCEA05493F893538729AA1D07AEF8BFE11863
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ NetStorm: Islands at War - оригинальная стратегия в реа
 magnet:?xt=urn:btih:DB41DE50BA00E7CBDE4A8CFBA4D9631A674D4824
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,7 +255,7 @@ System Shock 2 - продолжение ролевого 3D шутера на у
 magnet:?xt=urn:btih:B18EC63B59259A14142EFD0BB45B65ED04BCFBF3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,7 +281,7 @@ Star Control II - удачная связка квеста, аркады и ст
 magnet:?xt=urn:btih:7D77B2A51B2F8F6D723F8E3866BC67B3A0B7680B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,7 +308,7 @@ Scotland Yard (1998) [Ru] Unofficial
 magnet:?xt=urn:btih:21815E3A40F5C34CD52B5FE1AF0C399CA60A6EBF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,7 +336,7 @@ Evidence: The Last Report (1996) [Ru] R.G. Kirill Games
 magnet:?xt=urn:btih:32D22A80000B693FAE33582F8A7E731833714A6F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,7 +362,7 @@ I - Ninja / Я - Ниндзя [Ru/Multi6] (L) 2005
 magnet:?xt=urn:btih:B626D3087B09C4C77C095C5322386C6F1EA70B21
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,7 +389,7 @@ Tzar: The Burden of the Crown / Огнём и мечом [Ru/En] (RePack) 2000 |
 magnet:?xt=urn:btih:98682A4202060E7A3F23BBDB5864D35619B2007E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,7 +415,7 @@ Peter Jackson's King Kong (2005) [Ru/Multi] (1.0.0.1) Repack R.G. Механик
 magnet:?xt=urn:btih:B3359E55DB46CB4277DDFFDF05281DE5DEA1CA51
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,7 +441,7 @@ Delaware St. John Volume 1: The Curse of Midnight Manor / Охотник за п
 magnet:?xt=urn:btih:C4CEFCC65AF094A9DBCCEC8662C7EF62E5F7C4B0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,7 +469,7 @@ Barnyard / Рога и копыта (2006) [Ru] (1.1) Repack Табличка
 magnet:?xt=urn:btih:E80885317CE9C093893EE7B139CD842B9174BB4B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,7 +496,7 @@ Robo Rumble это 3D стратегия реального времени. В �
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,7 +523,7 @@ SimTower: The Vertical Empire [En] (Rip) 1995 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,7 +550,7 @@ Soldier [Ru/En] (Rip) 2000 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,7 +577,7 @@ Pompei: The Legend of Vesuvius / Помпеи [Ru] (RePack) 2000 | RG Games/Pilo
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,7 +603,7 @@ Traffic Giant — продолжение серии GIANT, благодаря к
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,7 +631,7 @@ Corsairs: Conquest at Sea [Ru] (Rip) 1999 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,7 +658,7 @@ Faust: The Seven Games of the Soul / Фауст - Семь ловушек для
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,7 +684,7 @@ Outlive: Robotics versus Genetics [Ru/En] (RePack) 2001 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

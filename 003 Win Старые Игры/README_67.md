@@ -19,7 +19,7 @@ Shanghai Dragon [En] (RePack) 2003 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Anno 1602: Creation of a New World – экономическая стратег
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Extreme Assault [Ru] (RePack) 1997 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Moonbase (RePack) [En] 1990 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,7 +124,7 @@ Command Adventures: Starship [En] (RePack) 1995 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,7 +150,7 @@ Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
 magnet:?xt=urn:btih:88B623F901792936E77F503324DC172A2C0A4C32
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,7 +176,7 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 magnet:?xt=urn:btih:24D92F7A47C51AA704EB5713FF3AB9207E954B60
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,7 +202,7 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 magnet:?xt=urn:btih:A5AD6AF61E6F891FADEB72599820BB730510D9B8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,7 +228,7 @@ Comanche 4 представляет собой вертолетный симул
 magnet:?xt=urn:btih:C8CDA0F6E75434BE64342F616717AC69A92E8E1A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,7 +254,7 @@ Challenge of the Five Realms (RePack) [En] 1992 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,7 +280,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 magnet:?xt=urn:btih:17675A70AFD6069E2009300EB91D7A0B2D84CF56
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,7 +306,7 @@ MechCommander Gold – фантастическая тактика в реаль
 magnet:?xt=urn:btih:BE7256AF0B3BA363383E046492437E3E13AFDDB1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,7 +332,7 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 magnet:?xt=urn:btih:EF184C3EC743A49287643A6DC342F9E35B97431D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,7 +358,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 magnet:?xt=urn:btih:119EEE06B95985C767E80F71DD41A5A6AD38E86A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,7 +384,7 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:18334F411FDB886925E4CF3B8A9F03DC401ECADA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,7 +410,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 magnet:?xt=urn:btih:78152529C43D3A3F2F9BCED16C391330A318034F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,7 +436,7 @@ Dracula: Origin раскрывает темные начала прокляти�
 magnet:?xt=urn:btih:F9C2D3575A5B97CB3986101AE9848CD26446C76C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,7 +462,7 @@ Warhammer: Mark of Chaos (2006) [Multi] (2.14/dlc) License GOG [Gold Edition]
 magnet:?xt=urn:btih:379AC3BC96DB59882FF6205BB49D97D8C8390448
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,7 +488,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 magnet:?xt=urn:btih:F702B2B71AFFACC42B364041F93D7F393C1E2ED2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,7 +514,7 @@ Darkest Hour - самостоятельное дополнение для игр
 magnet:?xt=urn:btih:F4003095AC7369DCD82A6BFAAF68BECCF6D11B0A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,7 +540,7 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 magnet:?xt=urn:btih:1C1EE8A343B3172B9D3E7F45C1FF7E88992A001A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,7 +566,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 magnet:?xt=urn:btih:D96A151A24C218B9162C80F9F7C083DAF6FC1EA9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,7 +592,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 magnet:?xt=urn:btih:4BD531019C344172234D7B8F390F0B4881D58935
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,7 +618,7 @@ Tom Clancy's Splinter Cell (2003) [Multi] (2.0.0.12/dlc) License GOG
 magnet:?xt=urn:btih:71A27F11EA19BCCE33D6CA21383DEE3EE3656844
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,7 +644,7 @@ A Golden Wake может заинтересовать любителей ста�
 magnet:?xt=urn:btih:1142055515C93C35768CF3D62B1865E132EEEB57
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,7 +670,7 @@ Freedom Fighters (2003) [Ru/En] (1.0.0.4490481) License GOG
 magnet:?xt=urn:btih:E42B1E9443F0791EBC79B180053F8D452BD143E6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

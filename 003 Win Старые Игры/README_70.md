@@ -19,7 +19,7 @@ Strike Commander, видеоигра в жанре симулятора боев
 magnet:?xt=urn:btih:DAF7D27201E7B442A5B0FE99FAC39968E3A2F39C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Driver: Parallel Lines (2007) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:3B3A7155E34443421ECC522872C08E0ED2238611
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ The Manhole: Masterpiece Edition открывает перед каждым иг
 magnet:?xt=urn:btih:091BC9379F8F15937AC922E9CCF5D9D945708692
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Arsenal of Democracy: A Hearts of Iron Game - стратегия, предста
 magnet:?xt=urn:btih:B0EC24BC666E453229FC5716DBA30A75DE87624D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Spells of Gold - ролевое приключение, события кото�
 magnet:?xt=urn:btih:38ADF72C5A393CF4A0BE05C7F4D53A6905F9DC41
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Hotel Giant (2002) [Multi] (1.0.0.0) License GOG
 magnet:?xt=urn:btih:A78960BDF50C9256BFACD75C6602035F1EEADA3B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Star General (1996) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:38DE8C00AEE2115EB0DD83221208B36D767848DD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Twinsen's Little Big Adventure 2 Classic – это экшен приключе�
 magnet:?xt=urn:btih:1474C2F196C4D2D46A49C4D2270A8F002346376B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Industry Giant (1997) [En] (1.0.0.0) License GOG
 magnet:?xt=urn:btih:7A71F705202EEB8EC9C6FA80FF2B27CB3BEF184C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Die Wilden Kerle 5: Hinter dem Horizont / Тайна заброшенной фа
 magnet:?xt=urn:btih:C9CAC286B91FC6AB7E8FA14698C90644FC26697A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 magnet:?xt=urn:btih:49BCB6088C35195C8C73D69F35E64BFF743CF6B0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Secret Agent (1992) [En] (1.0) License GOG
 magnet:?xt=urn:btih:6535BF87F9BDB3B7719AE565C9B627757B88F966
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Search & Rescue 4: Coastal Heroes / Служба Спасения: Берего�
 magnet:?xt=urn:btih:763FD8B0F636A08C7924F453F41E3EFFF590589C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Warhammer 40 000: Chaos Gate (1998) [Ru] (1.2 Hotfix 3) Repack Other s
 magnet:?xt=urn:btih:265E1D369BAF6D32BA13695FC5573D39E17AEC61
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Styrateg / Западная граница (2006) [Ru] (1.0) License
 magnet:?xt=urn:btih:DB12AE2131432E108EC332661E0BC06834005905
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Shadow Flare (2002) [En] (1.0) License
 magnet:?xt=urn:btih:FD1C346A347EEC60B0C11866B567FB307CFED840
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 magnet:?xt=urn:btih:F33387F1819AD1A5B3982710C68DF2F8E514B83B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 magnet:?xt=urn:btih:0E5345CAAFB3D97FBA5FEE09E010F6B583574017
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ Wolfenstein: Enemy Territory - это бесплатный многопольз�
 magnet:?xt=urn:btih:0C718F7CF8DC5B0109289861B047C4E12651BC27
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.0
 magnet:?xt=urn:btih:F09F9BD5F75396AE9DBB220C1410B6DE252696E2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ El Matador (2006) [Ru/Multi] (1.1) License GOG
 magnet:?xt=urn:btih:E56F1C56B251BE9D20ED89538612461BB3333028
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 magnet:?xt=urn:btih:BF377F4CC96C6A149B9A20CA2FB4733A6108737C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:CAF2391A085175863DDC654EFFF5FDB613EEBBE0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ Diggles The Myth of Fenris (2001) [Ru/Multi] (2.1.1.10/dlc) License GOG
 magnet:?xt=urn:btih:0A6C77E9ECD6FF90187BD7F1D6B692ECB4F83BBB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:E7FA17AEDA5F8F3938BA0DB8109C41894E737D71
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ Victoria 2 – масштабная компьютерная игра в жан�
 magnet:?xt=urn:btih:9DD4390CABAFF1E25727B824F3BED26D4369C0C7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

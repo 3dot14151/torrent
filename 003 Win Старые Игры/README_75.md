@@ -19,7 +19,7 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 magnet:?xt=urn:btih:8A3D76222F28ADA0DD058227C11B77D774DA9DFA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 magnet:?xt=urn:btih:D9D5DB435FCAE85F7366904A2F63EDE67785F0B8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Big Fish Games Universal Crack / Активатор игр Big Fish Games (2016)
 magnet:?xt=urn:btih:D219A3BD667D98EE9735D5EF4CBE7498A69EBEEC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Star Wars: Jedi Knight: Mysteries of the Sith — самостоятельно �
 magnet:?xt=urn:btih:E1D5070529229275A3E4A55110B70061D97B6160
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Star Wars: Jedi Knight - Dark Forces II (1997) [En] (1.01) License GOG
 magnet:?xt=urn:btih:8C5A8D26887C6035DE00925F01E6BF2119E4E2E7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:BE86A001793E25C416A3AA1FC2EB29A51B61A552
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Hunting Unlimited 3 (2004) [En] (1.0) License ELEGANCE
 magnet:?xt=urn:btih:2D65EBA517E4E86826BD2A8800C5E3C8FB0C8947
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Hunting Unlimited 4 - симулятор охотника, являющийся 
 magnet:?xt=urn:btih:6BE3B739C58629D49AAE856522350404B2D05A16
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ DethKarz (1998) [En] (1.0) License GOG
 magnet:?xt=urn:btih:99A77CB951DE0DEB7381E140F4BD14B6CFD513F7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Red Faction (2001) [En/Ge] (1.21) License GOG
 magnet:?xt=urn:btih:7A9FA8137B4295CB6D13C654C83BC3B1B2B1B68A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ RollerCoaster Tycoon (1999) [Multi] (1.20.015/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:CBC3225FE030F179890EECD778B68E90277CF618
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,7 +308,7 @@ Eternal Darkness: Sanity's Requiem (2002) [Ru/En] (1.0.0.1) Repack Ma2012ks
 magnet:?xt=urn:btih:2EE99633845238C1F8A456970EF030EB6D084435
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,7 +334,7 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 magnet:?xt=urn:btih:94BA4D2750C6883972DE53E683D0551579FE23F5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,7 +360,7 @@ Hunting Unlimited 2 - симулятор охоты от компании SCS So
 magnet:?xt=urn:btih:55C87BA7B46425594067147449AFC7556C4534DD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,7 +386,7 @@ Titan Quest: Immortal Throne (2007) [Ru] (1.1) License [Expansion Pack]
 magnet:?xt=urn:btih:EB35DAB4CE4CCFF5CBCB07200E44ADE08A439C74
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,7 +412,7 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 magnet:?xt=urn:btih:AB1A4C12B6E03B733326393D2BB53A65DFEAC70F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,7 +438,7 @@ Nexus: The Jupiter Incident - это культовая научно-фанта�
 magnet:?xt=urn:btih:D8DCBAD0D92115A390FA9297A46751577CEFCE9A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,7 +464,7 @@ FlatOut 2 — это аркадный автосимулятор с акцент
 magnet:?xt=urn:btih:4FE321F247CBD5A54817B6DDE63D31CAF337C603
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,7 +490,7 @@ STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
 magnet:?xt=urn:btih:66EEAA45608A90AAA5F118D66E1E52DF327BC2EE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,7 +516,7 @@ Crysis - первая игра в популярной трилогии, дух�
 magnet:?xt=urn:btih:8569ADE2EEEABD58030C4DDC5621EF991B1B14E2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,7 +542,7 @@ S.W.I.N.E. / С.В.И.Н. [Ru] (Repack \ 1.4) 2002 | LandyNP2
 magnet:?xt=urn:btih:4D53D6351204B4CEB08AC04603741F89F94B5E58
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,7 +569,7 @@ Millennium: Return to Earth [Ru] (RePack) 1991 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,7 +597,7 @@ Dark Angael [En] (RePack) 1997 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,7 +623,7 @@ Breach Антология [En] (RePack) 1987-1995 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,7 +649,7 @@ El-Fish [En] (RePack) 1993 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,7 +676,7 @@ Merchant Prince [En] (RePack) 1993 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,7 +19,7 @@ Albion (1995) [Ru/En] (1.0) License GOG
 magnet:?xt=urn:btih:E717A72C93AA988B0CE6D7DD42F1C467D319DD75
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Obscure Дилогия [Ru/En] (RePack) 2005-2007 | R.G. Механики
 magnet:?xt=urn:btih:33676276652BA4CAEB74C0A007146E667CF9E7BF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Alien Earth – классика жанра, действие которой р�
 magnet:?xt=urn:btih:52272C3E08FB5DB2D08AA493222FFCFB410906CA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Sam and Max: Hit the Road [Ru/En] (RePack) 1993-2002 | Pilotus
 magnet:?xt=urn:btih:BCD66CCCF8F9F178C2D5CBD464121E4742285BCA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ First person shooter, действие которого разворачивае
 magnet:?xt=urn:btih:15409DB727EE6C6DD9B775B305C0AD05583CA96D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Fate [Ru] (RePack) 2005 | Pilotus
 magnet:?xt=urn:btih:329E07293F722C01BE87074D7CD9D4C0277FD4EA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:B7DAA3B793BF5E960670D0026799DC66C9EE5EF7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,7 +228,7 @@ Odium / Горький-17: Запретная зона [Ru] (RePack) 1999 | Pilo
 magnet:?xt=urn:btih:87DB74E69C475C9310D4C36A27885F6617ECA632
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,7 +254,7 @@ Z: Steel Soldiers / Z: Стальные парни [Ru] (P/1.30) 2001
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,7 +280,7 @@ Overclocked: A History of Violence / Overclocked. Оправданная жес�
 magnet:?xt=urn:btih:33B212E60F3D143B7B63935D1439026CB4FE1575
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,7 +306,7 @@ Painkiller Overdose, самостоятельное дополнение к во
 magnet:?xt=urn:btih:EFE9E0AF10617B0E7723612A240BFE47CBE09D60
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,7 +333,7 @@ Speed Thief / Угнать за 40 секунд [Ru] (RePack) 2001 | RG Games/Pi
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,7 +359,7 @@ Syberia / Сибирь Антология [Ru/En] (RePack) 2002-2004 | R.G. Cata
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,7 +385,7 @@ Moto Racer (1997) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:9B17649A009E7BDF9D48F4BD84CF2523B9D238C9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,7 +411,7 @@ MegaRace 3 (2001) [En] (1.0) License GOG
 magnet:?xt=urn:btih:A1067A22101B036A860355F9E0DEF7731CDB6152
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,7 +437,7 @@ Spells Of Gold / Заклятие [Ru] (L) 2002
 magnet:?xt=urn:btih:7CA79CD005FAA2DCE254F7BCB64D0A1E9181961F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,7 +463,7 @@ Sky Break (2016) [Ru/Multi] (1.0) License HI2U
 magnet:?xt=urn:btih:1AE187BC25BC25D362204A53F281DBE29E2A0382
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,7 +492,7 @@ Grand Theft Auto: Vice City Long Night Zombie City (2005) [Ru] (1.0) Mod Hellfis
 magnet:?xt=urn:btih:A4D2AB8258E6A92CD5C7D8B12AD1B9E52984C514
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,7 +518,7 @@ Dino Crisis Дилогия [Ru] (RePack) 2000-2002 | R.G. Механики
 magnet:?xt=urn:btih:D5B586906640A0D7CB5F7243FED01D354689A9A6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,7 +544,7 @@ Moto Racer 2 (1998) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:CB593E2C20E7FFE3656B9C3CA38AAF89A9EEDA78
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,7 +570,7 @@ AGON: The Mysterious Codex / AGON: Бесконечное приключение
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,7 +599,7 @@ Economic War / Political Tycoon / Экономические войны [Ru] (Ri
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,7 +625,7 @@ Spells Of Gold / Заклятие [Ru] (RePack/1.4) 2002 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,7 +652,7 @@ Project Nomads / Проект Бродяги (2002) [Ru/En] (1.2) Repack R.G. Ca
 magnet:?xt=urn:btih:555270CD04CB32C888AF7C03C59D5D8DF77D52FA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,7 +678,7 @@ Interstate'76 [Ru/En] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:37DA808CA3DED10F55A11F956678D40ABDA695B1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

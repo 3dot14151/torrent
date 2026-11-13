@@ -19,7 +19,7 @@ Dungeon Keeper KeeperFX (2008) [Ru/Multi] (1.3.0) License/Mod GOG
 magnet:?xt=urn:btih:37B8FA6148DFED1EDBEAF3F65DA828ECF71F4B3B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Medieval: Total War (2002) [En] (v1/dlc) License GOG [Collection]
 magnet:?xt=urn:btih:668369CDE4446D449DEF5D8B03C63A8441B3288A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Rome: Total War (2004) [En] (v1/dlc) License GOG [Collection]
 magnet:?xt=urn:btih:70B395F219A69CF2DE4BAF3E5665C897990FCAB9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Rome: Total War - Alexander - второе официальное дополне
 magnet:?xt=urn:btih:2C6294D8B3C28EAED037DF269808C40EECED0D72
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Total War: MEDIEVAL 2 – Definitive Edition - это конечная верс�
 magnet:?xt=urn:btih:2DC9CEF23180B713162C2AB39CA4290DBBF36504
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Total War: MEDIEVAL 2 – Definitive Edition - это конечная верс�
 magnet:?xt=urn:btih:275F1D8378471F376030342EF64DB011E39DDEBA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 magnet:?xt=urn:btih:BF7FF018AB047C65300EDF6B93EE589E16C9C25F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Shogun: Total War – это стратегический симулятор к�
 magnet:?xt=urn:btih:18C212DF2E25A617ADE36640079C652A5AF4BBF1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ ECHELON (1988) [En] (3.40) License GOG
 magnet:?xt=urn:btih:82FCBCDD6CE0BBBCE5EC2137F923A08B54B2E331
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Airborne Ranger (1988) [En] (441.01) License GOG
 magnet:?xt=urn:btih:2CFE6A796E2254961A3B3192D64082CC1A7F3D9E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Redline: Gang Warfare 2066 (1999) [En] (1.1) License GOG
 magnet:?xt=urn:btih:E548BDFB530DCE578F484430F0BFB5CB49068128
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Warhammer: Dark Omen (1998) [Multi] (1.6) License GOG
 magnet:?xt=urn:btih:E8931202D5D6DD934C0B68AE600CE86D21076478
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Syndicate Classic Dilogy / Syndicate Plus / Syndicate Wars (1993, 1996) [Multi] 
 magnet:?xt=urn:btih:E70137109BBFE2F9F809142240AC9CF930EBDC3A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Realmz - это фэнтезийная приключенческая ролев
 magnet:?xt=urn:btih:32BF2F93A11D50E7356E4CE72A7D3A84538A3F43
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Shadow Vault / Shadow Vault: Зона теней (2004) [Ru] (1.0.28) License М
 magnet:?xt=urn:btih:CC8F11DEFEECC91932DF6A4150010302E3A65B6E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Gothic 2: Golden Gate / Готика 2: Золотые Ворота (2014) [Ru/E
 magnet:?xt=urn:btih:667268AEBDE416B285789E4937815CA6F2B7EF54
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Golden Gate 2: Goddess Heart / Золотые Ворота 2: Сердце Бо�
 magnet:?xt=urn:btih:4B4FEB0A6BE00DF072D16E76C42A11CC2D0B6B59
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ UnReal World - это уникальное сочетание ролевой и�
 magnet:?xt=urn:btih:D6605B33322C92BB790140844D707887DF777BE5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ Geneforge 5: Overthrow - это ролевая приключенческая и
 magnet:?xt=urn:btih:6530BDD756C071EE16E1932297A08B850E73534A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ Geneforge 4: Rebellion - это приключенческая ролевая и
 magnet:?xt=urn:btih:7BDE4411F9B78E7A221F5408DE59966E93F78CA0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ You Are Empty (2006) [Ru] (1.2) Repack Other s
 magnet:?xt=urn:btih:F2DEF7880A1158413FCACD50504FA46DF6D8C3A1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ Geneforge 3 - это приключенческая ролевая инди-иг
 magnet:?xt=urn:btih:3CE162F175B9E1BD1DE3DD8CBF40D6A1AB7C4F61
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ Galador: The Prince and the Coward / Галадор: Проклятие Прин
 magnet:?xt=urn:btih:964FBF672399110B894A8CC5C270D966CD04FB00
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ MechWarrior 5: Mercenaries — это шутер от первого лица, �
 magnet:?xt=urn:btih:FA4AC65032C8205FEC946BAE1F8411C26181C951
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
 magnet:?xt=urn:btih:AFE229AD67E24E7F38F0E00E512571AE555E8AE0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
 magnet:?xt=urn:btih:2D96A43195C51ED679CD899C31EE29F88CC2AEF3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

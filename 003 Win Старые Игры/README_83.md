@@ -19,7 +19,7 @@ Port Royale / Port Royale [Ru] (RePack) 2003-2004 | RG Games
 magnet:?xt=urn:btih:1C6BC692E9F2BDF7B2528734B12F4D8E7609290D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:A9CEF10325986D2617CF29C5F9A8498320DEA6A8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -103,7 +103,7 @@ Broken Sword 3: The Sleeping Dragon / Сломанный меч 3: Спящий 
 magnet:?xt=urn:btih:75DFFB813500031D700BBD7ED6034A57B11FD899
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,7 +129,7 @@ Earthworm Jim 3D [En] (P) 1999
 magnet:?xt=urn:btih:5048065ECCDC89C2BEA78C0AFF28DAE102B2C72E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -156,7 +156,7 @@ Mysterious Journey: Schizm / Щизм: Мистическое Путешеств
 magnet:?xt=urn:btih:6BADB7397F2A76DA6C38F6DCFA56C5917FF72C74
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,7 +182,7 @@ Tonka Construction это строительный симулятор для д�
 magnet:?xt=urn:btih:A52B1CB3CA42C6528A138A818C0F6ABDD8A1D9E7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,7 +208,7 @@ Need for Speed 3: Hot Pursuit [En] (P) 1998
 magnet:?xt=urn:btih:DA02B9FFBE54AB1938027EDCDAA2017BEFE3F82B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,7 +234,7 @@ Ultima 7 The Complete Edition [En] (L) 1992 | GOG
 magnet:?xt=urn:btih:AACD8D935FF3CE077E1A2CF3F684343E1E19ED44
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,7 +260,7 @@ Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
 magnet:?xt=urn:btih:3B5E136759B22772B164727689CB5837D52B7F50
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,7 +286,7 @@ Fable / Сказание [Ru] (RePack) 1996 | WinterKiss
 magnet:?xt=urn:btih:CB61AF12057C96DAD09E4DA9A2AAA6ACE8C2EAF8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -312,7 +312,7 @@ Need for Speed: Special Edition [En] (RePack) 1996 | WinterKiss
 magnet:?xt=urn:btih:693DF2C4805236DA98F9D19F31F5371FCDF108BE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,7 +338,7 @@ Primal Rage — это традиционный двухмерный файти�
 magnet:?xt=urn:btih:CACEBF8F2ED92594B7D00DCDDDAFAF6E1775CDB0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,7 +365,7 @@ Re-Volt [En] (RePack/1.2b11.0208) 1999 | pe4enko
 magnet:?xt=urn:btih:BB96D5E66275622317D676A2E063EC47FB87B9AB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,7 +391,7 @@ Medieval Conquest / Герои и чудовища (P) [Ru] 2004
 magnet:?xt=urn:btih:35232BEF2B11A21542D1C3974B51159B3AC5B90D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,7 +418,7 @@ The Thing [Ru] (RePack) 2002 | Pilotus
 magnet:?xt=urn:btih:1CB8275FF4A3C8AB855850317B6E2155320A2D3A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,7 +444,7 @@ Salammbo / Саламмбо [Ru] (L) 2003
 magnet:?xt=urn:btih:BA03A00AD5D309881DF1465670F3086D56EED795
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,7 +470,7 @@ Alpha Black Zero: Intrepid Protocol / Группа «Альфа-Ноль» [Ru] 
 magnet:?xt=urn:btih:8777FB8F78FA61F07B2383B5A5C8502396D34CB3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:2550C8B3932828FFB707365905E830C3833D520B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,7 +524,7 @@ Dragon Throne Battle of Red Cliffs - стратегия от китайског�
 magnet:?xt=urn:btih:FC98215FF286032FE15F6027B322B46510389E33
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,7 +550,7 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 magnet:?xt=urn:btih:4DB5DBBCB0756152282E40798598C445F7B380C0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,7 +576,7 @@ Evil Days of Luckless John / Сорвать куш [Ru] (L) 2006
 magnet:?xt=urn:btih:DE3E8F49538EA7E6F0A7265B8BCD11E92C8407A9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,7 +604,7 @@ Nancy Drew: Ghost Dogs of Moon Lake / Нэнси Дрю: Псы-призраки
 magnet:?xt=urn:btih:3A88AC2F2196DE8B6CA197BFCB48C4B872257520
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,7 +631,7 @@ Riven  - это сиквел оригинального Myst. Сюжет игр�
 magnet:?xt=urn:btih:BD2CFE8334BCAE9DE0A7F17A9C8FDD210D53076E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,7 +658,7 @@ Myst 4: Revelation [Ru] (RePack) 2004 | Pilotus
 magnet:?xt=urn:btih:8E6B06A6EDD642115DD34763DFBB142C03C91AC9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,7 +685,7 @@ Myst III поразит Ваше воображение. Каждый из 5 м�
 magnet:?xt=urn:btih:55DC63EC6B1B7E18FEE2257E22450738AB3C862C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

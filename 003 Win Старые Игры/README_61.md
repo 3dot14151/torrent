@@ -19,7 +19,7 @@ Earth 2160 / Земля 2160 [Ru/En] (RePack) 2005 | Sash HD
 magnet:?xt=urn:btih:18212E13E483C4A417FFD583970BF74B0116B7F9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Afterlife (1996) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:047AE690D50DCD0C9B43364B1D02D942457751FE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Might and Magic 8: Day of the Destroyer (2000) [En/Fr/Ge] (1.0) License GOG
 magnet:?xt=urn:btih:BE386AE4B809D451A22546D6E5069EC75607E189
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Outlaws (1997) [En] (1.0) License
 magnet:?xt=urn:btih:BB01038EF184C8D11840BFA4BA3F87AE17E8E3A7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:3F30A0D9671110DA0619BEA1B3E9074F450E9903
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Evolva / Evolva: Риск заражения [Ru] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:81A5E9A516D99802A9F4B1FC063B2B7E79C1FA9C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Deus Ex: Invisible War [Ru/En] (RePack/1.2) 2003 | MOP030B
 magnet:?xt=urn:btih:84CF7970F1BC92EB6F7BB46111AB4E10157E03D9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Jurassic War (1997) [Ru] (1.05) Repack R.G. Games
 magnet:?xt=urn:btih:50A6C8C712431CF7EB1A36FE3C08BE5667AB80F6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Evolution: The Game of Intelligent Life (1997) [Ru] (1.0) Repack R.G. Games
 magnet:?xt=urn:btih:B27964C78F0AF8400F0EB7499E9A221DF2FE0C5B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Chronicles of the Sword [Ru] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:195B6DDF03683A30F1059ABA4AD9F493931B22A4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Mageslayer - аркадная бродилка с бешенным драйво�
 magnet:?xt=urn:btih:5BE53F7D9E145297036640068546E8AEE9F1BF34
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ I.G.I. 2: Covert Strike (2003) [Multi] (1.3.0.0) License GOG
 magnet:?xt=urn:btih:ED1458642ED4144E9FBD523FEEF40E86AF3B07B0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Gambling Tycoon / Activision Casino (L) [En] 2001
 magnet:?xt=urn:btih:76AFA1D56F3FBBDB6B13B355460FA3EE86345507
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,7 +358,7 @@ The Dark Eye [Ru] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:A5A130B5D22256FA5831654A044D62803DEEAD00
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:6DF09EABE7B2AB06EECBB760DEC974130A26B0DC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,7 +410,7 @@ Metal Fatigue - RTS, которая сосредоточена вокруг ог
 magnet:?xt=urn:btih:96BE7AD8FFFADC80BF327AF7FDAAD1347B354726
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,7 +436,7 @@ Emperor: Rise of the Middle Kingdom [Ru] (Rip) 2002 | Pilotus
 magnet:?xt=urn:btih:AB2A2D5DE63B7DDF6BB60317620385E7DE057011
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,7 +462,7 @@ F.E.A.R.: Brutal Force [Ru] (Lossless RePack/Add-on/1.08) 2007 | MAJ3R
 magnet:?xt=urn:btih:3263A1609D36E11EB9D170ADB279B07F0B6E7BDC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,7 +488,7 @@ Arthur and the Minimoys / Артур и минипуты [Ru] (RePack) 2007 | MO
 magnet:?xt=urn:btih:46ECE19C6977F4AEE926A5AE14CC42743AABDD11
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,7 +514,7 @@ Sensible Soccer 2006 (2006) [En] (1.0) License GOG
 magnet:?xt=urn:btih:02C85232B2B4CF7086718CEA81B03D593DD4E1C4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,7 +540,7 @@ Dream Pinball 3D / 3D Пинбол. Во власти азарта (2006) [En] (
 magnet:?xt=urn:btih:89CF89729076D6F4AAF2B86201EAA5CBF0381404
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,7 +566,7 @@ Oddworld: Abe's Exoddus (1998) [En] (2.0) License GOG
 magnet:?xt=urn:btih:17A856B5B87EC4A909E97F99835B42511C3D445D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,7 +592,7 @@ Bumper Wars [Ru] (RePack) 2002 | Pilotus
 magnet:?xt=urn:btih:9BD5077F27EBD241EC69694A6104DF1DFECD31C9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,7 +618,7 @@ Outdoor Life: Sportsman's Challenge  / Особенности спортивно
 magnet:?xt=urn:btih:46DE2480FD757CAAAD6FC39DC804D6914CBC1B8B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,7 +644,7 @@ Cabela's African Safari [Ru] (P) 2006
 magnet:?xt=urn:btih:162644E0C4B51759239844A52BF34BC5CDC074FE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,7 +671,7 @@ Battlezone 2: Combat Commander - продолжение культовой RTS/F
 magnet:?xt=urn:btih:E1E10B8CC0CB37C5DAC0DDAE0F2B3C8B620AEE7A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

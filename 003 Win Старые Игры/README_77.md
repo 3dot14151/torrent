@@ -20,7 +20,7 @@ Bad Milk [Ru] (P) 2002
 magnet:?xt=urn:btih:0B04B25564270D466410157F817B0B3FC4C770BB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,7 +48,7 @@ The Polar Express / Полярный Экспресс [En] (RePack) 2004 | R.G. 
 magnet:?xt=urn:btih:1EFB522D9B9B3E3BEA0F5E50F53070048897B007
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,7 +75,7 @@ Spec Ops: Rangers Lead the Way [Ru] (P) 1998
 magnet:?xt=urn:btih:26A660D4FC24893921003452EE5FAD425F657EC7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,7 +102,7 @@ Interstate '82 [Ru/En] (P) 1999
 magnet:?xt=urn:btih:7CFC29F39F168351007C28C23FAA5C0CCFEF3FA7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -129,7 +129,7 @@ Freedom Force - тактическая стратегия в реальном в
 magnet:?xt=urn:btih:F922049166AC9C155BC41BA89D56375AC968B7DF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,7 +155,7 @@ Roller Coaster Tycoon - игра позволяющая вам почувств�
 magnet:?xt=urn:btih:FEEBC940354E9304411D139F531FB25C0ABFD4AF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,7 +182,7 @@ Spec Ops 2: US Army Green Berets [Ru/En] (P) 1999
 magnet:?xt=urn:btih:C25702FB443B2980779E9ED233596FCB1EB92BBD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,7 +209,7 @@ Crusaders of Might and Magic / Крестоносцы меча и магии [Ru
 magnet:?xt=urn:btih:FBAAB9CA6FCC357BC4B7AE9387731F55FB142A61
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -236,7 +236,7 @@ Black and White: Creature Isle [Ru] (P) 2002
 magnet:?xt=urn:btih:39BD5B72AAA52F79BACA5C6EE2CE4C013AF9AB03
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,7 +262,7 @@ Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
 magnet:?xt=urn:btih:17CF132198DF4D80072ED7AEF92CB849F3753804
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,7 +288,7 @@ Star Wars: Force Commander [Ru] (P) 2000
 magnet:?xt=urn:btih:E4DFBFFC75FBDADAE99CF3ED2076003CFD0A5DDC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,7 +318,7 @@ Trains & Trucks Tycoon запросто может претендовать на
 magnet:?xt=urn:btih:40B9F47E34FBFFDD326EDDE112BF1E225FC29C7A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -352,7 +352,7 @@ Enclave [Ru/En] (RePack) 2003 | R.G. Catalyst
 magnet:?xt=urn:btih:A82C7CA81B17AE1AD9C6BFDCD1ECA0BAFAE25462
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -378,7 +378,7 @@ Bet On Soldier: Антология [Ru/En] (P) 2005-2007
 magnet:?xt=urn:btih:9F3CDF18A45C51127452880B2E7633E6ED583F64
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -404,7 +404,7 @@ Star Trek: Starfleet Command III (2002) [Ru/En] (1.00) Unofficial
 magnet:?xt=urn:btih:CE2BF77E265CCA5AE69F022BA7257D303C58482F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -430,7 +430,7 @@ Combat Mission: Beyond Overlord / Линия фронта. Нормандия (2
 magnet:?xt=urn:btih:4FB52E6CED79FF14F6D8C956C0DEF968EF4BAA72
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -456,7 +456,7 @@ Need for Speed Carbon – экшен гонки с открытым игровы
 magnet:?xt=urn:btih:B27411D8F197E65944B181F1E6544BDD5795A36D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -482,7 +482,7 @@ Need for Speed Most Wanted – легендарная часть NFS, в кот�
 magnet:?xt=urn:btih:15B0C82FB21CBE5C56E2647BF572D63335DF37B7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -508,7 +508,7 @@ Need for Speed: Underground 2 - это аркадный гоночный сим�
 magnet:?xt=urn:btih:2DC07E7106EA1E8CC8FB5D6C2AFE7B618B514898
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -534,7 +534,7 @@ Need for Speed: Porsche Unleashed – одна из лучших игр сери
 magnet:?xt=urn:btih:59033D3B40561934DA9D8FADDFE6D045AE9E0667
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -560,7 +560,7 @@ Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
 magnet:?xt=urn:btih:CA222026170E98282C9D9517109FF0EC1CBE671E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -586,7 +586,7 @@ Holiday Hare 2023 - это своего рода дань уважения кл�
 magnet:?xt=urn:btih:0D791ABAECD182234DBFC91D79B3D8E370DBE077
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -612,7 +612,7 @@ Heroes of Might and Magic III: Complete (1999) [Ru/En] (4.0/dlc) Repack Deceptic
 magnet:?xt=urn:btih:780B4214A54F1CBB711F3DAEF5BB7D9BBA3058C7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,7 +638,7 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
 magnet:?xt=urn:btih:42BE4B99876C60E71AF3A9BF608BC173F4E10FCC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,7 +664,7 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/Multi] (2.5b) Repack ale
 magnet:?xt=urn:btih:A096C13D9D578364906980A24EB2230D9396B819
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,7 +690,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru/En] (1.
 magnet:?xt=urn:btih:F2411D32D09C8E5C57268F8A936BAC8AF0DB1946
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

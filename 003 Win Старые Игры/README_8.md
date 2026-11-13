@@ -19,7 +19,7 @@ Undercover: Operation Wintersun / Совершенно секретно: Опе�
 magnet:?xt=urn:btih:A38A570BC8EBB15B0319AF1EEE8E08CAB55E36A4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Civilization: Call to Power / Цивилизация: Воззвание к си
 magnet:?xt=urn:btih:5D0420E60751D5911E5407E56ACFAA66A7F3BAD9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Infernal: Hell's Vengeance / Diabolique: License to Sin / Infernal: Дьявол
 magnet:?xt=urn:btih:47EFE4B10256D6063F485A7A97645308940D00DC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Starship Troopers: Terran Ascendancy [Ru] (P) 2000
 magnet:?xt=urn:btih:664902F5730361C092BF1982CA6288D97BF2DD59
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ StarLancer [Ru] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:618D38190B40AD183BD559CD943D6F7D3AFE92F3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Railroad Tycoon II / Железнодорожный магнат II (P) [Ru] 199
 magnet:?xt=urn:btih:013963BA269B9199A378AC482BC8AA38F8E79CD3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) Lic
 magnet:?xt=urn:btih:1B4F4EB461A4267EFACB6DFD9AD4181913B1B849
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:9F2742CC3C460B1A56576AB4F75C705D4BB3A0B3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Yoot Tower / Башня Ют (P) [Ru] 1999
 magnet:?xt=urn:btih:1571FB256A8D588CF09BCBD25A0C2EC6D3A71E91
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Dizzy Fantasy World [En] (RePack) 1991 | Pilotus
 magnet:?xt=urn:btih:259417BAD1DA56120CEF9FC05608601F41BD3E32
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Fury of the Furries [En] (RePack) 1993 | Pilotus
 magnet:?xt=urn:btih:3F3319FF6EBB9D81529BAEAF229054D6934D5D82
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Crusader: No Remorse [En] (L) 1995
 magnet:?xt=urn:btih:0ECDD8811A6F6A25FD7A67499558D6CF1C60118A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Crusader: No Regret [En] (L) 1996
 magnet:?xt=urn:btih:7F0D819D0BF837983A243E58D3838939192F8B2A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Star Wars StarFighter - аркадный симулятор космически
 magnet:?xt=urn:btih:6787FE1E8C7646D3647A6A1CC94C60216855B6A1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Disney's Aladdin [En] (RePack)  1994 | Pilotus
 magnet:?xt=urn:btih:B1F8C26E7A8E111038150365E166854A5660D48D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Uplink / Сеть [En] (L/1.55) 2001
 magnet:?xt=urn:btih:B75C702E9CDEAAE9EA979AA7FFA5F1266A7BE44A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Civilization: Call to Power II/ Цивилизация: Воззвание к с
 magnet:?xt=urn:btih:02C08976B16823A0C39F0D8863798F6509ECF537
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ Rugby 20 (2020) [Multi] (1.0.0) License HOODLUM
 magnet:?xt=urn:btih:577E50CB60172958A5193E1C1C8D4A36B717F9A0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ Rick Dangerous Антология [En] (RePack) 1989-1991 | Pilotus
 magnet:?xt=urn:btih:6E956897DB963BACE5C4FD6AFA67A68524979E24
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,7 +515,7 @@ Discworld [Ru] (RePack) 1995 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,7 +544,7 @@ F-22 Lightning 3 [Ru] (P) 1999
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,7 +570,7 @@ Raptor: Call of the Shadows [En] (RePack) 1994 | Pilotus
 magnet:?xt=urn:btih:52EFDBEB0A91AAC2442D9F65AC3B16D7CF1EC8FF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,7 +596,7 @@ Last Ninja Антология [En] (RePack) 1988-1990 | Pilotus
 magnet:?xt=urn:btih:A0539C09399C45344D3D5B28E18CD013FC540329
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,7 +624,7 @@ Rise of the Triad [En] (RePack) 1994 | Pilotus
 magnet:?xt=urn:btih:5958C086F29D9A265F94D0F7F1A8B8874144FD4E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,7 +650,7 @@ Arkanoid и Arkanoid II: Revenge of DOH [En] (RePack) 1988-1990 | Pilotus
 magnet:?xt=urn:btih:5A59528A9655DDDD28E490105ED1905C07DC7675
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,7 +679,7 @@ KGB [Ru/En] (RePack) 1992 | Pilotus
 magnet:?xt=urn:btih:C7C82241A5279D10748BE4392D99B198693D3BA9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

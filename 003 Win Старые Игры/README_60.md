@@ -19,7 +19,7 @@ Prison Architect - симулятор тюремного магната, с по
 magnet:?xt=urn:btih:A4115553AE05FFD2C4D6E0D4AC348F6F545756EC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:4EA0A0681BE44022EDBE08B242C32254866750E8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ Albion (1995) [Multi] (1.38) License GOG
 magnet:?xt=urn:btih:D554E5C55BBA8A718BADADDB1C377B88657BFA27
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Descent 3 (2000) [En] (1.4/dlc) License GOG
 magnet:?xt=urn:btih:CB6742DD09570E9DCC5E60CCA3397E31F716F3CA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Cилы Хаоса начинают захватывать планеты раз
 magnet:?xt=urn:btih:329CB746FAD993FE899AC66FF2E330B43202AFF9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Jade Empire (2005) [Ru/En] (1.00) License GOG [Special Edition]
 magnet:?xt=urn:btih:CA093B177B23C70A3D659A4DCF523DB406DD63FE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Screamer (1995) [En] (1.0) License GOG
 magnet:?xt=urn:btih:FF9EA9037040C8CEFFC730B8A333187445448CB8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Screamer 2 (1996) [En] (1.00) License GOG
 magnet:?xt=urn:btih:ACA4FA710FFBE7B319BE58E3B719F677002DCDC7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ Alien Odyssey [Ru] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:927457F06D43205C2C815ED270A414CACD3B5067
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,7 +255,7 @@ Lords of Magic [Ru] (L) 1997
 magnet:?xt=urn:btih:606684A73B00E243A3A40FFB993298E0F12353A4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,7 +281,7 @@ Warhammer: Shadow of the Horned Rat [Ru] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:910A4201DD9AE6E240FD750F07069653D3BAF9C8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,7 +307,7 @@ Blood Omen: Legacy of Kain [Ru] (P) 1997
 magnet:?xt=urn:btih:E954B280A9BEF921B1D64EA6566C0EC18F74678E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:7E45946EC712CE7B7BAA0EAF71904508BD7FAEEC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,7 +359,7 @@ Silent Hunter 2 (2001) [En] (1.00.06) License GOG
 magnet:?xt=urn:btih:376DA7CA64FA9752923B5E7351DFAEA558EDA8D9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,7 +385,7 @@ Startopia (2001) [En] (1.00) License GOG
 magnet:?xt=urn:btih:3E157027D03177351E5CF4CE2C51426CB19F1050
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,7 +412,7 @@ Redline [Ru] (Rip) 1999 | Pilotus
 magnet:?xt=urn:btih:F0A13F71A74550A41EB76630D309B2F0A81E8556
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,7 +438,7 @@ Descent (1996) [En] (1.4a) License GOG
 magnet:?xt=urn:btih:09D41047AE9831AA7BCF50A88A0D0580DA8F51F4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,7 +464,7 @@ Space Hulk: Vengeance of the Blood Angels [En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:2AFE5BA5AD6FE32222CA135FA72684F605A3CA3D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,7 +491,7 @@ Valhalla Chronicles / Вальгалла [Ru] (RePack) 2002 | Pilotus
 magnet:?xt=urn:btih:2616B8DD3E656B3F14E146C44D1D29DCCB398FF3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,7 +517,7 @@ Nox (2000) [En] (1.2) License GOG
 magnet:?xt=urn:btih:A49CC6742991C426339CF3C0F005AEF6A4C968DA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,7 +543,7 @@ Battle Realms — действие происходит в фэнтезийно�
 magnet:?xt=urn:btih:F38A7971C2AAB24F10E3415A121B677D673369D9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,7 +569,7 @@ Far Cry / Collateral Damage / Возмещение Ущерба [Ru] (P/Mod) 200
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -596,7 +596,7 @@ Far Cry / War Zone / Генная Лаборатория [Ru] (P/Mod) 2004/2006
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -622,7 +622,7 @@ Descent 2 (1996) [En] (1.1) License GOG
 magnet:?xt=urn:btih:5E71B218BAF2284FAA7F6D409B72DD44B7A2764D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,7 +648,7 @@ Freedom Fighters (2003) [Ru/En] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:E4F55F45F01D732E604186412B7FD295FF149D0F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -674,7 +674,7 @@ The Boss: La Cosa Nostra / Крестный отец: Честь семьи [Ge/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

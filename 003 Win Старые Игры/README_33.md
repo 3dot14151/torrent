@@ -19,7 +19,7 @@ Parkan: Iron Strategy / Parkan: Железная стратегия (2001) [Ru/E
 magnet:?xt=urn:btih:1500BD0000F0D72B76FCDF4FFDD6F71C73B18D15
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Empire Earth 3 (2007) [En] (1.0) License GOG
 magnet:?xt=urn:btih:56436AB164FE7B580B20384653E625A59A95E629
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Command & Conquer 3: Kane’s Wrath / Ярость Кейна (2008) [Ru] (1.02)
 magnet:?xt=urn:btih:8C7A4B3B2703062FAD4A7D80DE5F80AA8F7C741A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Command & Conquer 3: Tiberium Wars — компьютерная игра в жа
 magnet:?xt=urn:btih:DF80539C8DBC771EE87408333734A7736E916691
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,7 +127,7 @@ Spider-Man: Friend or Foe [Ru] (P) 2007
 magnet:?xt=urn:btih:AB54E1ADDE7094010FEF616BD1538B6F281EC9BA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,7 +153,7 @@ Red Alert 3 - Uprising представляет собой глобальное 
 magnet:?xt=urn:btih:51F22865475845F2ED46B2F040B88AF99305DAEB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,7 +182,7 @@ GT Legends - исторический гоночный симулятор, ко�
 magnet:?xt=urn:btih:CC8C04D24CF871739BA14561E205D9630487567E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,7 +209,7 @@ Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
 magnet:?xt=urn:btih:D4A1E33F8D74CAA1C2037D20AE8AD29EFED8EFD0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -235,7 +235,7 @@ The Lion King, красочный платформер, посвященный �
 magnet:?xt=urn:btih:9E1FD9851F7225AE1C0A98DD8E4128A09F52C84A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,7 +261,7 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 magnet:?xt=urn:btih:90D74114EDB585C4A074EAE80C994DF301FEB7F7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,7 +287,7 @@ Red Alert 3 - Uprising представляет собой глобальное 
 magnet:?xt=urn:btih:DE822F68AD7D5326D229DEA9CDDDABB6D0FFB669
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,7 +316,7 @@ Alien Versus Predator Classic 2000 была обновлена до полной
 magnet:?xt=urn:btih:5B0CB7F4A352BC198E0B890AD8748EEDE4897521
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -346,7 +346,7 @@ Chrome Specforce / Хром: Спецназ (2005) [Ru/En] (1.0) Repack R.G. Cat
 magnet:?xt=urn:btih:49CE14E19F8F1E413532F13A38BD1CB485613836
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,7 +372,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 magnet:?xt=urn:btih:4C6EEDA32D8F6FBAD041A096DB4357BB8B0DDB6F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -400,7 +400,7 @@ Campus [Ru] (RePack) 2007 | CCG
 magnet:?xt=urn:btih:84CDF05221B43E746D0AEE94C202314104CEB89B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -426,7 +426,7 @@ Castlevania: Lords of Shadow 2 является продолжением при�
 magnet:?xt=urn:btih:C21BF26553DF475929C9F0B61B7B15E065B2F51E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -452,7 +452,7 @@ Juiced [Ru] (Repack) 2005 | VITEK
 magnet:?xt=urn:btih:F59A2D1BC071973B482CF644FCB7CC7051B157CC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -478,7 +478,7 @@ Jagged Alliance 2: Wildfire / Jagged Alliance 2: Возвращение в Ар�
 magnet:?xt=urn:btih:C7580D405874D61FF5E7A0CE88A07E5AD244D0DB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -511,7 +511,7 @@ Cold Zero: The Last Stand / Cold Zero: Финальный отчет (2003) [Ru/
 magnet:?xt=urn:btih:BC9269209E9037CF4690F4B759BB3F2EA638BBC7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,7 +537,7 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 magnet:?xt=urn:btih:B9786C0B63BA1A5C4BA49C55A539AB01ABAC736A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,7 +564,7 @@ The Simpsons: Hit & Run (2003) [Ru/En] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:55E3478D30B45FEDA3F1313D46F47361ACF22AC2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,7 +592,7 @@ Bermuda Syndrome / Бермудский синдром [Ru] (Rip) 1995
 magnet:?xt=urn:btih:68F71C3F883A16733CC8119383E9F854D585AF58
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,7 +618,7 @@ Midnight Club 2 [Ru] (L) 2003
 magnet:?xt=urn:btih:1F22860EBFE56CF5EFACEDC99F0B95F38D9274B3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,7 +646,7 @@ Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + 
 magnet:?xt=urn:btih:943D98E267E15A23CD52DEAB68A3E5B54D7920B3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,7 +673,7 @@ Grandia 2 [Ru] (P) 2002
 magnet:?xt=urn:btih:ABD0B95A21BFE1898747F4D0FF553BD2E7E29F02
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,7 +700,7 @@ The Matrix Dilogy / Матрица Дилогия (2003-2005) [Ru/En/Multi] (1.5
 magnet:?xt=urn:btih:45223BD4F28492555C47EA8B90717C0B0F4B1DA8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

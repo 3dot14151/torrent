@@ -20,7 +20,7 @@ Simon the Sorcerer 2 [Ru] (RePack) 1995 | Kirill Гамес
 magnet:?xt=urn:btih:55A4CFC013F1456164CEBA3D2FF53B2D1BD3B99C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Woodruff and the Schnibble of Azimuth [Ru] (RePack) 1994 | Kirill Games
 magnet:?xt=urn:btih:520A39C8F53445CF01BE99CFFFDC2C63410B1053
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Battle Isle 2 - походовая стратегия (она же варгей�
 magnet:?xt=urn:btih:811B9F0F9B586F31ACDC3A9FC4C44DC169F668A4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ True Crime Дилогия [Ru/En] (RePack) 2004-2006 | Mailchik
 magnet:?xt=urn:btih:721244CBC6CF1E61298CDF963B059C483B05D697
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,7 +127,7 @@ Age of Empires II: The Age Of Kings — компьютерная игра, ст�
 magnet:?xt=urn:btih:CCCC3F73708360E3EC77F8162A377DFFA9F546A7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,7 +153,7 @@ Pharaoh - градостроительная стратегия в антура�
 magnet:?xt=urn:btih:DF01321CBD8960DE12EB08AA8D94F96073880CCB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,7 +179,7 @@ Settlers II Gold + Mission CD [En] (RePack/1.51b) 1996 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,7 +205,7 @@ King's Quest: Mask of Eternity [Ru] (RePack) 1998 | Kirill Games
 magnet:?xt=urn:btih:33372A55049EA00F23DFE12CC2F3DEE23CCC0643
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,7 +232,7 @@ Lands of Lore: The Throne of Chaos - классика ролевых игр, с 
 magnet:?xt=urn:btih:388DF80543AB8BCECE349D3997CDA0A29C4873E0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,7 +258,7 @@ Pontifex 2 / Bridge Construction Set [En] (L/1.30) 2002
 magnet:?xt=urn:btih:FBDF4FD54CBB8D315E3B37A8BC21B38082B3B684
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,7 +284,7 @@ Far Cry Дилогия  + DLC Fortune [Ru] (Lossless RePack) 2004-2008 | R.G. Mo
 magnet:?xt=urn:btih:7072584B220B1877D3BA0E73199168E22969ABF2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,7 +311,7 @@ Strike Commander [En] (RePack) 1993 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,7 +340,7 @@ Space Bucks [Ru] (RePack) 1996 | RG games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,7 +366,7 @@ Theme Park (1994) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:07E04C595FF2C62AB7A140419A7DD7F1E94DF02E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,7 +394,7 @@ Privateer — игра от создателей серии боевых кос�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,7 +420,7 @@ Falcon 4.0 [Ru] (RePack) 1998 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -446,7 +446,7 @@ Wing Commander Privateer 2: The Darkening [En] (RePack) 1997 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,7 +472,7 @@ Tom Clancy's Splinter Cell: Double Agent HD [Ru] (Rip/1.02a) 2006 | R.G. Repacke
 magnet:?xt=urn:btih:6FB4BE1C83AC406AED8BD992D82D468A8F7B6955
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,7 +498,7 @@ Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License 
 magnet:?xt=urn:btih:30FD0AE135C1AC890C864293854958FB67B06CC3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,7 +525,7 @@ Eurofighter Typhoon / Угол атаки [Ru] (RePack) 2001 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,7 +553,7 @@ Times of Conflict [Ru] (RePack) 2000 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,7 +580,7 @@ Flanker 2.5 Combat Flight Simulator / Су-27 Фланкер 2.5 [Ru] (RePack/2.
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -606,7 +606,7 @@ Dark Reign: The Future of War [Ru] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:D7B9B32E587A6E0CF8ECB01315B668B8EA9BDD84
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:AD4B1B5825620948A47AFDDBF7BCE589EC156F34
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,7 +660,7 @@ Scratches: Director's Cut / Шорох: Последний визит [Ru] (P) 2
 magnet:?xt=urn:btih:91BFAF60C605C3834C8BE2935A0E8022FA767F89
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,7 +690,7 @@ Medal of Honor: Allied Assault [Ru] (L) 2006
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

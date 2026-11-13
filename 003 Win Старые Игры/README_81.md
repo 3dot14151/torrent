@@ -20,7 +20,7 @@ TZAR: The Burden Of The Crown /Огнем и мечом + OST (Rip) [Ru] 2000 | 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Harbinger / Предвестник [Ru] (RePack) 2003 | Pilotus
 magnet:?xt=urn:btih:1734FEFB8288CB8287E7FFA21CF27BFC6C42B5D6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ Angels vs Devils [Ru] (L) 2004
 magnet:?xt=urn:btih:4430AE5B40B10ED5B54FA3445D80FF32C01D20BE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Bad Mojo [En] (RePack) 1996 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Commandos-клон (только проще) во вселенной Старъ 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Dragon Lore: The Legend Begins [Ru] (RePack) 1994 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,7 +178,7 @@ Panic Soldier [En] (RePack) 1996 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,7 +204,7 @@ Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 |
 magnet:?xt=urn:btih:85E46C6FDBD124AB4E98C1046BEFDBF15BDD55F0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,7 +230,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,7 +256,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,7 +282,7 @@ Morpheus [Ru] (P) 1998
 magnet:?xt=urn:btih:9F6CDCBA1F130F2931263C867D5C6DDFEA6043CD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,7 +308,7 @@ Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,7 +334,7 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,7 +360,7 @@ The Mummy [Ru] (RePack) 2000 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,7 +386,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,7 +413,7 @@ Tomb Raider 4: The Last Revelation [En] (L) 1999
 magnet:?xt=urn:btih:D2239B751F10048814017A3684477A00CBCDBE37
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,7 +439,7 @@ Darkened Skye [Ru] (RePack) 2002 | Pilotus
 magnet:?xt=urn:btih:2039B7AE69F5BE193B3EBD73E256C6A3EF4F295E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,7 +465,7 @@ World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L
 magnet:?xt=urn:btih:0BD53F5E19B9AB7C4343F8DBBB3D9C3C547B9CC2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,7 +491,7 @@ FireStarter [Ru] (RePack) 2003 | Pilotus
 magnet:?xt=urn:btih:A99E7981DED0D700F9F09ED63BCF28E5DF345DC9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,7 +517,7 @@ Mythical Warriors: Battle for Eastland (RePack) [Ru/En] 2001 | Pilotus
 magnet:?xt=urn:btih:E0ECBDFF77F94A75D12FAB559D65D80C101AD4C8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,7 +543,7 @@ Dungeon Hack [En] (RePack) 1993 | Pilotus
 magnet:?xt=urn:btih:AF4F4A24AC4F344BD24E15D2CCF648090676D3FE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,7 +569,7 @@ Lure of the Temptress [En] (RePack) 1992 | Pilotus
 magnet:?xt=urn:btih:D58AF6A9226F28D5BA754A024DBDD73A967B5E99
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -595,7 +595,7 @@ Zork, как много в этом звуке ... Говорите, никог�
 magnet:?xt=urn:btih:DC6722598F4D5D1E189DDE1F7BBBDB219579A483
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,7 +621,7 @@ Star Command: Revolution [Ru] (RePack) 1996 | pilotus
 magnet:?xt=urn:btih:483AF034109DA6807C9230C411B7A6AAD014E73E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,7 +647,7 @@ Future Wars: Time Travellers [En] (RePack) 1990 | Pilotus
 magnet:?xt=urn:btih:C9C81D51E56604E71C0C431BC2B349262124F3C7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:C3ADE9FF419AA44092280EA556F3B45B3169F1C0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

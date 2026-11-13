@@ -21,7 +21,7 @@ Descent [En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:DFEAD2DC766E9ACACCC32CADCC504DD8A4B6D9A1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,7 +49,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:A1E3EAF13E2515595EA1A0D666D94041B2376C9D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,7 +75,7 @@ DFS обладает сильно нелинейным сюжетом, связ�
 magnet:?xt=urn:btih:787AD675929FF2D441674A7866938C613EF4E963
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,7 +101,7 @@ The Last Express [Ru] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:172EF8B3495CE552CB103901C37D018935BA2F21
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,7 +127,7 @@ Action/Adventure от третьего лица в мире Might and Magic.По
 magnet:?xt=urn:btih:686BFDC0AB781BEE09422B8B6D4A3318BD32FC07
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,7 +153,7 @@ The Simpsons: Virtual Springfield [Ru] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:9AD9AF12FDB0774C43BE9ED6C1185BEB0EB7EC62
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,7 +180,7 @@ Descent: FreeSpace 2 [En] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:B888C02FC7D392E760791F4138C875FB1EC923A2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,7 +206,7 @@ Starsky and Hutch / Starsky & Hutch: Полицейская легенда [Ru] 
 magnet:?xt=urn:btih:FD3D318C055B0645562F08E71DDBBAB066009062
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,7 +232,7 @@ Lost Eden – пример классического квеста, которы
 magnet:?xt=urn:btih:6C0728B5E4A805BBD3AAC8560DE9EDB7CB933105
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -259,7 +259,7 @@ Arabian Nights / Арабские ночи [Ru/En] (RePack) 2001 | Pilotus
 magnet:?xt=urn:btih:6D2C55B75EC16633287E85BF834BD57779BFDCC8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:A6895CD21261DE7F3026B522EAC31A1D2B9DA6F9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:7E286513AB8465CEF5E19641AD6C202F8935D83C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,7 +338,7 @@ Operation Tiger Hunt [Ru/En] (RePack) 2002 | RG Games/Pilotus
 magnet:?xt=urn:btih:C7FB7B9B83B115D972D19C3E4C4E4FA2763D60DF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,7 +364,7 @@ Beneath a Steel Sky [En] (RePack) 1994 | Pilotus
 magnet:?xt=urn:btih:63A5F13A8035608F03B34189D236E766CB1AB704
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,7 +390,7 @@ Alien Virus [En] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:13E4D6A47253E5BAFCB9744C18A43780D6117A47
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:5A4962F69A0E8DFBAC927DFBAEBE383AC5FF3369
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -442,7 +442,7 @@ Sim Farm - симулятор управления небольшой фермо
 magnet:?xt=urn:btih:3634B7F5F601091CE465B7AFAE41F4A5DCA07345
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,7 +468,7 @@ Colonization — компьютерная игра в жанре пошагов�
 magnet:?xt=urn:btih:C22717482D85C4A22C45374F271E20E1952A47D1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:C97481A018400B19CC678D7736FE0F8F2B13B3C2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,7 +520,7 @@ Big Mutha Truckers 2: Truck Me Harder! / Мазатракеры 2: Свобод�
 magnet:?xt=urn:btih:EAC83AA27C0C107ED4EAD6754EC195B38E12EADE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,7 +546,7 @@ Marvel Ultimate Alliance [Ru] (RePack) 2006 | RG Packers
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,7 +572,7 @@ The Temple of Elemental Evil (2003) [En] (1.0) License GOG
 magnet:?xt=urn:btih:434B09EEE841988EF0698CAFC43DB80FEC732ACF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,7 +598,7 @@ Twilight 2000 [En] (RePack) 1991 | Pilotus
 magnet:?xt=urn:btih:131D1F4F56934B5576E447ADB1C3D9E7E63E44DC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,7 +624,7 @@ Conquest of Camelot и Conquest of Longbow [En] (RePack) 1989-1991 | Pilotus
 magnet:?xt=urn:btih:775B7175226A39BDB67759F083EA2F991F97ECF8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,7 +650,7 @@ Ugh! [En] (RePack) 1992 | Pilotus
 magnet:?xt=urn:btih:0AF9B42869E8D54D459138C9BD0B06AABD7A7880
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,7 +678,7 @@ Strife: Quest for the Sigil [En] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:AD6B526424778F258138DF233D6E040B968D9BA2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

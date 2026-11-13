@@ -20,7 +20,7 @@ Richard Burns Rally [Ru] (Lossless RePack/1.2) 2004 | R.G. Catalyst Old Games
 magnet:?xt=urn:btih:3862A62B72161D74E7A50FC2617DD24B11CE0B9B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ True Crime: New York City [Ru] (L) 2006
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Star Wars: Jedi Knight 2: Communication Force + Lady Jedi [Ru] (L) 2003-2004
 magnet:?xt=urn:btih:0D19E96B56C916C7E8BC0D24BD5F7BDD258EC834
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,7 +102,7 @@ Mission Humanity / Восьмая Цивилизация [Ru] (L) 2002
 magnet:?xt=urn:btih:2D16A920752CFD405748419654C87A22355ABDAA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,7 +128,7 @@ Delta Force - тактический шутер от первого лица, п
 magnet:?xt=urn:btih:01265D0589CF16FFA96A871D6D00D2FA73CF6693
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,7 +154,7 @@ Big Red Adventure [En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:D670EFA3F221B5E6B9276F2630873459DBA2B945
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -180,7 +180,7 @@ Wages of War: The Business of Battle [Ru] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:979DC47BEAE1A88D3EEFBF14FE86238A8FB27EC9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,7 +206,7 @@ Massive Assault Дилогия [Ru] (RePack) 2003-2005 | R.G. Catalyst
 magnet:?xt=urn:btih:247939B9886469D8D10D1E1A335B6F67E5115525
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -242,7 +242,7 @@ Stranglehold — высокотехнологичный компьютерный
 magnet:?xt=urn:btih:56F1D3AB0CBC6386E74155DB687AF8ACE514EC0D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -269,7 +269,7 @@ Egypt 1156 B.C. Tomb of the Pharaoh [Ru] (P) 1997
 magnet:?xt=urn:btih:8583066517A02255F49D331B5615F849AA85D6A1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -295,7 +295,7 @@ Ecstatica Антология [En] (RePack) 1994-1997 | Pilotus
 magnet:?xt=urn:btih:DA18FE3AB28F296B466F4A64561B81D9F6A62BFB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:D4CF61C4BEB6FDE0915C24BA549F9E6147FCDC18
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -348,7 +348,7 @@ Reah: Face the Unknown [Ru] (P) 1998
 magnet:?xt=urn:btih:30504B613426FA57C876A71FBD2FDD952A71C9A6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -375,7 +375,7 @@ Twisted Metal 2 [Ru] (P) 1996
 magnet:?xt=urn:btih:F2E809C7C0428D4D40267EB8AA1BBACF61CC03C9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,7 +401,7 @@ Golden Eagle [En] (RePack) 1991 | RG Games/pilotus
 magnet:?xt=urn:btih:BB3B0F3D32B2D84C4152447C719D754F19876EAE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,7 +427,7 @@ Neverending Story 2 [En] (RePack) 1991 | RG games/Pilotus
 magnet:?xt=urn:btih:1B71F2CAB682471C201AE4DA316B41147664CE84
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,7 +453,7 @@ Neverwinter Nights [En] (RePack) 1991 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,7 +479,7 @@ Sid Meier's Civilization [Ru] (RePack) 1991 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -505,7 +505,7 @@ Tronic – это незамысловатая аркадная и очень и
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -531,7 +531,7 @@ Jim Power in "Mutant Planet" [En] (RePack) 1993
 magnet:?xt=urn:btih:6AD43DC920FC5E6AD4EBA970BEB0018565593FF2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,7 +558,7 @@ Jones in the Fast Lane [En] (RePack) 1992 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,7 +584,7 @@ Wild West World [En] (RePack) 1992 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,7 +611,7 @@ Dominant Species [Ru] (P) 1998
 magnet:?xt=urn:btih:E991898B4E395C0A11BC1DA86DAACB3C30E7A467
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -638,7 +638,7 @@ Jane's Longbow 2 создан в 1997 и по-прежнему остается 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -665,7 +665,7 @@ Star Wars: X-Wing Alliance [Ru] (P) 1999
 magnet:?xt=urn:btih:014B975A2FD41E3EA239E69DE63A1EAED51D2356
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,7 +693,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война Миров
 magnet:?xt=urn:btih:9E861296EB6EAE113E813C57199255620ABDCE09
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,7 +19,7 @@ FlatOut — динамичная гоночная аркада с видом о�
 magnet:?xt=urn:btih:E284D50E6641452EA277A9E981A239A7E054E4DB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Instinct рассказывает альтернативную историю с
 magnet:?xt=urn:btih:C356233F224E32901B022AFDC261AB5E6C5C4CFB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 magnet:?xt=urn:btih:EA00AD5EECB8B985EDF75C666005EE1BCF9E4970
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 magnet:?xt=urn:btih:B8B5C3BAA501CD139F4FF991F41749B1C5DC718E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 magnet:?xt=urn:btih:B21CC24117CBE2CB0C454A822EB75590530A99CE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ realMyst: Masterpiece Edition – это красивая обновлённая
 magnet:?xt=urn:btih:554C599D9F16F07B7CAEEA9D310CCAD57B95D8C2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 magnet:?xt=urn:btih:BEEB79CDCA5E27129F8574EC441A477D509F09D0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Uru: Complete Chronicles (2004) [Multi] (1.0hf3) License GOG
 magnet:?xt=urn:btih:426EBCB1B2D4A45D6A64D69654E05CE0A764F6C3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Full Pipe / Полная труба [Ru] (RePack) 2003 |  R.G. Catalyst Old-Game
 magnet:?xt=urn:btih:9ED1A68595C09992C705C0DEBBC5EE2095902545
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Still Life (2005) [Ru/En] (1.0) Unofficial
 magnet:?xt=urn:btih:60B85BB90555D888AF8D5B55D56203889611E838
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Monkey Island 2 Special Edition: LeChuck's Revenge - продолжение ус
 magnet:?xt=urn:btih:51B5A854D496F6C884FFD324C86CBDDA5B156917
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 magnet:?xt=urn:btih:9D41E0488FC38B35DE57AA7D5BBF980D46FAD4F9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:D4D3D0DE77567A837DF4B11B43652CC0AD4BE27D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ ales of Monkey Island Complete Pack – интереснейший компью�
 magnet:?xt=urn:btih:85A9FF06DABDA7C4D6387EA3DE7413923A6A0FCB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 magnet:?xt=urn:btih:D4E04385706A0F4CC835BD98E66BC4136092253E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Search and Rescue: Vietnam Med Evac / Вьетнамский апокалипс�
 magnet:?xt=urn:btih:F9146261256995121D7ACC933951910AC9FFFE78
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,7 +436,7 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 magnet:?xt=urn:btih:B1D7A6066F32DAE30CFD18963AEF3A2EE54A59B9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,7 +462,7 @@ Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
 magnet:?xt=urn:btih:470995DB595CA23E9FC921DAA2EDA8B744C026AB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,7 +488,7 @@ Warcraft Adventures: Lord of the Clans — отменённая компьюте
 magnet:?xt=urn:btih:6191B91FD343355D5F64493AD9700AC244DA8F90
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,7 +514,7 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 magnet:?xt=urn:btih:6AB447A5AFC8B004FDA90D8A0F77B9CE883F8DC0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,7 +540,7 @@ Elasto Mania Remastered представляет собой обновленну
 magnet:?xt=urn:btih:ACE59C410569F38084FC06BB7B888A5AD16F91AD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,7 +566,7 @@ Pool of Radiance: Ruins of Myth Drannor - современная реинкар�
 magnet:?xt=urn:btih:415C23DA4CE236E04E3E1EAE96B9D42E18E2222B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,7 +592,7 @@ StarCraft - легендарная стратегия в реальном вре
 magnet:?xt=urn:btih:9B9D617053BD671BD9981C79427405ED48797CD2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,7 +618,7 @@ Quake 2 Enhanced - это новая версия классического ш�
 magnet:?xt=urn:btih:7CD818F28B1375798F5B016C3407F73A86A41E67
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,7 +644,7 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 magnet:?xt=urn:btih:7023EAE2F6C0BD840731B3B8DEB49D4D0F68BDF5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,7 +672,7 @@ Robin Hood's Tournament [Ru/En/Multi4] (RePack) 2001 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

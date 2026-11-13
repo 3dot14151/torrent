@@ -19,7 +19,7 @@ FlatOut (2005) [Ru/Multi] (1.01) Repack dixen18
 magnet:?xt=urn:btih:915F7C450D78154FA8A86C10A39DF5D086FB24F3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Street Racing Syndicate - аркадная гонка, включающая св
 magnet:?xt=urn:btih:13E278397866AFD07ABFE18324F0EF9F91A7BD14
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ FlatOut 2 (2006) [Ru/Multi] (1.2) Repack FitGirl
 magnet:?xt=urn:btih:E20D83D132EA7A894292FB0FA681A9C27C1A02F6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:CCDAAB868A51E8E07EBFAE497ECD1E80F97F8C2A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Flatout (2005) [Ru/Multi] (1.01) Repack FitGirl
 magnet:?xt=urn:btih:7629B250FB2ECC401CC02586CED2C120973E4F14
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ realMyst (2000) [En] (1.11) License GOG
 magnet:?xt=urn:btih:2ED9BBB88A6DA080D6EBA9F119B6DDB92EFEC688
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Deer Avenger 4: The Redneck Strikes Back / Месть Оленя 4 (2001) [Ru/En
 magnet:?xt=urn:btih:4CBCD9B9D33E143C355D5D64F85C787149A48BC2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Star Wars: Battlefront 2015 – космический шутер, основа�
 magnet:?xt=urn:btih:1D35C325A2CD7AF1E8A89FD0119E94B7C49BC2AA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Hexen: Beyond Heretic - фэнтезийный шутер от первого л
 magnet:?xt=urn:btih:28C43F2F18FA8F493C508D2BF22B2EE6EE274241
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Unreal 2: The Awakening (2003) [Ru/En] (build 2001) Repack dixen18
 magnet:?xt=urn:btih:E46258E4C2666BF54CB4DFBC78CDD82EB3F27886
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой 
 magnet:?xt=urn:btih:B35F3118A9111DFDB0F6B1CA9977D64B316E3A24
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Nancy Drew: Danger on Deception Island - детективный квест пр�
 magnet:?xt=urn:btih:D5A3ABFBA9C597B85B7842E71A7939365CFC68E5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) Repack Decepticon
 magnet:?xt=urn:btih:2B650319D9EA89208988DA7C1F4BCF5C23A40ABF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Far Cry: Far Cry Irina Go 2 (2022) [Ru/En] (1.0) Repack/Mod Bert-Masters-Studio
 magnet:?xt=urn:btih:8D96998DA8E71BBE9BDB700AFBEC47F5432DB5BB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Nancy Drew: The White Wolf of Icicle Creek - приключенческая иг
 magnet:?xt=urn:btih:A14E4DE99D7F4D0C8CC169E03D5DE5D05F20F4AA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Nancy Drew: Last Train to Blue Moon Canyon - детективная игра п�
 magnet:?xt=urn:btih:1610B7704BDEF3910C0AFDA1D7ACD26CD6A78C31
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Action SuperCross – это динамичные мотогоночные за�
 magnet:?xt=urn:btih:FABD215AD9D476FD498FDE4B39097A7D840078BF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ Spyro: Enter the Dragonfly (2002) [Ru/Multi] (1.2) Repack Ma2012ks
 magnet:?xt=urn:btih:5D7EBFE3DCF1D60E670DB2A230A2EDCDA4E26E79
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ Xenonauts: Arms Race / Ксенонавты: гонка вооружений (20
 magnet:?xt=urn:btih:3658423201E19C1247865E56B521A8B87D426E2A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ Xenonauts Soviet Edition (2015) [Ru/En] (0.35.1) Repack/Mod AndyFox
 magnet:?xt=urn:btih:8925B6AC3080519C0E3B1F1EC6F018BAC4893AB2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ Xenonauts: XNT - Into Darkness (2017) [En] (6.0) Repack/Mod AndyFox
 magnet:?xt=urn:btih:9545B9688130F12ED98578A208157D74BC74E622
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ Spyro the Dragon - первая игра от Insomniac Games о драконе 
 magnet:?xt=urn:btih:36542CF52D358C5B2C29F8B250993DBD30190A9A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ Flatout 2 (2006) [Ru/Multi] (1.2) Repack dixen18
 magnet:?xt=urn:btih:318D94B30D7D8A95E8BF84F0DA6FC43ABCA4C51E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ Xenonauts: On The Edge / Ксенонавты: на грани (2015) [Ru] (4.0)
 magnet:?xt=urn:btih:D26E1C6DDAA559D6AD92FB1D31627D8700B81A92
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ Spyro 2: Ripto’s Rage! (1999) [Ru] (2.0) Repack Ma2012ks
 magnet:?xt=urn:btih:174404233873119B1AD6D6F5B87F8C03C5365696
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ Far Cry (2004) [Ru/En] (1.04) Repack dixen18
 magnet:?xt=urn:btih:BF796303EAAD005AA788A8CE5E33C81C59D83A59
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

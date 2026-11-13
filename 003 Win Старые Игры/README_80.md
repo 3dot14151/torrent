@@ -19,7 +19,7 @@ Nightstone / Камень ночи [Ru] (RePack) 2002 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Tom Clancy's Splinter Cell [Ru] (RePack) 2003 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ X-Men: The Official Game [Ru] (P) 2006
 magnet:?xt=urn:btih:EC1111BE30894911B39EF4141F9C800A2640BAD2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ The Blair Witch Антология [Ru] (RePack) 2000 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Ballerburg / Баллербург [Ru] (RePack) 2002 | Pilotus
 magnet:?xt=urn:btih:4D331D539B6C09C46C3D49CCA740E12C8DB1FC61
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 magnet:?xt=urn:btih:A976BDB23DA2181599DEB0F4FE29F03CBE5402C7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Tom Clancy's Rainbow Six 2 Коллекция / Rogue Spear + Black Thorn + Cove
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 magnet:?xt=urn:btih:DC36E45418C59209C834A68FD5CF0B4269A71B49
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,7 +255,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 magnet:?xt=urn:btih:E1BB2C40757D52BFE0B700D845327315B717B2F1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,7 +281,7 @@ Lemmings Коллекция [En] (Rip/RePack) 1991-2000 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,7 +310,7 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,7 +336,7 @@ Squad Leader [Ru] (RePack) 2000 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,7 +362,7 @@ Alice - это необычный 3D-шутер от 3-го лица, основ
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,7 +388,7 @@ Tsunami 2265" - это динамичный экшен, выполненный �
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,7 +415,7 @@ Chasm: The Rift («Пропасть: раскол») — компьютерна�
 magnet:?xt=urn:btih:683289579E7858DBB98ABC4CE0C33ECCB1545286
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,7 +441,7 @@ Moonstone: A Hard Days Knight [En] (RePack) 1992 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,7 +467,7 @@ Pirates! Gold (RePack) [En] 1993 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -494,7 +494,7 @@ Conflict Zone [Ru] (RePack) 2001 | Pilotus
 magnet:?xt=urn:btih:B7C8B8A31FF1FACE2AD067DEEABB5314DE70628F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,7 +521,7 @@ War Wind (RePack) [Ru] 1996 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,7 +549,7 @@ Robocop / Робокоп [Ru] (L) 2003
 magnet:?xt=urn:btih:D48112C14550C3FBB0A7C194D539698E7FDDAB80
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,7 +575,7 @@ Immortal Cities: Children of the Nile / Вечные города: Дети Ни
 magnet:?xt=urn:btih:726111BE0A3D95BBF20BDB99D91F798C5ABC83DE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,7 +602,7 @@ Immortal Cities: Children of the Nile / Вечные города: Дети Ни
 magnet:?xt=urn:btih:DAB35E694108A6511F446436C6149B8396E6F5F6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -628,7 +628,7 @@ Immortal Cities: Children of the Nile / Вечные города: Дети Ни
 magnet:?xt=urn:btih:84F2E36D967BC92776640698FB6E95AB708D0608
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,7 +655,7 @@ Full Spectrum Warrior [Ru] (RePack) 2004 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,7 +683,7 @@ Crime Life: Gang Wars / Crime Life: Уличные войны [Ru/En] (Lossless 
 magnet:?xt=urn:btih:FF3BEFB085509B4F1D7A93F41B289C5D48BFBDB4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,7 +19,7 @@ A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 199
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Hard Truck Tycoon — экономический симулятор, погру�
 magnet:?xt=urn:btih:9A128ACAC62DFCEFB40E7F66C68A8AF94A9F79A0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Jungle Strike – это доведенный до ума Desert Strike, пус�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Rings of Medusa и Return of Medusa [En] (RePack) 1990-1991 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,7 +150,7 @@ Laser Squad [En] (RePack) 1992 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,7 +176,7 @@ GTI Racing / Volkswagen Golf Racer [Ru] (RePack) 2006 | R.G. Games
 magnet:?xt=urn:btih:E7A96F00067D9DBE089BF5BAC4631F1DAC37C957
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,7 +204,7 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 magnet:?xt=urn:btih:56F6F8F888B2E35C1C629999EAA6F3B5553C068C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,7 +230,7 @@ Indiana Jones and the Emperor's Tomb [Ru] (RePack) 2003 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,7 +256,7 @@ Tactical Ops: Assault on Terror [Ru] (RePack) 1999 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,7 +282,7 @@ Nebulus [En] (RePack) 1988 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,7 +308,7 @@ Eric the Unready [En] (RePack) 1993 | Pilotus
 magnet:?xt=urn:btih:0E8615721A6E423AA8A47D9DAEC6EC4361A818C9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,7 +334,7 @@ B.A.T. Антология [En] (RePack) 1990-1994 | Pilotus
 magnet:?xt=urn:btih:CB82DCD0C9F5FD2E0EF8100D6F9ABF8CFEC49398
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,7 +360,7 @@ Shortline [En] (RePack) 1992 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,7 +387,7 @@ SimLife (RePack) [En] 1992 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,7 +413,7 @@ Star Reach (RePack) [En] 1994 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,7 +440,7 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -468,7 +468,7 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,7 +495,7 @@ Prince Of Qin [Ru/En] (P) 2004
 magnet:?xt=urn:btih:CEA05B67A1A5885AF7DE7C8E1C7C8A415479DDA7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,7 +521,7 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,7 +547,7 @@ Ark of Time [Ru] (RePack) 1998 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,7 +573,7 @@ Urban Assault (Rip) [Ru] 1998
 magnet:?xt=urn:btih:38E08BF19F6AAA1F0679B65ED7E45C3FE2637178
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,7 +599,7 @@ Micro Machines и Micro Machines 2 [En] (RePack) 1994-1995 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,7 +627,7 @@ SCAR: Squadra Corse Alfa Romeo / SCAR: Спортивная команда Ал�
 magnet:?xt=urn:btih:B66FEE2ADD826DED3F324F13E2F6B0D8DEF6B9CF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:F6F62DF2EB207323F391F00D86C3C147A0338449
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,7 +679,7 @@ Blood & Lace: A Gothic Novel [Ru] (RePack) 2002 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

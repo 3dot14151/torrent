@@ -19,7 +19,7 @@ Clive Barker's Undying [Ru/En] (Repack) 2001 | R.G. Механики
 magnet:?xt=urn:btih:3AC2CC8483C90449F9115A4E12B4E75160C1E35A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Mutant / Мутант (P) [Ru] 2007
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Al Emmo and the Lost Dutchman's Mine / Эл Эммо и сокровища Зо�
 magnet:?xt=urn:btih:FAEB6A3F034B7CCB014861C7D726C6AD2D7B99C6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,7 +126,7 @@ Axis & Allies / Союзники [En/Ru] (P) 2004
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -154,7 +154,7 @@ Alien Shooter: Начало вторжения- Бесконечная темн�
 magnet:?xt=urn:btih:672209C9C1A05367955E7712F154F6B3F561ED6E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,7 +182,7 @@ Need for Speed: Carbon (2006) [Ru/En] (1.2/1.4) License [Collector's Edition]
 magnet:?xt=urn:btih:B5AB5F750EF6C27D6B12D79391C3C6835F2F3AD7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,7 +208,7 @@ Delta Force: Task Force Dagger / Отряд Дельта: Операция "Ки
 magnet:?xt=urn:btih:C806AE28024C1907883187A83DB5C726207E071B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,7 +234,7 @@ Project Eden [Ru] (RePack) 2001 | R.G. Recoding
 magnet:?xt=urn:btih:62ACF27E50661B0F9480E5EFEC1BC154C7CB0A63
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -261,7 +261,7 @@ Urban Chaos [Ru] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:BEE91E939C012CAA9C748D25808C17A7F221778B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,7 +313,7 @@ Lords of the Realms 3 посвящена истории средневековь
 magnet:?xt=urn:btih:937C58B6BB2279A06C9DCC42B9E0F7FFF6C1C4C3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,7 +339,7 @@ Fort Boyard: The Quest / Fort Boyard: Изгнание [Ru] (L) 2000
 magnet:?xt=urn:btih:53FDA515FCFE42A7B268C8C3924F874C8059131B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,7 +365,7 @@ Kingpin: Life of Crime / Братан [Ru] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:7031719B65E6AB4F0CFBFADB04DC55AE5DF9FC43
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,7 +391,7 @@ Shadowgrounds Survivor - продолжение научно-фантастич�
 magnet:?xt=urn:btih:4D7CE8300CDC2863749A9995D4FB54D17326A856
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -418,7 +418,7 @@ Escape from Monkey Island [Ru] (RePack/1.1) 2000
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,7 +444,7 @@ Odyssey: The Search for Ulysses / Одиссея [Ru] (RePack) 2000 | RG Games/P
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,7 +470,7 @@ New York Race / Погоня за 5 элементом [Ru] (L) 2001
 magnet:?xt=urn:btih:1AA8858FF7BE39D7E8CDDDF6FE0C9807FCD681F6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,7 +498,7 @@ Special Forces: Nemesis Strike / Спецназ: Огонь на поражен�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,7 +524,7 @@ Blade Runner (1997) [Multi] (1.0.1016) License GOG
 magnet:?xt=urn:btih:756ABF6EB675588AEC8CBDDA47ACE6E51DAE9F9E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,7 +551,7 @@ Hanse 1480: Das Vermachtnis (1999) [Ru] Unofficial
 magnet:?xt=urn:btih:5689D384CFEB8B95359C08A38BE6780671C97C3A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,7 +577,7 @@ Wizards and Warriors (2000) [En] (1.0) License
 magnet:?xt=urn:btih:825D4D3FAA4A3BDE5F86FC6BDF06C7FDFCB14255
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,7 +603,7 @@ Blitzkrieg Anthology / Антология Блицкриг (2005) [Ru/En/Ge] (1.
 magnet:?xt=urn:btih:C62CF71A5FB0A2EA8B56E756BD448D26F3C224C8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,7 +629,7 @@ Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
 magnet:?xt=urn:btih:69CBBDD1AA5FCB9F47860D37CAA02BD0DA8AE4BD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -659,7 +659,7 @@ Hopkin FBI [Ru/En] (RePack) 1998 | Kirill games
 magnet:?xt=urn:btih:8C1EC3F2F305FC26F371919E8FFC346BA9DC60D4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,7 +685,7 @@ Ace Ventura [Ru] (RePack) 1996 | Kirill Games
 magnet:?xt=urn:btih:3AEE2A4138139637B0787500EC5FD7E61096A74B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

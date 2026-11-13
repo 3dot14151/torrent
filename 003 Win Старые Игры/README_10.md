@@ -19,7 +19,7 @@ Deer Avenger 4: The Redneck Strikes Back [Ru] (RePack) 2001 | Pilotus
 magnet:?xt=urn:btih:A110C8B53AC8F5A4AB812FA5EDE6FAC0E44F2A53
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Starship Troopers: Terran Ascendancy - тактическая стратегия
 magnet:?xt=urn:btih:D4216DC5166A397A8C0E04E04FF0F740DD6EEE7E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Saga: Rage of the Vikings [Ru/En] (P) 1998
 magnet:?xt=urn:btih:96C4AC2EDE5C22A6E47CE7A00DBC17E1ACE5ECEA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ MDK: Anthology / MDK: Антология [Ru/En/Multi6] (Repack/1.0-1.003) 1997-
 magnet:?xt=urn:btih:B82D4DC62425BB32571F09DE38FEB832A36F08BB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,7 +124,7 @@ Far West / Дальний Запад [Ru] (L/1.01) 2002
 magnet:?xt=urn:btih:D9DF73647136FD579FA28F4A05BF8073585A98D4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Jane's Combat Simulations: USAF [Ru] (P) 1999
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,7 +178,7 @@ Scrapland / Scrapland - Хроники Химеры (2004) [Ru/En] (1.0) Repack 
 magnet:?xt=urn:btih:108E420C44711F17C770E20A7091C278AFB60F47
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,7 +204,7 @@ Rex Nebular and the Cosmic Gender-Bender [En] (RePack) 1992 | Pilotus
 magnet:?xt=urn:btih:AE5904D74B062A4CF5615A09C77E3FC713C872DB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,7 +230,7 @@ The Lost Files of Sherlock Holmes Дилогия [Ru/En] (RePack) 1992-1996 | Pi
 magnet:?xt=urn:btih:F5BA7DC9DA967EE1AB3857E324A8701FF3E4878B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,7 +256,7 @@ Caesar III - градостроительная стратегия, собрав
 magnet:?xt=urn:btih:5228FF79BAF326AEFE07190C09828CC6FB84722E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,7 +283,7 @@ Indiana Jones and The Emperor's Tomb / Индиана Джонс и Гробни
 magnet:?xt=urn:btih:28D7977ED2BADEBDCA0F3FBCD9CCDB9B3DEF89B2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:5706598F2F0B95E47351F0AA906067771AB4652E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,7 +335,7 @@ Call of Cthulhu: Shadow of the Comet [En] (RePack) 1993 | Pilotus
 magnet:?xt=urn:btih:3393E73F44C615CDEA7C557EE10102FFCA315A4A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:6715C9F992CBF6388F5DD4EC981C94530E431739
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,7 +387,7 @@ Fahrenheit / Indigo Prophecy / Фаренгейт [Ru] (RePack) 2006 | R.G. Shif
 magnet:?xt=urn:btih:F9FB144DC2EE4278498B39D59BB95790E90EAD10
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,7 +413,7 @@ Prehistoric Антология [En] (RePack) 1991-1993 | Pilotus
 magnet:?xt=urn:btih:C90C6F0568E7B2F4309F7A97DCCA38F06D297E2D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,7 +439,7 @@ Spy Fox Антология [Ru] (RePack) 1997-2001 | Pilotus
 magnet:?xt=urn:btih:DC0C0242B0ADF5939CDD876655128AA19896A2D8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,7 +467,7 @@ Callahan's Crosstime Saloon [En] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:AECF9DCCA5D83BF5F2E7BAD040C12F47A9A9218A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,7 +493,7 @@ Missing on Lost Island / Ztraceny Ostrov [Ru] (RePack) 2002 | Pilotus, Polykov
 magnet:?xt=urn:btih:279F9E23EF5B76496A42B5D44706E5E05C3BAEA8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,7 +519,7 @@ Slave Zero [Ru/En] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:01024B84AF8DD15A9800597886E346D2E4C72093
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,7 +545,7 @@ Rayman [En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:35CB63A148AAD50E5751B4E3777AFA206CE8644B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,7 +571,7 @@ Nightmare Creature [En/Ru] (Rip) 1997 | Pilotus
 magnet:?xt=urn:btih:CCE3B187E4A00A4F28F480F06BDC6DE07C01AE29
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,7 +597,7 @@ Startopia - игра от создателей Dungeon Keeper, воплотив�
 magnet:?xt=urn:btih:6BFB0EE80CD2480CDBF97C84B88C72DECC2CBBA9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:5A6FC502469231A959D1A701BC82623EFF00C6BA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,7 +649,7 @@ Evil Dead: Hail to the King (2001) [Ru/En] (1.0.0.0) Repack R.G. Revenants
 magnet:?xt=urn:btih:6A90F1347CD31C79C36F7B8746A964652AC9227B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,7 +676,7 @@ Battle Engine Aquila / Боевая Машина Акилла (2003) [Ru/Multi] 
 magnet:?xt=urn:btih:BDEE92F2D490006787FDA4AC7D6589D538AFD161
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

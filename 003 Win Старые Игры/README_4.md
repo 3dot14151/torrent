@@ -19,7 +19,7 @@ Jagged Alliance 2: Wildfire возвращает вас в Арулько, но 
 magnet:?xt=urn:btih:84C3357DE0A7BE2511FCD7FD1E358C1CB8487659
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Worms 2 (1998) [En] (2.0.0.23) License GOG
 magnet:?xt=urn:btih:C9BC64E8180B854937097AA6771EC51DBD79EACE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пе
 magnet:?xt=urn:btih:1DC6DB7FC7EF23CABC54A6CA9635E77BFE7002FE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Time Commando (1996) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:D6C002C1C594E77FDEEC12BE110D691838202822
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Puzzle Agent (2010) [En] (1.0) License GOG
 magnet:?xt=urn:btih:FDF935197F5EE9857902B655CB089E13126AE2BE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 magnet:?xt=urn:btih:7B0BC01B0A546B7B75D2DB4813B676177F7D3B1C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Vangers / Вангеры (1998) [Ru/En] (1.46) License GOG
 magnet:?xt=urn:btih:7BEB2864D38462D84825830796330464DDDA0F89
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 magnet:?xt=urn:btih:15AF4995BB7446B632EB57DE70D9631E88575745
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Baldur’s Gate Trilogy (сокращ. BGT) - мод для Baldur's Gate II , �
 magnet:?xt=urn:btih:28F90B7914117E58399C50F985C24694A66B1E3F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Rayman Forever (1999) [En] (1.21) License GOG
 magnet:?xt=urn:btih:2931AD551FBB383A99D3D175C7EB0D6B213482DC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Ankh Anniversary Edition – это прекрасный приключенче�
 magnet:?xt=urn:btih:A7CB357E70F45E7364D4A281F4A631952BE9DC70
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Roberta Williams Phantasmagoria / Фантасмагория (1995) [En] (1.0) L
 magnet:?xt=urn:btih:794D1E018C6B3C43DFDE2DB163CE26C8671D5A6E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Harvester (1996) [En] (1.0) License GOG
 magnet:?xt=urn:btih:39A6355DF5921A04A01C9958C53A83B44DE0E480
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Phantasmagoria: A Puzzle of Flesh (1996) [En] (1.0.06) License GOG
 magnet:?xt=urn:btih:86CB8DAA24E99121726B4E5754DC43B228145248
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Fahrenheit / Indigo Prophecy (2005) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:6BD7919B35DC6DC27A729F77FCD0518FF54F58A9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:2127DCAB03352DC8E7E53224820633EAD40D1A7B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Europa Universalis III / Европа 3 (2007) [En] (5.2/dlc) License GOG [Compl
 magnet:?xt=urn:btih:F87AB96F532FB90F290B3CDA3611EAC4DD1F2390
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ Wizards & Warriors (2000) [En] (1.0b HotFix2) License GOG
 magnet:?xt=urn:btih:461E970C51BF4C8688C3C0842FB6AC7B4DBC895B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ Half-Life RTX (2023) [En] (1.0.5a) Mod
 magnet:?xt=urn:btih:234661426C2F9B485C9CE509E98F821D50FBCA68
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ Total Immersion Racing / Жажда Скорости (2002) [Ru] (1.0) License
 magnet:?xt=urn:btih:4F75C6D4D00CA6DC56B19B77221538E5E20A6670
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ Stronghold Crusader HD (2002) [Ru/Multi] (1.41a) License GOG [Extreme Edition]
 magnet:?xt=urn:btih:C8612CFA319947006963EEB4D33422B57DC18E81
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:9ED9744D02611B0EA7941123D75BBDCF4A50AB02
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ M.U.L.E. / MULE (1983) [En] (1.0) License GOG
 magnet:?xt=urn:btih:FD38A25E955507A99B096C49AC76A7FC2A9E0D97
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ Stubbs the Zombie in Rebel Without a Pulse (2005) [Ru/Multi] (1.3.0.6351) Repack
 magnet:?xt=urn:btih:3F4BBA6FED9F459F199467020BB1EC76506FD73D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ SimCity™ 4 (2003) [Multi] (1.1.641hf/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:F306ABCC0026B2DE0C5F3ECFC89E626EE7DB491E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ Hammer of the Gods (1994) [Ru/En] (1.0.2035) License
 magnet:?xt=urn:btih:5688ED965B6AAE4741F275D3ED9707EC85CFDBAB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

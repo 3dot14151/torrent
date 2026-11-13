@@ -19,7 +19,7 @@ American Civil War: Gettysburg / Гражданская Война: Решающ
 magnet:?xt=urn:btih:595984FC7F2E3FB4837C9AEB8EE2F384F6AD5474
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Jane's F-18 Combat Simulator [En] (RePack/1.0/TSH 3.0) 1999 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Knights of the Temple 2 / Тамплиеры 2 Портал Тьмы (2005) [Ru/
 magnet:?xt=urn:btih:DEB76B1E1D368417035DE9221C7B0EB5193979BC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Advent Rising предлагает вам насладиться идеальн�
 magnet:?xt=urn:btih:E353C541826A7557EE553FEDF033A67FA0B520F5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,7 +126,7 @@ Indiana Jones and the Infernal Machine / Индиана Джонс и Адска
 magnet:?xt=urn:btih:53AE77AC91DDC0A99C4455770D0B8403AB8688BC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,7 +153,7 @@ Gex (1996) [En] (1.1) License
 magnet:?xt=urn:btih:FC42083363C7C60165E0DF7DA56967AFE9DFB534
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -181,7 +181,7 @@ Futurama — видеоигра по мотивам мультсериала «�
 magnet:?xt=urn:btih:30EE59FA516ADD5393881B7EE250434B7C250CA5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,7 +208,7 @@ Myst — культовая компьютерная игра в жанре гр
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,7 +238,7 @@ Zax: The Alien Hunter / Зак: охотник с чужой планеты [Ru]
 magnet:?xt=urn:btih:5DA3F5FA008F66128253B92CA601875BB0E3C047
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,7 +264,7 @@ Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:E85654724AF11350360203DE203B5CB6229F44CC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,7 +290,7 @@ MadSpace [Ru] (Rip) 1997 | Pilotus
 magnet:?xt=urn:btih:049641F8F801BCE7EC199FC059382EE806CEE714
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,7 +317,7 @@ Mass Destruction [En] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:2845AD0225C8B8B160F853CD84DFA0B2A9096FF7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,7 +344,7 @@ The Guardian of Darkness [Ru] (P) 1999
 magnet:?xt=urn:btih:5AF7F431B3F5F036B60F5B1459299A26FB5B0D96
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,7 +370,7 @@ Gangland (2004) [Ru/En] (1.4.0) License GOG
 magnet:?xt=urn:btih:993F4C9FACAC44FDCF297024009CE4DD84530B68
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,7 +397,7 @@ Star Trek: Elite Force 2 [Ru] (RePack/1.1) 2003 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,7 +425,7 @@ Chaos Legion / Рыцари Хаоса [En/Ru] (RePack/1.1.0) 2003 | R.G. Cataly
 magnet:?xt=urn:btih:44C7FB2B2C7E0DC73D314E0D39DD55085AF07DB5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,7 +451,7 @@ Vampire: The Masquerade: Redemption [En/Ru] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:8686913CC5C4DFB756AA8E3D0E8D17AD536E0966
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,7 +477,7 @@ Age of Empires / Эпоха Империй {v.1.0b} (P) [Ru] 1997
 magnet:?xt=urn:btih:E5BA72CB9AFDAF89DBADF68FC82FFBB493677AFD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -503,7 +503,7 @@ Shadow Man (1999) [En/Fr] (1.0) License GOG
 magnet:?xt=urn:btih:44825B4D52D005EA05A190B66033AC286E9B228F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,7 +530,7 @@ European Air War [En] (RePack/1.28e) 1998 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,7 +557,7 @@ Red Shark / Красная акула [Ru] (L) 2002 | RG games/Pilotus
 magnet:?xt=urn:btih:FE1F4ED0810051512AC357BE8A31DE842EEBA6DB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,7 +584,7 @@ Flanker 2.5 Combat Flight Simulator / Су-27 Фланкер 2.5 [Ru] (L) 2002
 magnet:?xt=urn:btih:C0A354381E864343D29114161EA59E2B34E41661
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,7 +610,7 @@ The Case of the Silver Earring / Шерлок Холмс: Загадка сер�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,7 +662,7 @@ Duke Nukem 3D - культовая компьютерная игра в жанр
 magnet:?xt=urn:btih:559489BA3158EDE3C814D7A115DAF32D450E83F6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,7 +688,7 @@ Privateer 2: The Darkening (1996) [En/Ge] (17.0e) License GOG
 magnet:?xt=urn:btih:2A3DA6F1DBF98DA42C5F7EF1B509FEC9C9CDEF10
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

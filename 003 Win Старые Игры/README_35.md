@@ -19,7 +19,7 @@ Myst IV: Revelation (2004) [Multi] (1.03hf2) License GOG
 magnet:?xt=urn:btih:1F588D27DADC0C3B078DA0A8C0112140E8A53487
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ True Crime Dilogy (2004-2006) [Ru/En] Repack R.G. Механики
 magnet:?xt=urn:btih:A0B673E4A6904B37F16AAF9AEC335AF913DE7831
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 magnet:?xt=urn:btih:CD23EA2A0EAE59F2582646FDCA2E91A44FDB3E39
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Dinosaur'Us (2001) [Ru] Repack R.G. Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
 magnet:?xt=urn:btih:59C151339DAECF402A200B8C8CB61AA625C93A1E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV (2005) [Ru/En] (1.01/1.0) 
 magnet:?xt=urn:btih:01054CC65C2A4F989FA180912D8D17D8F1E75451
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Pike: Операция "Громовержец" (1996) [Ru] Repack R.G. Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Krush Kill ‘N Destroy 2: Krossfire (1998) [En] (1.0) License GOG
 magnet:?xt=urn:btih:BFD22352DA57A34EF223E855A625591397B3600F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,7 +230,7 @@ The Lord of the Rings The Fellowship of the Ring game / Властелин Ко�
 magnet:?xt=urn:btih:5B8F4AB5714E218514FBF780F3681F6612505F25
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,7 +256,7 @@ Ghost Master / Повелитель ужаса (2003) [Ru/En] (1.0/upd1) License
 magnet:?xt=urn:btih:62D0E0BCDC95E3A4F49A668CCC5444C6A004E62A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,7 +282,7 @@ MTX Mototrax (2004) [Ru/En] (1.0) Rip NeoGame
 magnet:?xt=urn:btih:489052EE7FB27435E727E5C2992AAAFEBA60F8B4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,7 +310,7 @@ Gangsters 2 - очень увлекательная стратегия реал�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,7 +337,7 @@ Gangsters 2 - очень увлекательная стратегия реал�
 magnet:?xt=urn:btih:8044A765CDA04C265994069B2ECBEAEAAFFDCD42
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,7 +363,7 @@ Strategic Command: European Theatre – пошаговая военная стр
 magnet:?xt=urn:btih:24417BB60598C98FCA17CB381FAACE8759E8DA35
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,7 +389,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 magnet:?xt=urn:btih:05275B76EC9C0948F0EBD050EBA2FB430D82DC89
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,7 +415,7 @@ Giants: Citizen Kabuto (2000) [Multi] (1.400) License GOG
 magnet:?xt=urn:btih:ECB0885DE18EA52B651B17AED951671DE9FC7B07
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,7 +441,7 @@ Star Wars: Galactic Battlegrounds Saga (2002) [Ru/Multi] (1.10/dlc) License GOG
 magnet:?xt=urn:btih:0BCCCD9775C96776159455C8B0AEBA49F61441E7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,7 +467,7 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 magnet:?xt=urn:btih:89660EB35E81C7F37B2479F53C4AE44C89F96C58
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,7 +493,7 @@ Battle Chess реализует идею живых шахмат в средне
 magnet:?xt=urn:btih:DC621BB62092290145D5D88B5934619BF42BDA4C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,7 +520,7 @@ Ripper (1996) [Ru] Repack R.G. Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,7 +546,7 @@ Monster Garage базируется на телевизионном шоу ка�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,7 +600,7 @@ Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f)
 magnet:?xt=urn:btih:9CE681E75F3F6B46C5D664AA26B8F78269F58E49
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,7 +626,7 @@ Descent: Freespace (1998) [En] (1.06/dlc) License GOG [Battle Pack]
 magnet:?xt=urn:btih:606191035768FFDCE67E2D0D5D1C71DC92EC0F94
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,7 +652,7 @@ Prehistorik 2 - компьютерная игра компании Titus Interac
 magnet:?xt=urn:btih:80BD401D5E05E12F201EE9BF1484B9D39F05B077
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,7 +678,7 @@ Prehistorik - компьютерная игра компании Titus Interacti
 magnet:?xt=urn:btih:12B914EAF0BA74BCF5858034B08CDD1253F6E26E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,7 +21,7 @@ Original War [Ru] (P) 2001
 magnet:?xt=urn:btih:5087EEA74AECFAB29A2663C1862F1B272F925BC8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ Earthworm Jim Pack (1995-1999) [En] License I KnoW
 magnet:?xt=urn:btih:290DE1C5C6167EF8489D68FEABB96B63DFE8CF83
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,7 +74,7 @@ Corsairs: Conquest at Sea (L) [En] 1999
 magnet:?xt=urn:btih:33E7329DB20C2C635426379DFC740DFC45611BC8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,7 +100,7 @@ NASCAR Racing 3 - гоночный симулятор, посвященый че
 magnet:?xt=urn:btih:BB25DA423530B474E7510A58B41B0ECA5A91160D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,7 +126,7 @@ Incredibles / Суперсемейка [Ru] (L) 2004
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,7 +152,7 @@ Deadline [En] (RePack) 1996 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,7 +178,7 @@ Cтратегия в реальном времени, действие кото�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,7 +205,7 @@ Into the Void [Ru] (RePack/2.0) 1997 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,7 +232,7 @@ Worms [En] (RePack) 1995 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,7 +258,7 @@ Subwar 2050 (1993) [Multi] (1.2/dlc) License GOG [Complete]
 magnet:?xt=urn:btih:28FDE231E6FCA99D3A130C63A513591DF4047FBB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -286,7 +286,7 @@ Risk II обеспечивает достаточно широкое разно�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,7 +313,7 @@ Zork: Grand Inquisitor [Ru] (RePack) 1997 | SomeOneD
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,7 +341,7 @@ Indiana Jones and the Emperor's Tomb / Индиана Джонс и Гробни
 magnet:?xt=urn:btih:762175B6333E9D2239F9C0CDAAE3E428F19F52C1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,7 +367,7 @@ Lands of lore 3 [Ru] (RePack/1.07a) 1999 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,7 +393,7 @@ Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG game
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,7 +419,7 @@ Hundred Swords [Ru] (RePack) 2001 | RG Games/Pilotus
 magnet:?xt=urn:btih:999C620C7D56273BA70601B3D85BEB04B03D22B5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,7 +445,7 @@ Tachyon: The Fringe / Жестокие звезды [Ru] (L) 2000
 magnet:?xt=urn:btih:BE1F4F24594D2410574776DDA2E8E5354A684FF7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -472,7 +472,7 @@ World War Zero / Коммандос: В тылу врага [Ru/En] (RePack) 200
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,7 +498,7 @@ Syberia / Сибирь [Русификатор] (2002) [ui/dub] License 1С (Л�
 magnet:?xt=urn:btih:0BC5444FC78654CD37E57B4D749AA2186340D23E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,7 +524,7 @@ The Original Strife: Veteran Edition – это возрожденный кла�
 magnet:?xt=urn:btih:BD671A775DEA8FA5B6F717155F132965AE8B054B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,7 +550,7 @@ Hot Dog King: Fast Food Empire / Девушки за работой (P) [Ru] 200
 magnet:?xt=urn:btih:5B262CD402E29E97E3AA439E5E68EC9070A93397
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,7 +576,7 @@ NASCAR Racing 4 (2001) [Ru/En] (1.0.0.0) Repack WinterKiss
 magnet:?xt=urn:btih:9BD1D04F0E589D3E3232595DDB20F94B2FD65CF2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,7 +602,7 @@ Samorost 2 / Саморост 2: Звезданутое приключение [
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,7 +629,7 @@ Road to India / Дорога в Индию [Ru] (RePack) 2001 | RG games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,7 +655,7 @@ The Legend of the Prophet and the Assassin / Пророк и убийца [Ru] (
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -683,7 +683,7 @@ Operation Flashpoint: Cold War Crisis (OFP) — первая игра в сер�
 magnet:?xt=urn:btih:774F9DD1282DE449F47FBCA721E9C7526FF4C620
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

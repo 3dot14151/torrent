@@ -19,7 +19,7 @@ Just Cause (2006) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:ED1243A816D68BAC07F3B2AB5F530F051C568DCD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 magnet:?xt=urn:btih:3BF1BB4C668E20DEAF75FEE81E4C7DBBDFE5DD5D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 magnet:?xt=urn:btih:BA9249DEDD15ACC7F38AAF539CA3FFC25694D3A8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Mass Effect (2008) [Ru/En] (1.2/dlc) Repack FitGirl
 magnet:?xt=urn:btih:6657BA6857E9A68B7FB333CDA9F5531A4DE0AC37
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ American McGee presents Bad Day L.A. / Bad Day L.A. (2006) [Ru/En] (1.1.0) Repac
 magnet:?xt=urn:btih:C70BBD4F765FA358A1EAB677C2082559A89A7289
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ FlatOut - динамичная гоночная аркада с видом от 
 magnet:?xt=urn:btih:01BB6E6AB6D45A5CC9919202AC68FB7CD842F7A1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ FlatOut 2 (2006) [Multi] (1.2) Scene TiNYiSO [Enhanced Edition]
 magnet:?xt=urn:btih:8DCCC8BBA672D4DAA508FC7CA937A5EC5A4883FD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ FlatOut: Ultimate Carnage поднимает разрушительные гон
 magnet:?xt=urn:btih:A9BFF1E3D2E1B8B58F517105374096157BD9C45C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ SpongeBob SquarePants: The Movie (2004) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:EA4A0B97C1035D1073865B192862219E93DDD596
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Crashday – это своего рода «все-в-одном» для люб
 magnet:?xt=urn:btih:A5523AE1CB0DD34E084554589F6DC6C54324871A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Grand Theft Auto: Vice City (2003) [Multi] (1.0) License
 magnet:?xt=urn:btih:6C651B373E1B5C8B3E94FD3118247B2E8E97DB72
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Demolition Racer (1999) [Multi] (1.0) License
 magnet:?xt=urn:btih:E2C811343BC64EE3A7BD9C34390431CABE8BCA5B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Dungeon Scroll - это игра на правописание на тему п�
 magnet:?xt=urn:btih:3EE6757577D679601EB868348CDF33B6358CA8ED
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Insane / Безумие (2000) [Ru] (2.01) License
 magnet:?xt=urn:btih:29EA56EB14F25248AFF1566443A9247E33E8EA13
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Gangland: Trouble in Paradise (2004) [Ru] (1.4) License
 magnet:?xt=urn:btih:11EB510CAB7C992BBA83F236A9140D99CF4156BD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Vampire: The Masquerade Redemption (2000) [Ru/En] (1.1) Repack R.G. ReCoding
 magnet:?xt=urn:btih:0D769DC66655F4C021F4B2718D82D1434209711B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Postal 2 (2003) [Ru] (1337) License
 magnet:?xt=urn:btih:071D78FDF4D3A7663703708DCC7A6EE93DC0BAD7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ Scarface: The World is Yours - альтернативный взгляд на д
 magnet:?xt=urn:btih:C4765B862E04EF661CDF6A2E505F176A5CAB7C50
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ Turok 2: Seeds of Evil - это компьютерный шутер от пер�
 magnet:?xt=urn:btih:BCC9273328ED26553EAD53AA54815C769BFA2812
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ Dune 2000 (1998) [Ru/En] (1.6.7) Repack dixen18 [GruntMods Edition]
 magnet:?xt=urn:btih:5290F7A36F57DA9DEE96C3170166727213FAAE5B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 magnet:?xt=urn:btih:9974758567EF7B09C031A4C2177BC085A13CE9FE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 magnet:?xt=urn:btih:A2F650354FFDB0064F965F20702CEA421EDE53AC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ Let Them Trade (2025) [Ru/Multi] (1.1.7.9) Repack Let'sРlay
 magnet:?xt=urn:btih:3E85B4F4E4D4B0F9AF24C96506B9E64C5EAD7A77
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ BioShock (2007) [Ru] (Build 11242) Repack seleZen
 magnet:?xt=urn:btih:9D8C4C576D298471DBDE2DC82471B1EEEC435109
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ Max Payne 2: The Fall of Max Payne - жестокая любовная исто�
 magnet:?xt=urn:btih:4CA013A9FE1C6F0A775DB44D0C3C0E8E422894AB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ Dune 2000: Long Live the Fighters! - видеоигра, стратегия в �
 magnet:?xt=urn:btih:927D116AB1043860B7CF4C8B021DDE61EE076B97
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

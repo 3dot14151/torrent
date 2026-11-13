@@ -21,7 +21,7 @@ BioForge [Ru\En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:CC00853F31F299CD52BAC81A73B26C2BE2CEDC28
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ eXtinction / Тотальное истребление [Ru] (L) 2003
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ The House of the Dead. Антология (P) [Ru/En] 1998-2005
 magnet:?xt=urn:btih:1E9B6EE8D6D85B59DAD349039742881D30C902FE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Painkiller / Painkiller: Крещёный кровью (2004) [Ru] (1.64) Licens
 magnet:?xt=urn:btih:27E342EFFAFC306F938537C590B8F461B5EBBF41
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Doom 3: Fallen Angel [Ru] (L/3.0) 2005
 magnet:?xt=urn:btih:26D10CF0BA833761B3DB73C2C616535DF4CF6955
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Knight Rider: The Game 2 / Рыцарь дорог 2 [Ru] (P) 2004
 magnet:?xt=urn:btih:CED0C9D17CDB55AD9276928D00E2239E46460B93
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Pilot Brothers / Братья Пилоты: По следам полосатог
 magnet:?xt=urn:btih:D6E1AAD66A1A0C01886B9247402CDA650635E29B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ In Pursuit of Greed [En] (RePack) 1995 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,7 +230,7 @@ Adrenix [Ru] (Rip) 1998 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,7 +256,7 @@ Alien Legacy - это интригующая космическая страте
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,7 +284,7 @@ Globetrotter 2 [Ru] (RePack) 2001 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,7 +311,7 @@ Lode Runner 2 [Ru] (Rip) 1998 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,7 +340,7 @@ Deer Avenger 2: Deer in the City [Ru] (RePack) 1999 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,7 +367,7 @@ Prisoner of War / Побег [Ru] (RePack) 2002 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,7 +395,7 @@ Soulbringer / Ловец душ [Ru] (RePack) 2000 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,7 +424,7 @@ Vietcong 2 / Вьетконг 2 / Vietcong 2: First Bravo [Ru/En] (RePack/1.1) 2
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,7 +450,7 @@ Goblins Антология [Ru/En] (RePack) 1991-1993 | Kiriil Games
 magnet:?xt=urn:btih:73AFC6AE58F80F2336CB23F40B54FA4114CD470C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,7 +476,7 @@ King's Quest Коллекция [Ru] (RePack) 1985-1992 | Kirill Гамес
 magnet:?xt=urn:btih:A150CB261170502F0BBC645CD762E9DA9C239C41
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,7 +502,7 @@ Crusade: the Fight for Power [Gr] (RePack) 1995 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,7 +528,7 @@ Egyptian Prophecy: The Fate of Ramses / Египет 3: Проклятие Ра�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -554,7 +554,7 @@ Kane and Lynch: Dead Men (2007) [Multi] (1.0.0.129) License GOG
 magnet:?xt=urn:btih:80464219AFA9DFE6688F94D5046988A3D45D8EFF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -580,7 +580,7 @@ Terminal Velocity (1995) [En] (1.2) License GOG
 magnet:?xt=urn:btih:69647512D73A870D8271A8787FF64C4DAD4AAA1B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,7 +607,7 @@ Lode Runner 2 [Ru/En] (P) 1998
 magnet:?xt=urn:btih:C92A3A89BB286BCF7C2D711A27D5189B7206A97B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,7 +634,7 @@ X-Men: Children of the Atom первая игра Capcom во вселенной
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -660,7 +660,7 @@ Kane and Lynch: Dead Men / Kane and Lynch: Смертники (2007) [Ru] Licens
 magnet:?xt=urn:btih:2816413BF85342C41A08952476D036396F217CFA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,7 +687,7 @@ Eye of the Kraken [Ru/Fr] (RePack) 2002 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

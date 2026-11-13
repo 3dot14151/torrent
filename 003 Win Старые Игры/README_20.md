@@ -19,7 +19,7 @@ Delta Force - компьютерная игра, тактический шуте
 magnet:?xt=urn:btih:90E777FBF7A684EA92B93D27F194BA99A1461672
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Delta Force 2 - компьютерная игра, тактический шут
 magnet:?xt=urn:btih:81C14AF82D7BB7DECED0668A92B0889CFD2D8FEE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 magnet:?xt=urn:btih:141E73BB03D2EB67BB1C44B262043ACE0ED11451
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Delta Force: Task Force Dagger / Отряд Дельта: Операция "Ки
 magnet:?xt=urn:btih:DEE6C02CA4FD4AE93C1D8C5217ABF48C4BF8D032
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Delta Force: Xtreme / Delta Force: Первая кровь (2005) [En] (1.6.9.3)
 magnet:?xt=urn:btih:73487A5545D256FDC84989DBCFBF09955C88451A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 magnet:?xt=urn:btih:118274A45D3E3C392245B274EFAE6901312C9CAD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Avatar: The Last Airbender / Аватар: Легенда об Аанге [En] (
 magnet:?xt=urn:btih:EA5B290DD061B29F4327C57D9559ACF6862161A5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Planescape: Torment - одна из величайших игр в истори�
 magnet:?xt=urn:btih:E41B9B68CECD054DBA9A11DC0F26CCDD3E8BA480
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Seven Years War (1998) [En] Licence
 magnet:?xt=urn:btih:FF9E52CFCA382E9FB86D9AD4CAE6BFF434575C81
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,7 +254,7 @@ Blood Anthology / Blood Антология (1997 - 1998) [En] License
 magnet:?xt=urn:btih:F5E950589C6C5690169C841B61DC7D40147B8068
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,7 +281,7 @@ Safecracker: The Ultimate Puzzle / Взломщик (2006) [Ru] (1.01) Rip
 magnet:?xt=urn:btih:FEA5FBD21B0EFA71C4C7BBE66A9A0E9977200B9F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:CEE2A979CFDAB0701444A0B7BAB484384B7A938B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,7 +333,7 @@ Terminus - космический симулятор с реальной физ�
 magnet:?xt=urn:btih:752E5B0CBD6ADA9817C8C01875866F1CB12A1059
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,7 +360,7 @@ Star Wars: Empire at War - Forces of Corruption (L) [Ru] 2006
 magnet:?xt=urn:btih:A0E3A1EE72F0E9180FBF9319D7506EC3E1C3D8E6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,7 +386,7 @@ Just Cause 2 (2010) [Ru/Multi] (1.0.0.2) License GOG [Complete Edition]
 magnet:?xt=urn:btih:42C797D21227E1F3DBD07A5CCAE04CAA1EC62A81
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,7 +412,7 @@ Space Empires IV / Space Empires 4 / Космическая Империя 4 (20
 magnet:?xt=urn:btih:5FB1447BD66F013D461C9291ADB897997D808650
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,7 +438,7 @@ Return to Mysterious Island / Возвращение на таинственны
 magnet:?xt=urn:btih:08EB7315AE220442079D19966BB5351A2C7E36A6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,7 +464,7 @@ Rugrats Go Wild (2003) [Ru/En] (1.0) License
 magnet:?xt=urn:btih:B7E12B10731FFA985D4E578B125F1A6C3E409F51
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,7 +490,7 @@ Arcania: Fall of Setarrif / Аркания: Падение Сетаррифа (2
 magnet:?xt=urn:btih:EDBD639B12AA8A289324F95B9866291D3286D19F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,7 +516,7 @@ Carmageddon TDR2000 - продолжение игры Carmageddon и Carmageddon
 magnet:?xt=urn:btih:E41D4EB4D75BB16E4CD6FE78911F79FB9BAFD6C4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,7 +542,7 @@ Warhammer 40000: Dawn of War – Dark Crusade (2006) [Ru/En] (1.2) Repack xatab
 magnet:?xt=urn:btih:9F5A1A54ECA5344ACC5F910C315EC282094CEE64
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:47D5E1B5398AF951BFCAA95AE6417116320F9A68
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,7 +594,7 @@ Alien Shooter 2 - Survive Mod (2006) [Ru] (1.6.1 Alpha) Unofficial [Модифи
 magnet:?xt=urn:btih:8DB4B184CEDBC525765FB9B401866097FAAA486E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -620,7 +620,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 magnet:?xt=urn:btih:FB81A68CA1E73611B287D5CB6C58D6912E4EA392
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -646,7 +646,7 @@ Carmageddon Max Pack (1997) [En] (1.0/dlc) License GOG
 magnet:?xt=urn:btih:7C8A557E81319DCA3C122230109DC182089B91F0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -672,7 +672,7 @@ Ultra Fighters (1998) [En] (1.1) License
 magnet:?xt=urn:btih:9D38065910D7294FC16A5C3B2B490FCEBA78DBB1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

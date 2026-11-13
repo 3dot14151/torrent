@@ -19,7 +19,7 @@ X-COM – это сверхсекретное боевое подразделе�
 magnet:?xt=urn:btih:6D7C6F056E1AD9A6BDFFB9919B6AAF1CCC9AD438
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Hidden & Dangerous Anthology (2002-2005) [Ru/En] (1.51/1.12/1.50) License
 magnet:?xt=urn:btih:78A790FCF611DA61BD6354165D30B70B182BBBE6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Hidden & Dangerous 2: Sabre Squadron (2003-2004) [Multi] (1.12) License GOG
 magnet:?xt=urn:btih:941D6976B1F8B6BE7D06D694154C25FA032A0347
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Destroyer command / Эскадра смерти [Ru] (L) 2002
 magnet:?xt=urn:btih:0E7F91768222AF27C49FC736C1A68B32FD7A4C9A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,7 +124,7 @@ Tiberian Sun продолжает развивать тему противост
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,7 +150,7 @@ Nelly Cootalot: The Fowl Fleet - это приключенческий квес�
 magnet:?xt=urn:btih:A8102C5BA574D3880611F9E62B891FF18A9F3F62
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,7 +176,7 @@ X-COM: Interceptor (1998) [En] (1.2) License GOG
 magnet:?xt=urn:btih:82E0651E8560E0762860AAB1AB7770CF38F0801B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Burn / Пекло (2007) [Ru] (1.0) License
 magnet:?xt=urn:btih:B4510F71CC8F58ADB039039E0C8EBC54F8B0715B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,7 +231,7 @@ Subtrade: Return to Irata [En] (RePack) 1992 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,7 +262,7 @@ World War I / Первая мировая (2005) [Ru/Pl] (1.0) Repack Chernobyl
 magnet:?xt=urn:btih:465AC1E498531F851BF8333B02FEC1D59BCEEE7C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,7 +288,7 @@ Soldier of Fortune: Payback - пришло время снова вспомни�
 magnet:?xt=urn:btih:FE52BD2E14981474C908BF037A3B32DCD8C655EF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,7 +314,7 @@ Imperium Galactica 2: Alliances (2000) [Multi] (1.83) License GOG
 magnet:?xt=urn:btih:E1568098544E09409B9D978B1B18ED9D2C5E899E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -340,7 +340,7 @@ The Punisher / Каратель [Ru] (RePack) 2005 | R.G. REVOLUTiON
 magnet:?xt=urn:btih:B9E00C87A311293941C4D9E4D895935113CBBBB0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -366,7 +366,7 @@ Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
 magnet:?xt=urn:btih:99DE5FBFDF7DE1540A22C647258056701C5908F9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -392,7 +392,7 @@ Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
 magnet:?xt=urn:btih:FB967306260C4786D0C5C83F90FA7E11F4F29684
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,7 +421,7 @@ The Witcher: Enhanced Edition Director's Cut (2010) [Ru/En] (1.5.0.1304) Repack 
 magnet:?xt=urn:btih:40C9610D855DC5F739DB5F2138C00B023113B58B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,7 +447,7 @@ Biped — это динамичная приключенческая 3D-игра
 magnet:?xt=urn:btih:104E83CBC569D251953A47CF7DD549E21ABA5A76
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,7 +473,7 @@ Runaway 2: The Dream of the Turtle / Runaway 2: Сны черепахи [Ru] (Re
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,7 +500,7 @@ Disney's Tarzan [Ru] (P) 1999
 magnet:?xt=urn:btih:B5202214ED300E3892E5024453BD5BF9D52C2898
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,7 +526,7 @@ Wings of War / Крылья Первой мировой (2004) [Ru] (1.2) Repack
 magnet:?xt=urn:btih:F2672BA99E047835CF889787DB360A208053B479
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,7 +555,7 @@ The Witcher: Enhanced Edition (2007) [Ru/En] (1.5/dlc) Repack R.G. Games
 magnet:?xt=urn:btih:BEDA45B7279196C92F264E1434FAF70BBABB6DC8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -581,7 +581,7 @@ Wings of War / Крылья Первой мировой (2004) [En] (1.2) Licens
 magnet:?xt=urn:btih:95CC36D82CF199C6655C0FD5D0BBAB9F9A8ABC9D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -607,7 +607,7 @@ Wings of War / Крылья Первой мировой (2004) [Ru/En] (1.2) Rep
 magnet:?xt=urn:btih:7705CBC8A3E9FF38D74BCB2570E580BBF3D7FB77
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -633,7 +633,7 @@ Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License 
 magnet:?xt=urn:btih:833E747B6156F61C71AFFFE0B0372EF5419D61B2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:DE2C7DDA162B2C1CD3BA45407F9AC16B7408D2DC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,7 +689,7 @@ Maximus XV: Abraham Strong Space Mercenary / Space Hack / Меркурий 8 [Ru
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,7 +21,7 @@ Stranglehold — высокотехнологичный компьютерный
 magnet:?xt=urn:btih:1CCF7F92AFB82E38E1E00650DBE41D823D862A9C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -48,7 +48,7 @@ Black Moon Chronicles [Ru] (P) 1999
 magnet:?xt=urn:btih:2904C252089243F4FB3D1C70584CD647DC5073BD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,7 +75,7 @@ Black Moon Chronicles [Ru] (P) 1999
 magnet:?xt=urn:btih:E6D08403B9EDDE4E674DAEBA8C1E31C264A073AD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -102,7 +102,7 @@ RTS. Управляешь маленькими прикольными челов
 magnet:?xt=urn:btih:0DEDA4C43661B4F11B50C88475F60DDCB9F5A8DF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -128,7 +128,7 @@ Scratches: Director's Cut / Шорох: Последний визит (2007) [Ru
 magnet:?xt=urn:btih:213976E198E2F0F4B86E3D2A2455B0A85CAFB8C9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -155,7 +155,7 @@ Blue Shift возвращает нас в исследовательский к�
 magnet:?xt=urn:btih:5F52A452DC4C0CB2C20CEBE21BDE33DD55173C88
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,7 +182,7 @@ Blue Shift возвращает нас в исследовательский к�
 magnet:?xt=urn:btih:5F12C872A3BBAE4CCDFB5C599D589403F381BDEF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -208,7 +208,7 @@ Half-Life Opposing Force - самое первое дополнение к Half-
 magnet:?xt=urn:btih:6B65F111D2F6749B407EBF41BF00BE26C8D0F076
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -234,7 +234,7 @@ Myst V: End of Ages [Ru] (L) 2005
 magnet:?xt=urn:btih:DE3D8FBAA57AACB9581AEB979BB2674FDA0322C4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,7 +260,7 @@ Project: Snowblind / Операция Снегопад  [Ru/En] (P) 2007
 magnet:?xt=urn:btih:47396D0D6AD9A815041B946F88F5989948864D01
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,7 +292,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru] (L) 2004
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -323,7 +323,7 @@ Far Cry / Rambo 2 - Vietnam [Ru] (P/Mod) 2004/2007
 magnet:?xt=urn:btih:FF0AB6D4B74DF80536349D5D1C8FDE35AE1E0E38
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -351,7 +351,7 @@ Disney's 'Ultimate Ride' Roller Coaster [Ru] (P) 2001
 magnet:?xt=urn:btih:3F6037CD3EB5F29DE5BA5CC62A9B3B65D0953A6F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,7 +384,7 @@ Tron 2.0 / Трон 2.0 [Ru/En] (RePack) 2003 | RG Games
 magnet:?xt=urn:btih:522E5353E2AF17C73CA98D37CD8BA2D5E33F9ACF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,7 +412,7 @@ Full Throttle - одно из самых лучших детищ Lucas Arts. Э�
 magnet:?xt=urn:btih:E6DF676B147A9906858AB58410AC16A1F6A3A322
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,7 +438,7 @@ Aerial Strike: The Yager Missions / Крылатый охотник (2003) [Ru] 
 magnet:?xt=urn:btih:BEDA988266A2D17B14FE8C8AF03D43723E5F2D6C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,7 +464,7 @@ Crystal Caves – яркая игра с игровым процессом, го
 magnet:?xt=urn:btih:21C7E931D7CBE9C07B4C0B5B5535290028BD9A4D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,7 +490,7 @@ Crusaders of Might and Magic / Крестоносцы меча и магии (19
 magnet:?xt=urn:btih:30ABC286BB7E816990E035CEBBC9914549BC4FCB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,7 +516,7 @@ The Da Vinci Code / Код Да Винчи [Ru] (L) 2006
 magnet:?xt=urn:btih:A51C5983C5E2371194B25BB74BB79FF97D627896
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,7 +542,7 @@ Railroad Tycoon 2 (1998) [En] (1.55/dlc) License GOG [Platinum Edition]
 magnet:?xt=urn:btih:A95CD27FE212DD28BBD3BD4241FF7E66DBDA8633
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,7 +568,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.0
 magnet:?xt=urn:btih:C28292EC29A72BB279704F29CE37257E7748B017
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -594,7 +594,7 @@ Alpha Prime (2007) [En] (1.01) License RELOADED
 magnet:?xt=urn:btih:0CE199D2B9EADE6910CAFEC95D6E0B876C289A5B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,7 +623,7 @@ Shadow of Destiny/Memories (2002) [Ru] (1.0) Unofficial Фаргус [Тень �
 magnet:?xt=urn:btih:70AE1B062261DC6B878F34E5FCEADE0C217B48B2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,7 +649,7 @@ Aliens Versus Predator Classic 2000 включает в себя три один
 magnet:?xt=urn:btih:4C8A6C5C62E63B5E5E2469177A8271412EF53100
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,7 +675,7 @@ Aliens Versus Predator Classic 2000 включает в себя три один
 magnet:?xt=urn:btih:635ED9B5D192848B5E1FF9241939DBC9434B6C22
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -702,7 +702,7 @@ Impossible Creatures: Insect Invasion [Ru] (P) 2003
 magnet:?xt=urn:btih:EAE7EC582CAF16D21E9109946650B28DCA87A807
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

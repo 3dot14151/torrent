@@ -22,7 +22,7 @@ Blade Runner [Ru] (RePack) 1997 | Kirill Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -54,7 +54,7 @@ Alone in the Dark 1-3, Jack in the Dark Коллекция [En/Ru] (RePack) 1992
 magnet:?xt=urn:btih:C68F9DE12510DBC30091F6C8DD7A8228AA5BD993
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -80,7 +80,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:537E2B3983B28CBC6726E208A01D37286ACF97CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -106,7 +106,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:378D178EBAEF51771D9DDE5A8675D2F9C5A33651
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,7 +132,7 @@ Beltion: Beyond Ritual / Бельтион: Свод Равновесия (2009) 
 magnet:?xt=urn:btih:5F826CB9FDEC5BD78F6979242B8C2A8C9F5BF050
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -159,7 +159,7 @@ Earth 2150: Children of Selena / Земля 2150: Дети Селены [Ru] (Ri
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,7 +185,7 @@ Orion Burger [Ru] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:6166D76433FE9C2ABE385F057C77202F1F933DB9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -211,7 +211,7 @@ Mortal Kombat Trilogy (Kommunity Patch) - файтинг, не являющий�
 magnet:?xt=urn:btih:EB5925F58E47B8E8BD236910240E9DE72348C2D7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,7 +237,7 @@ Advent Rising предлагает вам насладиться идеальн�
 magnet:?xt=urn:btih:1185DEB3232B42D97141E86C1C1A7E81BD0FE9AC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,7 +263,7 @@ Enclave (2003) [Multi] (1.0.0.1) License PROPHET
 magnet:?xt=urn:btih:CCCC8AFA7BF16E4C165E0DD83BC9C6FA1870E8EA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,7 +289,7 @@ Project Eden [Ru/En] (RePack) 2001 | Фаргус
 magnet:?xt=urn:btih:0BEC66D54A0EEC8533951F39B83F5B23841FD6C5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,7 +318,7 @@ Clive Barker's Undying / Клайв Баркер: Проклятые (2001) [Ru/
 magnet:?xt=urn:btih:8AF2DCC644D79144B5695D3EF91179EF9BC2B126
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -345,7 +345,7 @@ Beat Down [Ru] (P) 1998
 magnet:?xt=urn:btih:EF6DC01ADD88D3D104CAFD66EC9C9F73E8E10BB0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -372,7 +372,7 @@ Rent-a-Hero [Ru] (P) 1998
 magnet:?xt=urn:btih:1F2683337E725A079B4C896A4F6D2A87CC6C057F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,7 +399,7 @@ Duckman: The Legend of the Fall [Ru] (P) 1997
 magnet:?xt=urn:btih:ED6A92E3D20785308DFFD5E32AF54B1B050A9DB9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,7 +425,7 @@ CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
 magnet:?xt=urn:btih:657BF5453AC125391F0B642CC46FFA0A525F1D7B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,7 +451,7 @@ War Wind 2: Human Onslaught [Ru] (P) 1997
 magnet:?xt=urn:btih:8042EFA0499E37FDC65E7BB7A11DE6008F933467
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -481,7 +481,7 @@ Ignition - компьютерная игра, изданная в 1997 году 
 magnet:?xt=urn:btih:E6E5712314ED68AC26F647369779EDE957F19159
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -509,7 +509,7 @@ Conflict: Desert Storm / Конфликт: Буря в пустыне [Ru] (RePa
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -537,7 +537,7 @@ Conflict: Desert Storm / Конфликт: Буря в пустыне [Ru] (P) 2
 magnet:?xt=urn:btih:47E65DECAD9FDB9232CB4DF23C862EB0EC4996EC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -564,7 +564,7 @@ Test Drive - это не просто гонки, а игра с сюжетом.
 magnet:?xt=urn:btih:E20F0A09D3E1331DC40768A8D264E14668887AC1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -590,7 +590,7 @@ Gene Troopers / Gene Troopers: Совершенные Убийцы [Ru/En] (RePa
 magnet:?xt=urn:btih:A6154E4430695A878E74B6225971C6E75B908D39
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ Duckman: The Legend of the Fall [Ru] (RePack) 1997 | RG Games/Pilotus, KirillGam
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ Wings of Honour / Крылья отваги [Ru] (P) 2003
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,7 +670,7 @@ Nine: The Last Resort / 9: The Last Resort [Ru] (RePack) 1996 | Kirill Games
 magnet:?xt=urn:btih:9D572303F50093B9167995CC1276008C9A0C3D85
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -696,7 +696,7 @@ Kingdom Under Fire: A War of Heroes [Ru/En] (P) 2001
 magnet:?xt=urn:btih:A29D90F6AA897DBEE23D40D36BE920E4E6290773
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

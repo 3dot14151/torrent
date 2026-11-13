@@ -19,7 +19,7 @@ Tony Hawk's Underground 2 [Ru] (L) 2004
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Athens 2004 - официальная игра XXVIII летних Олимпий
 magnet:?xt=urn:btih:BEE42EBAE58AF659077CEAFC5A872C912036547D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ RTL Biathlon 2008 / Биатлон 2008 (2007) [Ru] (1.0) Repack CoD - MW2
 magnet:?xt=urn:btih:C925408C64157FC3D1327C9E6C8611DC6C6943E1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Screamer 4x4 (2000) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:1D7F03E7E5B06CA72360B86783C748A5FD8E9F64
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Sydney 2000 (2000) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:EE09E7358BAC7EDB2F03E44BF552B93F619F56CA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
 magnet:?xt=urn:btih:5D47A6C2242C212B5512AFD04B0BE60065752555
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ I and Me (2016) [En/Zh] (1.0) Repack Other s
 magnet:?xt=urn:btih:66C89DBA47F57975D437A34AE89885CE18F867A3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) Repack R.G. Catalyst
 magnet:?xt=urn:btih:3498A469C58DDFC3A36ABB842086669F98833999
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Brothers in Arms: Earned in Blood — это тактический шутер, 
 magnet:?xt=urn:btih:F668E2E8845C2E045FD2532AF0AF9FDA98F054F5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
 magnet:?xt=urn:btih:56F1D8769A7C01F5CAC8BBDD290498271A7A5689
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Brothers in Arms: Hell's Highway является третьей частью в
 magnet:?xt=urn:btih:2E3C5CBD38E5AB6232FE1F76995D350ADF55E92E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) Licens
 magnet:?xt=urn:btih:95E94D2F2C80418EB2AD51012E3BE1C4B28C2B82
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,7 +333,7 @@ Beneath a Steel Sky (1994) [Ru] Repack R.G. Games
 magnet:?xt=urn:btih:704A59C2E8090AE9BF501FE54A02E1ED480B3DD6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,7 +359,7 @@ Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:F5559A6CAEEB9A5E126061540954298B4FC366CD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,7 +385,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:D930F7EC0631B59F1D607285BF4734C61178F0C8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,7 +411,7 @@ UFO: Aftershock / UFO: Возмездие [Ru] (L) 2005
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,7 +437,7 @@ Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26
 magnet:?xt=urn:btih:36591EBCEF0BC70E03FEC6173DD01AE81F78A74C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,7 +463,7 @@ Codename: Iceman (1990) [En] (1.033) License GOG
 magnet:?xt=urn:btih:E1C18A880570B557BD90E11EB5199AB9B829ABAF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,7 +489,7 @@ Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition
 magnet:?xt=urn:btih:5A4F0602B99F5598338759161ACBC25B26F08617
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,7 +515,7 @@ AGEod's American Civil War: 1861-1865 – The Blue and the Gray / AGEod's Americ
 magnet:?xt=urn:btih:2FD60D1EDE3E93150A0B5E72151269CD63F6B784
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,7 +541,7 @@ Western Outlaw: Wanted Dead or Alive / Отчаянный (2003) [Ru/En] (1.0) U
 magnet:?xt=urn:btih:E2DBE355E377A4822845EAD3D641C7C2DD5901DA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,7 +567,7 @@ Full Pipe / Полная труба [Ru] (P) 2003
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,7 +593,7 @@ Return of the Incredible Machine: Contraptions была выпущена в 2000
 magnet:?xt=urn:btih:ACF4CCFD7F880D2264D38405BF360078E89067CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -621,7 +621,7 @@ Risk II обеспечивает достаточно широкое разно�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -647,7 +647,7 @@ Legacy of Kain: Soul Reaver (1999) [Ru/En] (1.2) Repack Vasy@n
 magnet:?xt=urn:btih:6168E3DCE5165BC2E8F49E0A9270D90F5052EB4A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,7 +675,7 @@ Grand Theft Auto: London 1969 (сокр. GTA: London 1969) — первое до
 magnet:?xt=urn:btih:A74C2FF0744C550880DB48B02CA9DEE017D19422
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

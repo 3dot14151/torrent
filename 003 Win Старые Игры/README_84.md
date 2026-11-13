@@ -20,7 +20,7 @@ Beasts and Bumpkins [Ru/En] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:681C1D40ED37ADD764FDE77397DB8FA91E53C115
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ The 11th Hour [Ru] (RePack) 1995 | Kirill Games
 magnet:?xt=urn:btih:2E0AECC74B52502D980F01569C9208B33A5013BF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Warlords III: Darklords Rising (L) [En] 1998
 magnet:?xt=urn:btih:DBC3367E8CC9E1AD751302FBF6EBE4D9DE301561
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Warlords III: Reign of Heroes (P) [Ru/En] 1997
 magnet:?xt=urn:btih:358B8B7EED0BAF5D8A995C9E282BFD71001C347D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Heimdall Антология [En] (RePack) 1992-1994 | Pilotus
 magnet:?xt=urn:btih:8CD22B52421E57C0B0A77BBC8805040ADC933979
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:E4F8314766CFAB5AF6ABD51790F3B6644F5A55C3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Warlords 2 Deluxe (RePack) [Ru] 1995 | Pilotus
 magnet:?xt=urn:btih:CA0FAED77786B04A1B39D7C4AFDDB040F43F0897
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:61D9DDB4637D3678BBEC9EF4BE59BE371D862C5D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ The Inhabited Island: The Earthling / Обитаемый остров: Земл�
 magnet:?xt=urn:btih:F590338A50E86862FA85EE76CCE080841B0E85F3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,7 +255,7 @@ Clive Barker`s Undying [Ru] (RePack) 2001 | Pilotus
 magnet:?xt=urn:btih:D4C71A653C0FD751FA022FE14C2512EB9F0B8860
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,7 +285,7 @@ Armies of Exigo: Хроники великой войны [Ru/En] (RePack/1.4) 2
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,7 +311,7 @@ Wetlands [Ru] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:F5FD9B4262BA156B5237BBD8E7257B925536EAFF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:E2BD6BD97E91783B100BF82BF9A7DEC5E1E8C020
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:C89FBBD4004885870DE6EB6286FA17DBBDEB9E9D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,7 +389,7 @@ Clive Barker`s Undying [Ru] (RePack) 2001 | Pilotus
 magnet:?xt=urn:btih:0AC5548B98D7A8B88E41355A9497666C4E5D20A7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,7 +415,7 @@ Asterix and Obelix [En] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:FD1A27AD58E0D9F06D0C5A9A76733695B6E6A5BA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,7 +441,7 @@ Montezuma's Return [En] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:A4249527AE23E022B1250BD646FBBE0DEB7B295C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,7 +467,7 @@ Unreal Tournament [En] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:6C1724901F2B6D24D6F9511034F796CA2C1255CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,7 +493,7 @@ Shogun: Total War — компьютерная игра, положившая н
 magnet:?xt=urn:btih:FEEB401D6B98E2C76A3681690AAC43536452343E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,7 +519,7 @@ Atrox - стратегия в реальном времени. Поразите�
 magnet:?xt=urn:btih:6DA2BE8A11B0B77483866E1FEF153B15C9B4BC09
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,7 +545,7 @@ Embodiment of Scarlet Devil / Воплощение Алой Дьяволицы [
 magnet:?xt=urn:btih:7F4FDEFF840E9AB4868EEF93C2CF458F8AFE66E6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -573,7 +573,7 @@ AmerZone: The Explorer's Legacy [Ru] (RePack) 1999 | Kirill Games
 magnet:?xt=urn:btih:733AD7C0CE3DEE484C09013D2948AF6AD80C6C6F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,7 +599,7 @@ O.D.T.: Escape or Die Trying [Ru] (Rip) 1998 | Pilotus
 magnet:?xt=urn:btih:B17C3EFBD00C1C1E3EAE746F80C85598C33D94FE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -625,7 +625,7 @@ Unreal Gold [Ru/En] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:E71F9DFA901AD3FB7031245565789177B1C719AC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -651,7 +651,7 @@ Vivisector: Beast Within / Вивисектор: Зверь внутри [Ru] (R
 magnet:?xt=urn:btih:B6B4F51945973C951593AE320E532FD2629DBA16
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -679,7 +679,7 @@ SoulCalibur III [Ru/En] (RePack/Emul) 2005 (2012) | MarkusEVO
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

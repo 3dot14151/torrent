@@ -19,7 +19,7 @@ Star Trek: Bridge Commander – это космический симулятор
 magnet:?xt=urn:btih:C97CB31ABA4AD775E52AE30E65D34A48BCA9E832
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Serious Sam 2 - продолжение легендарного шутера с 
 magnet:?xt=urn:btih:D21DA428E0E713B4D6407E892C6114213601B9D7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Resident Evil 2 1999 - продолжение культовой серии зо
 magnet:?xt=urn:btih:2AA8D289A37AEF3B0CBC451FFFB3A1192E664BF0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ StarCraft — легендарная стратегия в реальном вр
 magnet:?xt=urn:btih:5781FF1F9FA7D2A97F64B93CAC45413889DA1C69
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ WarCraft II (2) (1995) [Ru] (2.02b/dlc) Repack EXROW [Battle.net Edition]
 magnet:?xt=urn:btih:B1D551184FCD941B996A3D06DCFF5444CBE2A1F3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Bully (2008) [Ru] (1.2) Repack EXROW [Scholarship Edition]
 magnet:?xt=urn:btih:6372D86D5C829DF8A5B8A0D23D1E1DECF1D50EDE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Overlord + Raising Hell (2007) [Ru] (1.4/dlc) Repack EXROW
 magnet:?xt=urn:btih:AE1987A619DA7841307902986F7BA6638A6A16E0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Dino Crisis 2 (2002) [Multi] (1.0hf2) License GOG
 magnet:?xt=urn:btih:E9851D25636A140856A8D33151C0E1C9D485CEE5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Dino Crisis (2000) [Multi] (1.0hf2) License GOG
 magnet:?xt=urn:btih:DBA80C2870927A63E70F0DCB680C7DB7705682F8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Overlord 2 (2009) [Ru] (1.0) Repack EXROW
 magnet:?xt=urn:btih:D0238067D10F13C6391936A1AA7EB785882400F3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Need for Speed Carbon – экшен гонки с открытым игровы
 magnet:?xt=urn:btih:599AD5DCF2C7F3030B97E272416ADBF8038B2BDD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack EXROW
 magnet:?xt=urn:btih:69538811A78DB1645DC565CF37610E24F7CD43AA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Warcraft 3: The Reign of Chaos (2003) [Ru] (1.26a/dlc) Repack EXROW
 magnet:?xt=urn:btih:1E2C246BA80776DF35DAC22C3155865C31D7D5DA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Combat Mission: Afrika Korps (2003) [Multi] (1.03 rdna fix) License GOG
 magnet:?xt=urn:btih:5501D35AB0A30770DA5426AC43591273A679F8E0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Combat Mission: Barbarossa to Berlin (2002) [En] (1.03 rdna fix) License GOG
 magnet:?xt=urn:btih:9832767ECB1D4BC8ADD6E483FCB0CCF1C0019606
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ The Dame Was Loaded (1996) [Multi] (1.0cs) License GOG
 magnet:?xt=urn:btih:AC45B9B541BE1C4A1489CA3FC429482034B67F06
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Heretic: Shadow of the Serpent Riders - темное фэнтези, шутер 
 magnet:?xt=urn:btih:C8041E457D4408DCC4E94D5995F0F55ECBDEF5DA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ HeXen: Deathkings of the Dark Citadel – модификация к оригин
 magnet:?xt=urn:btih:B3F902553BCD0ABC0ABF1AA3A8A1B4FD2CD35976
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ HeXen II (2) (1997) [En] (1.11 music fix) License GOG
 magnet:?xt=urn:btih:718DD40103F3C7D6155D042E63D7200974A2A2FB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 magnet:?xt=urn:btih:326E7B53303E8C9B7970CFBD69BF3A4E7916CA0E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
 magnet:?xt=urn:btih:1B672DE64497531BEF3D97E0F6A247CAE1F513C2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ N.I.C.E. 2 / BreakNeck (2000) [Multi] (1.1.0) License GOG
 magnet:?xt=urn:btih:3E4F97D1B65F2AEFF72E4FFB972ECB46EB1339F5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ Have a N.I.C.E day! (1997) [Multi] (1.0.4) License GOG
 magnet:?xt=urn:btih:D2E0B50DEEA354E02AFDE212709B660C810A6C41
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ Men of Valor (2004) [Ru/Multi] (1.3) License GOG
 magnet:?xt=urn:btih:9FFBC6D200CDD0C0FCCF0787D32E6AC61E88A4F1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ Men of Valor (2004) [Ru] (1.3) License
 magnet:?xt=urn:btih:E1CBF75C0B7843406778FB132094353CAFB6BBBD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ Jagged Alliance 2 (1999) [Ru/En] (26614298) Repack Wanterlude
 magnet:?xt=urn:btih:BC90E460142743D17627EF46B4039653F67A7738
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

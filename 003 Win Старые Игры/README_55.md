@@ -19,7 +19,7 @@ Resident Evil 2 Seamless HD Project (1998) [En] (1.0) Repack/Mod Andriel
 magnet:?xt=urn:btih:5AFBEE0E39D17AE01D0024588C9A0211B0813D22
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Realms of Chaos (1995) [En] (1.0) License GOG
 magnet:?xt=urn:btih:9C30B283CFFF45623108F56331E1863AD3C0EA75
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Pool of Radiance: Ruins of Myth Drannor - современная реинкар�
 magnet:?xt=urn:btih:F19B232874C582EB39F196C6A9394404A55861A4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Nosferatu: the Wrath of Malachi / Вампиры (2003) [Ru/En] (1.0) Repack R.G
 magnet:?xt=urn:btih:2C855DFEFEFF035AA9734E5AB744093504C578A5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Watchmaker / Тайна маятника (2002) [Ru] (1.0) License
 magnet:?xt=urn:btih:BE20D932078AFA5E75BAF30CE21D7C34291025C4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Kiss: Psycho Circus: The Nightmare Child [Ru] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:99D5F31725E3675DB91FA091559C238EFA96D47A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ XXV век. Планетная система Пандемия. Фантасти
 magnet:?xt=urn:btih:2CE54EB0CADE696444611110B700E3384F5A815D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Conflict: Desert Storm 2: Back To Baghdad / Конфликт: Буря в Пус
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ Imperial Glory (2005) [Ru/Multi] (1.1) License GOG
 magnet:?xt=urn:btih:9425A8814BB6C271CD22924EF30B6832CC459EE9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,7 +255,7 @@ Conflict: Vietnam / Конфликт: Вьетнамская война [Ru] (L)
 magnet:?xt=urn:btih:B95D1E10D11DCAB7BB29A7D1AF066ED4EFAF46FE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,7 +281,7 @@ Conflict: Desert Storm 2: Back To Baghdad / Конфликт: Буря в Пус
 magnet:?xt=urn:btih:9714D0CC42DFFB2690CE947DC8A112BB846BF071
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,7 +311,7 @@ Cross Racing Championship 2005 [Ru] (L/1.2.4-Version 1.50 build 907) 2005
 magnet:?xt=urn:btih:460D0BB23769DF642DC436121C5CDB505EA53C6D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -338,7 +338,7 @@ Halo: Combat Evolved - это отличный шутер от первого л
 magnet:?xt=urn:btih:E6406FC2EC5A0DD785B4302059FFD616217AB628
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,7 +365,7 @@ Anachronox (2000) [Ru/En] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:3C3CD8FE9597A24B828FC82C48CA9495723436F1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,7 +391,7 @@ Reah - потрясающе атмосферная приключенческа�
 magnet:?xt=urn:btih:2EBBA9F685E000D478CFF76E3C304F9501E3C229
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,7 +417,7 @@ Call of Duty 4: Modern Warfare [Ru] (RePack) 2007 | z10yded
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,7 +447,7 @@ Gun  (L) [Ru] 2006
 magnet:?xt=urn:btih:2C257CB4747543B377495E15D2440CF1615358A9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,7 +473,7 @@ Emergency Room 3 / Скорая помощь 2 (2001) [Ru] (1.0) License
 magnet:?xt=urn:btih:4192D2BFDCDFB63AC3603EAABE3328359A55A37B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -499,7 +499,7 @@ eXoDOS Collection (2019) [En] (4.0) Repack eXo
 magnet:?xt=urn:btih:6B901594EF61DA8E2D498F88B05D5ACEDD16E881
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -525,7 +525,7 @@ Far Cry - Ёкарный Бабай (2019) [Ru/En] (1.0) Mod Bert-Masters-Studio
 magnet:?xt=urn:btih:43A88919E408FE92E986661E9394D361BF1B88CF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -551,7 +551,7 @@ Magic Carpet 2: The Netherworlds [En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:5019EAE18A162790A6C446B07F2AE5BBF82D9B98
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,7 +577,7 @@ American Chopper [Ru] (L) 2004
 magnet:?xt=urn:btih:D15A5A74E3C70C0CA24268DE737CC47D42EB3C51
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -603,7 +603,7 @@ Emperor of the Fading Suns / Император Угасающих Звёзд (1
 magnet:?xt=urn:btih:4D6950EA464DE78930A55F1B349EB89D6D8BDB5B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,7 +629,7 @@ Nancy Drew: Stay Tuned for Danger / Нэнси Дрю: Опасность за �
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -655,7 +655,7 @@ Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:64207D220183CA4D5DC5EA30A9168271307EDC0F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,7 +681,7 @@ Atlantis 3: The New World / Атлантида 3 (2001) [Multi] (1.0) License GO
 magnet:?xt=urn:btih:2DEDB76EBFC7C6F3DAE00EC1B28C1ADF2084413C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,7 +19,7 @@ TRON 2.0 (2003) [Multi] (1.030) License GOG
 magnet:?xt=urn:btih:66A5B87C18D5A2BFE94F040F64D94D57DD3F3BE7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Splinter Cell: Chaos Theory [Ru] (RePack) 2005 | MexicanoTomato
 magnet:?xt=urn:btih:1BFCCFFBCC85715C31FF510315F801D4DD90EFE7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Icewind Dale Dilogy (2000-2002) [Ru/En] (1.42/02.01.016/dlc) Repack R.G. Catalys
 magnet:?xt=urn:btih:E4670585C1354EA82913133D1A87DD81C7C837B9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -100,7 +100,7 @@ Onimusha 3: Demon Siege / Онимуша 3: Осада Демонов [En/Ru] (R
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,7 +132,7 @@ Marvel: Ultimate Alliance [Ru/En] (RePack) 2006 | R.G. Games
 magnet:?xt=urn:btih:D22FF3E0863C1DC4517696E4F6EB4D5698AC6FA8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,7 +158,7 @@ Worms 8 in 1 Антология [Ru] (P) 1994-2005
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,7 +186,7 @@ Tony Hawk's Underground 2 (2004) [Ru/En] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:6B7592230B2D942784EE9BBD32C56C221D540B28
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,7 +212,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы (2004) [Ru/En] (1.506
 magnet:?xt=urn:btih:590B4803CD511D42F8580E656214F6393A575730
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,7 +238,7 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 magnet:?xt=urn:btih:3C15DCAB2EB7D3A4E2731F42DF83F1BB0E9B03D7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,7 +264,7 @@ Valhalla Chronicles / Вальгалла [Ru] (L) 2002
 magnet:?xt=urn:btih:CA9B1C3F4508E6DA1AB432A4935D9603DD7E4472
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,7 +290,7 @@ Ignition - гонки с видом сверху, уже доступны для
 magnet:?xt=urn:btih:B1727087AA5A811ED06DDD374B2405A35687ECEF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,7 +316,7 @@ Win3xO - The Win 3.x Collection v1.0 (2015) [En] (1.0) Repack Firstrun70
 magnet:?xt=urn:btih:E6222718AA6CA4177354C9014AEC9761F15E328E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,7 +343,7 @@ Star Wars: X-Wing Collector Series [Ru] (P) 1998
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -371,7 +371,7 @@ Tom Clancy's Ghost Recon Advanced: Warfighter [Ru] (RePack) 2006 | MexicanoTomat
 magnet:?xt=urn:btih:64EC1C9B62C67DDC4844C18BA7818EE88DE13F59
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -397,7 +397,7 @@ Tachyon: The Fringe / Жестокие звезды (2000) [Ru/En] (1.00.00.36r)
 magnet:?xt=urn:btih:242451A9C2C9B630789446C4098CC3155E27EF5D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -423,7 +423,7 @@ Wolfenstein 3D: Spear of Destiny (1993) [En] (1.0) License GOG
 magnet:?xt=urn:btih:8FBB8CFF3DE5C4973C67CDA7A96CC65FDE4AC602
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,7 +453,7 @@ Space Interceptor: Project Freedom / Стармагеддон 2: Свободн�
 magnet:?xt=urn:btih:949B2D303E56F442D346F0EEB597CB0770CA618A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,7 +479,7 @@ Fantasy Wars / Кодекс войны (2007) [Ru/En] (1.0.9) License GOG
 magnet:?xt=urn:btih:665A710FDF9FF2A9A1E767510ED9B21E847B1980
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -506,7 +506,7 @@ KA-52 представляет собой продвинутый вертоле�
 magnet:?xt=urn:btih:F3CC16A6AC7209E5B8580A8AD447B67A561AC7CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -535,7 +535,7 @@ World War II Sniper: Call to Victory / Снайпер: Дороги войны [
 magnet:?xt=urn:btih:BCD995E109BA577393203814E0F9D3DAFF550769
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -563,7 +563,7 @@ Mortal Kombat Deception - игра-файтинг из серии Mortal Kombat.
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -589,7 +589,7 @@ Syberia Dilogy / Сибирь. Дилогия (2002-2004) [Ru] (1.0.0.0/11) Repa
 magnet:?xt=urn:btih:49D3E7A84B3A678B444B5523E3D6CA3C4B043DD8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:EFBE796B08341F239FEFCE8CBBB112BB122B7777
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,7 +644,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Меха
 magnet:?xt=urn:btih:E1A078F4CEB597097B828263325B5EC350489525
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,7 +670,7 @@ Chrome / Хром [Ru/En] (P) 2003
 magnet:?xt=urn:btih:7C3D9D2ECFBB4396B7265226CC02A4F43E36CFD7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -700,7 +700,7 @@ Galactic Civilizations является космической пошагово�
 magnet:?xt=urn:btih:53719C9DA5273E91D5837625CF4126CAC08865CF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

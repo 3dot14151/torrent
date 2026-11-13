@@ -19,7 +19,7 @@ Captain Claw [Ru] (RePack) 1997 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ StarLord [En] (RePack) 1993 | RG games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Trolls [En] (Repack) 1992 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Strike Squad [En] (RePack) 1993 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ A-Train (RePack) [En] 1992 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Stranglehold — высокотехнологичный компьютерный
 magnet:?xt=urn:btih:A7ECD3C1A9E27B439DC36CC080A47B0B80B2F337
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -183,7 +183,7 @@ Elastomania двухмерный симулятор гонок на мотоци
 magnet:?xt=urn:btih:EC97F8F9869689A78188DAAE5531AB83606072BE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -210,7 +210,7 @@ Delta V [En] (RePack) 1994 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -237,7 +237,7 @@ TimeQuest [En] (RePack) 1991 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -263,7 +263,7 @@ Tunnel B1 [En] (RePack) 1996 | RG games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -289,7 +289,7 @@ Master of Orion [RUS] Dospet 1994 | Pet9948
 magnet:?xt=urn:btih:A75C83FDB9DF1686D800BD4FA3C34B7C610B28AD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,7 +316,7 @@ Cydonia: Mars: The First Manned Mission [Ru/En] (RePack) 1998 | RG Kirill Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,7 +342,7 @@ Rampart [En] (RePack) 1992 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,7 +368,7 @@ Fire and Ice [En] (RePack) 1994 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,7 +394,7 @@ Yendor 2 (сокращенно от Yendorian Tales part 2) - одна из мн
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,7 +422,7 @@ Spirit of Adventure [En] (RePack) 1991 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -449,7 +449,7 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -475,7 +475,7 @@ Star Trek: Deep Space Nine: The Fallen / Отверженные: Тайна те
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,7 +501,7 @@ Outpost - неординарный, амбициозный проект с не 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,7 +529,7 @@ Operation Blockade [Ru] (RePack) 2002 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -557,7 +557,7 @@ The Journeyman Project Turbo [Ru] (RePack) 1994 | RG Kirill Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -585,7 +585,7 @@ Sub Culture [Ru] (RePack) 1997 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -611,7 +611,7 @@ Battle Isle 2220: Shadow of the Emperor (RePack) [En] 1995 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -637,7 +637,7 @@ Tom Clancy's Splinter Cell: Double Agent [Ru] (RePack/1.02) 2006 | Naitro
 magnet:?xt=urn:btih:50759211E07DF769EA92AC34B0169C5E343FBE1E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,7 +663,7 @@ Tomb Raider: Legend / Tomb Raider: Легенда [Multi6/+] (RePack/1.2) 2006 |
 magnet:?xt=urn:btih:345CA22902142232C92E4067E1B576857CBAE507
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,7 +689,7 @@ Recoil [Ru] (Rip) 1999 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

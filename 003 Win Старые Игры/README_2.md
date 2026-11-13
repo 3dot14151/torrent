@@ -19,7 +19,7 @@ Test Drive Unlimited (2007) [Ru] (1.45a) License
 magnet:?xt=urn:btih:647E9B2B52E0C827BCE6BBB5E063365951A7F15C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Test Drive Unlimited (2007) [Multi] (1.66a) License
 magnet:?xt=urn:btih:0E9EAEACADFA4A07EB4AC9EE3B4B6B5C22FA89AC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ The Punisher (2005) [En] (1.0) License
 magnet:?xt=urn:btih:22F90CE09091F18D61664E40514DDF22272345BD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Max Payne (2001) [En] (1.05) License
 magnet:?xt=urn:btih:B1E4195FDCB78CFFFD33FA2192F972036C56CA31
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ The Last Express (1997) [En] (1.0) License GOG
 magnet:?xt=urn:btih:CD7287B82FAF78DEBE96C9265F34782C6317F4C5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Knights of Honor (2004) [En] (1.05) License GOG
 magnet:?xt=urn:btih:05B16CC7252FC49B387B6AAB2EA96C0326545D1A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Catwoman (2004) [En] (1.0) License
 magnet:?xt=urn:btih:0E23AD3DDC8228B5A5F39B1A7C7D532C4422AD70
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Hitman: Contracts (2004) [En] (1.74) License GOG
 magnet:?xt=urn:btih:EA713C7DB3D3F6B0C719672541C3AD1684AB858C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Rome: Total War (2004) [Ru/Multi] (1.5/dlc) Repack kosak4 [Launcher Edition]
 magnet:?xt=urn:btih:F6E9EEFA157723338F428CA4CB8363A858EFD402
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ FlatOut 2 - это аркадный автосимулятор с акценто
 magnet:?xt=urn:btih:64D2E98DF7BAF569CBEA7AED9612598A541C239D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ FlatOut - динамичная гоночная аркада с видом от 
 magnet:?xt=urn:btih:803817FABBB923C5072643D888CFF06F0CFEABB6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Need for Speed: Underground 2 - это аркадный гоночный сим�
 magnet:?xt=urn:btih:12E0D589CDB7287F007F2D37926EEEE8CB8A7893
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Mafia: The City of Lost Heaven / Мафия (2002) [En] (1.2) License
 magnet:?xt=urn:btih:A543B4C39E3FEF59B941771FB2FF0680BE00071B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,7 +358,7 @@ Total Overdose (2005) [Ru] (1.0) License
 magnet:?xt=urn:btih:DB7206C7B3AD588B8CFAA8AA2EFB7EFB9B0913EA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,7 +384,7 @@ Grand Theft Auto III (3) (2002) [Ru/Multi] (1.1) License
 magnet:?xt=urn:btih:A1DAE7B5B190FC80E28B52D44F9DB3A9D0C0E1E1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,7 +410,7 @@ Serious Sam 2 (2005) [Ru] (2.0.7.0) License
 magnet:?xt=urn:btih:0FA485816AD0B8341D121FC013B2AE191CDF0FD0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,7 +436,7 @@ Juiced (2005) [En] (1.0) License
 magnet:?xt=urn:btih:D932C813FCEBF45E7DD3812069A6DF280A08D958
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,7 +462,7 @@ The Punisher / Каратель (2005) [Ru] (1.0) License
 magnet:?xt=urn:btih:722FF01DEB06A7986C901FD392381A3B275CAEF4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:51D7CA3567FA5EF52AD88CAE8DF421D6FA2A1D34
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,7 +514,7 @@ Nosferatu: The Wrath of Malachi / Вампиры (2003) [Multi] (1.0v3) License 
 magnet:?xt=urn:btih:F99E3DAAA422F96A8D37D2D6A056EE69190290D9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,7 +540,7 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack seleZen [Complete Edition]
 magnet:?xt=urn:btih:184F9B70831CA271B9D1EC511BD2989EE96BA4A6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,7 +566,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
 magnet:?xt=urn:btih:ED12339976B40AC768123791AB562CBB447FA5B6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,7 +592,7 @@ Dungeons and Dragons: Dragonshard / Кристалл всевластья (2005)
 magnet:?xt=urn:btih:059D9E07B6C9CA1505CA9FC81773990D85AE8BFA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,7 +618,7 @@ Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
 magnet:?xt=urn:btih:37F747EE7C6DD7AA1E9D29AB699408643C086BF8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,7 +644,7 @@ The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
 magnet:?xt=urn:btih:5FD45DCDB86869A51AE63F5A5941473B10FDFF35
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,7 +670,7 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 magnet:?xt=urn:btih:39F8BE0F277185873475164087392D52F37622B4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

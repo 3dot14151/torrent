@@ -19,7 +19,7 @@ Eric the Unready (1993) [En] (1.01) License GOG
 magnet:?xt=urn:btih:30FBC726ED27629519FC3B81FB3783233FEFF636
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Resident Evil 2 (1998) - ReEnhanced Edition [Ru/En] (1.1.0) Repack/Mod KaSix
 magnet:?xt=urn:btih:55953607D065A7FC4047DDA6ED5356319D9CF41F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Blazing Angels 2: Secret Missions of WWII - это аркадный авиаси
 magnet:?xt=urn:btih:A415C37508E60DAA90D05F1EB7BCED7353B2E669
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Resident Evil 3 - Nemesis (1999) [Ru/En] (1.0.1) Repack/Mod KaSix
 magnet:?xt=urn:btih:1CB0FF65487A85A75DCAC9A9480D4A2C0630EE48
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ American McGee’s Alice переосмысляет классические с�
 magnet:?xt=urn:btih:45CECAC55BC2A58CC2D647F2877D7F64867591D4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Dogfight: Battle for the Pacific - аркадный авиасимулятор
 magnet:?xt=urn:btih:E3B300D58D7E1F59077559D17757B4FCBEAFD793
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Hard Truck 2: King of the Road / Дальнобойщики 2 (2000) [Ru/En] (8.
 magnet:?xt=urn:btih:A01BC236B814D6699DB0BA20ED20562794AE663B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Journey to the Moon / Voyage: Inspired by Jules Verne / Жюль Верн: Пу�
 magnet:?xt=urn:btih:456BB7A64588D189D89BE780E31A46105D36ECA6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ The Elder Scrolls IV (4): Oblivion (2007) [Ru] (1.2.416/dlc) License [Gold Editi
 magnet:?xt=urn:btih:C19F3C69794B4033DB4E0F4EB6EF32516A716A8F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Doom 3 (2004) [Ru/En] (1.3.1/dlc) Repack dixen18
 magnet:?xt=urn:btih:085AA023AABEB894E45622F9533BA2784DDB2D3D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Jazz Jackrabbit 2: The Secret Files (1998) [Multi] (1.24hf) License GOG
 magnet:?xt=urn:btih:2075889F6271ABE920E3B4A45B571F0E0B817D94
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ FlatOut - динамичная гоночная аркада с видом от 
 magnet:?xt=urn:btih:53E8C9FB7DF4A484A5C70EB7CDB8D0ABFB045FAB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ FlatOut 2 - это аркадный автосимулятор с акценто
 magnet:?xt=urn:btih:BF58FC13BA2339CB364262B353349ED375F31391
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Bad Boys: Miami Takedown / Bad Boys II / Плохие Парни 2 (2004) [Ru] (
 magnet:?xt=urn:btih:41EC9233947DC633B757CEA763BCF29D0722A731
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Juiced (2005) [Ru] (1.0) Repack R.G. Element Arts
 magnet:?xt=urn:btih:4C1D9A3C7356A708DF6E38BF3D8664836196B5F8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:558E8CA2698804D216072D10ED9B27F958CFC561
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Juiced 2: Hot Import Nights (2007) [Ru] (1.0) Repack R.G. Element Arts
 magnet:?xt=urn:btih:E87B981042206FC0CA46513A795B89FEE75A7A5F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ Onimusha 3: Demon Siege (2004) [Ru] (1.1.0.0) Repack seleZen
 magnet:?xt=urn:btih:67C9AA024C07378B277E5018E060AD7C9B2AAD89
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ Call of Juarez - эпичная приключенческая FPS-игра в �
 magnet:?xt=urn:btih:CD2662FBD203D557179C335BC88422CEAF1F227A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ Dark Fall: The Journal (2002) [Ru/En] (6.00) License GOG
 magnet:?xt=urn:btih:BCE13FA2DF01CAFDD44150BED026BDA6C5B067AD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ Dark Fall 2: Lights Out (2004) [Ru/En] (6.00) License GOG [The Director's Cut Ed
 magnet:?xt=urn:btih:A8F1979FF2D43FE9AEF3846F8193BE754F6C12FA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ True Crime: New York City (2006) [Ru] (1.0) License
 magnet:?xt=urn:btih:B430B837D40A45687AB35C561A1ED6DC98F4579A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ True Crime: Dilogy (2004-2006) [En] (1.0/1.0) License
 magnet:?xt=urn:btih:96A991D0BF7F54E4BB4FA46B58F86A25885AB121
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ Desperados 2: Cooper's Revenge (2006) [En] (1.01) License GOG
 magnet:?xt=urn:btih:B1B4E9267B9A4FE6ECBDDC0F37F5AB21E42432F2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ Desperados 2: Cooper's Revenge (2006) [Ru] (1.1) License
 magnet:?xt=urn:btih:6E73EB41B1C51EE25A63C3112B17C225513C7C83
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ Mob Enforcer - это шутер от первого лица (FPS), разра�
 magnet:?xt=urn:btih:D7306119DDDB22BAA6F61D79CD6884CA6E337E70
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

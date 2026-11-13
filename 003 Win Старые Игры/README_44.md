@@ -19,7 +19,7 @@ Delta Force - тактический шутер от первого лица. В
 magnet:?xt=urn:btih:FE9CB8B5F3F46E5D14AE816F4AF28C99E6854BEB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Jazz and Faust / Джаз и Фауст [Ru] (RePack/2.0)  2002 | RG Games/Pilot
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Tropico - экономическая стратегия в латиноамер�
 magnet:?xt=urn:btih:EA02573069AFF72F8B7BD29ABD420B6B4890C4E4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Tropico - экономическая стратегия в латиноамер�
 magnet:?xt=urn:btih:E85AAD7B7DF50FBE500437CEE50AAF05156DA0B2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ kill.switch [Ru] (RePack) 2004 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ The Great Escape / Великий побег [Ru] (RePack) 2003 | RG Games/Pilot
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,7 +178,7 @@ Republic: The Revolution / Республика: Революция [Ru/En] (ReP
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,7 +205,7 @@ Real War / Универсальные солдаты [Ru] (RePack) 2001 | RG Gam
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,7 +231,7 @@ Line of Sight: Vietnam [Ru] (RePack) 2003 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,7 +258,7 @@ Celtic Kings: Rage of War / Король друидов [Ru] (RePack) 2002 | RG 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,7 +284,7 @@ Celtic Kings: The Punic Wars / Король друидов 2: Пунически
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,7 +310,7 @@ Industry Giant 2 Gold Edition / Промышленный гигант II. Зол
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,7 +336,7 @@ Commandos: Strike Force [Ru] 2006 | R.G. ReCoding [Rip]
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,7 +362,7 @@ Ancient Evil - это hack-and-slash РПГ в стиле Diablo. Хорошая
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,7 +389,7 @@ Screamer [En] (RePack) 1995 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -416,7 +416,7 @@ F/A-18E Super Hornet [En] (RePack) 2000 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,7 +443,7 @@ Spirit of Speed 1937 [En] (RePack) 1999 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,7 +469,7 @@ O.R.B. Off-world resourse base / О.Р.Б: Орбитальные Ресурсн
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -496,7 +496,7 @@ Rayman M - одна из частей серии игр Rayman, буква "M" �
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,7 +522,7 @@ C помощью этой игры у тебя появилась возможн
 magnet:?xt=urn:btih:8CD8D2526C345A2578E585C25E28E75941FF1275
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,7 +548,7 @@ Mad Max в воздухе, перенесенный в тридцатые год
 magnet:?xt=urn:btih:A0EBD0C523A0C0F3A25CC08F7BDB2A2658326BDC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -577,7 +577,7 @@ Earthworm Jim 2 - продолжение увлекательных приклю
 magnet:?xt=urn:btih:B585885E059282990B08B1B8ED2B7003AFAED9BC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,7 +604,7 @@ Crazy Taxi [Ru] (RePack) 2002 | RG games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:9B351CEDD0067B9DDCB6861C0249866B0641179B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,7 +658,7 @@ Alexander: The Heroes Hour / Александр: Эпоха героев [Ru] (L
 magnet:?xt=urn:btih:1817249FDCC541CF657434F45FB6804E884266F8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,7 +684,7 @@ I.G.I. Дилогия [Ru/En] (Rip/RePack/1.0-1.2) 2000-2003 | R.G. Catalyst
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

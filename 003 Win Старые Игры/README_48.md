@@ -20,7 +20,7 @@ Strike Foghters Project One [En] (RePack/Upd.2008) 2002 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Age of Wonders - красивая походовая стратегия в фэ�
 magnet:?xt=urn:btih:33B60ED24DC1736E06C2789E08F7988B60DBEF6E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Titus the Fox: To Marrakech and Back (1992) [En/Fr] (1.0) License GOG
 magnet:?xt=urn:btih:08E1469A3413EAC3815ED14EFE622BF56155D0DE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ MDK 2 (2000) [Ru/En] (1.003) License GOG
 magnet:?xt=urn:btih:C399C537B634D6D93F72984C9B5BCB4213795729
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,7 +124,7 @@ Tron 2.0 [En/Ru] (RePack) 2003  R.G. Catalyst
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Alice - это необычный 3D-шутер от 3-го лица, основ
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ ECHO: Secrets of the Lost Cavern / Тайна забытой пещеры [Ru] (
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -206,7 +206,7 @@ Oni / Они [Ru] (RePack) 2001 | Pilotus
 magnet:?xt=urn:btih:3A51920FF89AA01B3BD2DC2B3C4A327530F2E4A3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,7 +232,7 @@ The Suffering: Ties That Bind (2005) [Ru/En] (1.0) License GOG
 magnet:?xt=urn:btih:E5400102AD2493FF799B71160C8591ADD1340B2D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,7 +258,7 @@ Destruction Derby [En] (RePack) 1995 | RG Games\Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,7 +284,7 @@ Dark Colony [Ru] (P) 1997
 magnet:?xt=urn:btih:8B49EF106BEC7F7FE3553F17863E51260203EF5E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,7 +310,7 @@ Warlords: BattleCry 3 (2004) [Ru/En] (1.0.3) License GOG
 magnet:?xt=urn:btih:76E6082DDC293DACA78BFAE411D938A91CBB84BE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,7 +336,7 @@ Jagged Alliance 2 / Jagged Alliance 2: Агония власти (1999) [En] (1.
 magnet:?xt=urn:btih:DBF8E9A431120073CB5CAB720A301E1FDA02F591
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -364,7 +364,7 @@ Disney Epic Mickey 2: The Power of Two / Disney Epic Mickey 2: Две Леген
 magnet:?xt=urn:btih:3C8210EDBA241DD1B57BDDC9329FE151B6C7625B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,7 +390,7 @@ Mobile Forces — несомненный Хит, причём высокой п�
 magnet:?xt=urn:btih:9BBAF5E684A303EF181ACF9D1622AC28ADE0FE83
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,7 +417,7 @@ Daemonica / Daemonica: Зов Смерти [Ru] (P) 2005
 magnet:?xt=urn:btih:735FC49EAABF5A3232F151A0BB4EF164B9BAC293
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,7 +443,7 @@ Icewind Dale / Долина Ледяного Ветра (2001) [Ru/En] (1.42/dlc
 magnet:?xt=urn:btih:920BDF608B5273A8CC08A136335DB630B5861282
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,7 +469,7 @@ Gobliiins [Ru] (RePack) 1991 | RG Games/Pilotus
 magnet:?xt=urn:btih:D85F32C83767606542428D14ACEA6E8144E0BB2E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,7 +500,7 @@ Battlezone [En/Ru] (RePack/1.5.117) 1998 | Ken Miller
 magnet:?xt=urn:btih:A81D34FE9CF910E139B3260C511D8CBCE3AE694E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,7 +526,7 @@ Pitfall: The Lost Expedition [Ru/En] (RePack) 2004 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,7 +553,7 @@ Shattered Steel [Ru/En] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:7FE47DC2437A54CBB4FBC490C6B1708DF29DF175
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,7 +582,7 @@ GT Legends [Multi/Ru] (RePack) 2005
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,7 +608,7 @@ Frogger Beyond [Ru] (L) 2003
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,7 +636,7 @@ Ground Control [En/Ru] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:36F9374587CCB907D8B26A8365FA92F70D025A08
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,7 +662,7 @@ Fable: The Lost Chapters (2005) [Multi] (1.0) License PROPHET
 magnet:?xt=urn:btih:AE3A974F1C241752F916F8810FE081047ED471C6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -688,7 +688,7 @@ Operation Trondheim 2: Red Alert / Операция Трондхей 2: Крас
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

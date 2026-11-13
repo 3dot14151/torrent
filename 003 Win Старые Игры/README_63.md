@@ -19,7 +19,7 @@
 magnet:?xt=urn:btih:7775C676E1D4A622EA1A02806119742B2037AFD3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Star Wars: Rebel Assault [En] (RePack) 1993 | Pilotus
 magnet:?xt=urn:btih:8C1E2B1ED2FF14C36761EC1E99C706B7DF251722
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Dyna Blaster [En] (RePack) 1992 | Pilotus
 magnet:?xt=urn:btih:1B8A1432B24A017F330B1DC285DBAD51D84ACD51
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ The Lost Vikings Антология [En] (RePack) 1992-1997 | Pilotus
 magnet:?xt=urn:btih:D2911771F60B1213E7230CA0E9507C4C5EF5B0F7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Teenage Mutant Ninja Turtles: The Video Game / TMNT: Черепашки-нинд
 magnet:?xt=urn:btih:58A900F9BA7E55A7B1A0EC7C07B45F4D1DF21DD9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Sherlock Holmes: The Case of the Silver Earring / Шерлок Холмс. За�
 magnet:?xt=urn:btih:06054824574DFE95AFEC8B274861789A815B3897
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Toyland Racing / Игрушечные гонки [Ru] (L) 1998
 magnet:?xt=urn:btih:F57236DEAD08F00D3D7A023CE28C7BCA88250941
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Warrior Kings (2002) [En] (1.4) License GOG
 magnet:?xt=urn:btih:02766C27432D2EF718D5497004CB4EC8280AA31B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Tom Clancy's Splinter Cell (2003) [Ru/En] (1.3) Repack R.G. Revenants
 magnet:?xt=urn:btih:C61BBE6059BEFBFDED535103DC5B785B792155D8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow (2004) [Ru/En] (1.0) Repack R.G. Re
 magnet:?xt=urn:btih:1525C6C32706FD0C95EA8B0D9547867657B6C0B5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Star Wars™: Jedi Knight™ - Jedi Academy™ (2003) [Multi] (1.01A) License GO
 magnet:?xt=urn:btih:18B77C0942418DF54AACEC0CC45CA64B2B9B838E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Star Wars™: Knights of the Old Republic (2003) [Multi] (1.0.3.0) License GOG
 magnet:?xt=urn:btih:F973740C6009AB7E6F4C32AA57F236D40F2645A8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Earth 2150: Lost Souls / Земля 2150: Воды Стикса (2002) [Ru/Multi
 magnet:?xt=urn:btih:85B7B9A40CA8A66DA13D19A054AB5FB75A1AB7B8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война миров
 magnet:?xt=urn:btih:81CB997404208C3A17D53BE3D1F021162A6B8D9A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Earth 2150: Moon Project / Земля 2150: Дети Селены (2000) [Ru/Mul
 magnet:?xt=urn:btih:C0779862D112A93B833FA704D3E968E719049E57
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Stranglehold - высокотехнологичный компьютерный �
 magnet:?xt=urn:btih:FAA52758F9FF11D5A426DC950215AC7BA67D51C8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Alien Shooter + Expansions / Alien Shooter: Начало вторжения (200
 magnet:?xt=urn:btih:0374B143083DC115C6F2A1F6E4136902EBE7ECF9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ Earth 2160 / Земля 2160 (2005) [Ru/En] (1.3.8) License GOG
 magnet:?xt=urn:btih:CF510175DE3C65F8A54B0505AC734FD5CEFF493F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ Star Wars: Starfighter (2002) [En/Sp/It] (1.0) License GOG
 magnet:?xt=urn:btih:D8B9240510D0C550288AAD0E6CDCF7641E68AE2D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ Adventures of Maddog Williams in the Dungeons of Duridian [En] (RePack) 1992 | P
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,7 +540,7 @@ Monty Python: Quest of the Holy Grail / Монти Пайтон: В поиска
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,7 +566,7 @@ Shadow Master [Ru] (P) 1998
 magnet:?xt=urn:btih:376315CDB27A1C2EF6D2169A9CB76B6B38A0D948
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,7 +593,7 @@ Jetstrike [En] (RePack) 1994 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,7 +619,7 @@ Time Gate: Knight's Chase [Ru] (RePack) 1995 | Kirill games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -648,7 +648,7 @@ Sid Meier's Colonization (L) [En] 1994 | GOG
 magnet:?xt=urn:btih:048D0D095DA2B1F9C0980000B3F74AD72165B49B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,7 +678,7 @@ Tomb Raider является игрой, которая не нуждается 
 magnet:?xt=urn:btih:3186114B036AAC1A4D4C23BFB8A159B47544687D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

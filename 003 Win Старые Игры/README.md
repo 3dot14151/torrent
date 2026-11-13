@@ -20,7 +20,7 @@ The Elder Scrolls IV: Oblivion - Game of the Year Edition Deluxe - это кул
 magnet:?xt=urn:btih:AF094E5016189C8B32A86216208EB7CAB9FDA5E5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Far Cry: Escape From Krieger Corp (2026) [Ru/En] (1.2) Repack/Mod Bert-Masters-S
 magnet:?xt=urn:btih:1A0A8C23F67E1BA93CBE95826D0DEFDD93315EB8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Blaster! (2026) [Ru/Multi] (rc8f/dlc) License GOG
 magnet:?xt=urn:btih:B022F1DDD00F8B0101D6CF08A74C499C66D62295
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Golden Gate / Золотые Ворота (2014) [Ru] (1.38) License GOG
 magnet:?xt=urn:btih:EC1EF575FFC5CD5C977490B35D0BE16589EAAA07
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,7 +124,7 @@ Golden Swirl (2026) [Ru/Multi] (Build 25951944/dlc) Scene Tenoke
 magnet:?xt=urn:btih:52FB1F5EC0319581AE9DF27E156CFDF98622F46D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,7 +150,7 @@ Peter Jackson's King Kong: The Official Game of the Movie (2005) [Ru] (1.0.0.1) 
 magnet:?xt=urn:btih:BBAA4AE654EF4FD41A3E6D96C8B030AF960B5930
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,7 +176,7 @@ Cocoto Kart Racer / Кокото: Адский картинг (2006) [Ru] (1.0) 
 magnet:?xt=urn:btih:680796063DAE6229A4D60802EF64EF0CA9C32C86
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,7 +202,7 @@ Darwinia - это оригинальная стратегия в реальн�
 magnet:?xt=urn:btih:676CD79104E24336BA849B4CEEDD1233DF11AEEF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,7 +228,7 @@ Hard Truck 2: King of the Road / Дальнобойщики 2 (2000) [Ru] (6.6) 
 magnet:?xt=urn:btih:C4ECD79622EE16A07F2EB2F88B104ACDE40FFA23
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,7 +254,7 @@ Moonlighter 2: The Endless Vault (2025) [Ru/Multi] (1.0.42.3/dlc) Repack FitGirl
 magnet:?xt=urn:btih:A9281751EB2AF4860F7113B4DC5B3EAAACED97C6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,7 +280,7 @@ Mysterious Journey II: Chameleon (также известная как Schizm II
 magnet:?xt=urn:btih:A18B69E27DBF3E8B678F2D97F67695FDBD2D1BDD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -306,7 +306,7 @@ Stargunner - это горизонтальный скролл‑шутер 199
 magnet:?xt=urn:btih:EE31DD071A775E35D00CE2DB8D8E9113459E802E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -332,7 +332,7 @@ Earthworm Jim, 2, 3D (1996-2000) [En] (1.0) License GOG [Антология]
 magnet:?xt=urn:btih:C5CA40AD31D694EB9E3995359B0447D98A3E332A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -358,7 +358,7 @@ Thief: Gold - культовый стелс-экшен от первого ли�
 magnet:?xt=urn:btih:5B52050927CD1AE31F8D3055CECC376470983166
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -384,7 +384,7 @@ UberSoldier II / Восточный фронт: Крах Анненербе (200
 magnet:?xt=urn:btih:9F9458CD5181C72D4FA606964C8A1D9E350209CA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -410,7 +410,7 @@ Catwoman (2004) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:384B6C7D454AC1C9B36C1DA064D5214CC130FB81
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,7 +436,7 @@ Hitman 2: Silent Assassin / Hitman 2: Бесшумный убийца  (2002) [R
 magnet:?xt=urn:btih:75D834A7D9DF145C7F03AA4A17D05510E69F53B4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,7 +462,7 @@ Worms 3D (2003) [Ru] (1.0) Unofficial Фаргус
 magnet:?xt=urn:btih:8DA94A3A94CB4ADCE44CE1FCBD66A8555ACE08E3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,7 +488,7 @@ Cocoto Funfair / Cocoto Magic Circus / Кокото: Хвост пистолет
 magnet:?xt=urn:btih:DDEA002176D24C29F0AF557B4E75732A73899D01
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,7 +514,7 @@ Enemy Engaged (1998-1999) [En] (1.1e/1.11) License GOG [Антология]
 magnet:?xt=urn:btih:C2AF38279B76C250B360F7ED7434955942E8D488
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,7 +540,7 @@ Redneck Deer Huntin’ / Deer Stalker: A Realistic Hunting Game (1998) [En] (1.0
 magnet:?xt=urn:btih:44AFBF2B7F73016540E733098BC27EEDF53E71D9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,7 +566,7 @@ Resident Evil (1996) [Ru/En] (1.1.3) Repack/Mod KaSix [ReEnhanced Edition]
 magnet:?xt=urn:btih:1981D9484B09429449F44E6C31D8D7DC70498AE9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,7 +592,7 @@ Quake 4 (2005) [Ru] (1.4.2) License
 magnet:?xt=urn:btih:87583E89868FC2956039B08E3E6E37AEF579D194
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,7 +618,7 @@ Eternam (1992) [En] (1.0) License GOG
 magnet:?xt=urn:btih:729D4C28703FEA27F858BDB9316C66D71C0623F3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,7 +644,7 @@ Wars and Warriors: Joan of Arc - это гибрид экшена и стра�
 magnet:?xt=urn:btih:5D138FD55B0599CC889AB9D300D988DBA80C8F94
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,7 +670,7 @@ Bad Boys: Miami Takedown / Bad Boys II / Плохие Парни 2 (2004) [Ru] (
 magnet:?xt=urn:btih:4BE9B591357FD95CB4D6E798995A255073AA27BB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

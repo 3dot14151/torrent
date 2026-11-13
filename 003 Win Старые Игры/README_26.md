@@ -19,7 +19,7 @@ Aethra's Chronicles (RePack) [En] 1994 | Pilotus (RG Games)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ Theme Hospital / Частная клиника [En] 1997 | GOG
 magnet:?xt=urn:btih:A288DA378F3747891FA666B940D5DC7E05DE554E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ Another War / Другая Война (2002) [Ru] (2.48) Unofficial
 magnet:?xt=urn:btih:04F53B11F743DB7BA191FAF093662C8D89CA9110
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Loom (1990) [En] (1.0) License GOG
 magnet:?xt=urn:btih:1D59A5A8DEAD20C8D1BF18128F6B29E9C9973C14
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Armed and Dangerous (RePack) [Ru/En] 2003 | R.G. Origami
 magnet:?xt=urn:btih:6966A91FA90F0FB31DF497BA99DA11922A453C54
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Helicopter's Flight Simulators Collection Vol.1 / Коллекция симул�
 magnet:?xt=urn:btih:18577C9CA2DB11E164CB28E3856DD32A9608E793
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,7 +205,7 @@ Area 51 / BlackSite: Area 51 (2005-2007) RePack R.G. Механики
 magnet:?xt=urn:btih:BD5F8DAF1804987C95CD145EBA25A208AF783A5E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:3936397A9113A2AD16BE24EA678C9ACEAA43BA29
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,7 +257,7 @@ Animal paradise tycoon (Rip) [En] 2002 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -287,7 +287,7 @@ Far Cry 2 — Вы наемник, заброшенный в раздираем�
 magnet:?xt=urn:btih:9A0B0F72396C727D98DD2616D1609AFCFCB7A3FA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -313,7 +313,7 @@ Voyage: Inspired by Jules Verne / Жюль Верн: Путешествие на
 magnet:?xt=urn:btih:E3A5C46629EA521531278056D0DB1DC5634A9D7A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,7 +339,7 @@ Max Payne 2 - продолжение игры Max Payne, одного из лу�
 magnet:?xt=urn:btih:172A3ED3FE452C30542112AC6A35D34245CB1D47
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -365,7 +365,7 @@ Afterlife (RePack) [En/Ru] 1996 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -391,7 +391,7 @@ Comanche 3 [En] (RePack) 1997 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,7 +417,7 @@ Gunship! / Gunship! Война в небе Война в небе (RePack) [Ru/E
 magnet:?xt=urn:btih:882F85882D4787EF0294711671461338832F6236
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -443,7 +443,7 @@ Railroad Tycoon 2 + OST (Rip) [Ru] 1999 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:E4FB42915DC0E0F22F531E2653C60188EB8DCA98
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,7 +495,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума (2005) [Ru/E
 magnet:?xt=urn:btih:CE26ECB1AA1EDDEFB21669801E17AA6D7CFE85BF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -521,7 +521,7 @@ King's Quest 7: The Princeless Bride [Ru] (RePack) 1994 | RG Games (Pilotus)
 magnet:?xt=urn:btih:AA3642C08B7D2D1F8BFED741CFB3553561CBD603
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -547,7 +547,7 @@ Medicopter 117 / Альпийский патруль [Ru] (L) 2004
 magnet:?xt=urn:btih:CC6F69D2D0BD6D2AFA8C5B318DE1A6D26EC2F4F9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,7 +574,7 @@ F-16 Multirole Fighter [En] (L) 1998
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,7 +600,7 @@ MiG-29 Fulcrum [Ru] (RePack) 1998 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,7 +626,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы [Ru/En] (R
 magnet:?xt=urn:btih:4E9FF964AB6C84D79787F1623CDB9979FD8B4598
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,7 +678,7 @@ Action Legion - это аркадный шутер с видом сверху, �
 magnet:?xt=urn:btih:06240BDD925961374923449F2D6683FBA61DA63D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

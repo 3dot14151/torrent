@@ -19,7 +19,7 @@ Hocus Pocus (1994) [En] (1.1) License GOG
 magnet:?xt=urn:btih:EE95000C9D7531EEB644D099C3052354D942D33F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ The Ultimate Doom (1995) [En] (1.9) License GOG
 magnet:?xt=urn:btih:E1DA55651BDF588E38E8F39C82A99CD5B45EC7AF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Sanitarium / Шизариум (1998) [Ru/En] (1.0hf) License GOG
 magnet:?xt=urn:btih:FF60CEA23A26DD220B086AF70602F5AE23CA8D7D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Inherit Earth – игра, в которой сюжет играет перво
 magnet:?xt=urn:btih:FC6903A13BAAF39078E4C94F3448ED4B4EF59A35
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 magnet:?xt=urn:btih:F3F74EDC0AD3FCA46CB06580DAB4655F1768CFDF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:C013EA518B6AEA2396EE69A8CA491B6A255C4EE7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Slipways берёт жанр космической грандиозной ст�
 magnet:?xt=urn:btih:CE2F8F32ACAD0D768C05E2D744C7E9ED63D25759
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Olympus 2207 (2014) [Ru] (1.2) Mod NebesaGames
 magnet:?xt=urn:btih:0584719AAD6EE2E56CADD0A5BF4392A29C45A9B5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Breath of Fire IV (4) (2003) [En] (1.0) License DEViANCE
 magnet:?xt=urn:btih:01F1FE16B33C50328255E457F3306CCABB3118A2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
 magnet:?xt=urn:btih:0F0016A517C648A40AB7D25EFD61CBCB90307A54
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Breath of Fire IV (2003) [Ru/En] (1.0) Repack Other s
 magnet:?xt=urn:btih:9E78594089D6C3341E421976410FDE986F2DA21D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ West of Dead (2020) [Ru/Multi] (1.11.8.29/dlc) License GOG [Path of the Crow Del
 magnet:?xt=urn:btih:4A6836C4BCAAB01D2449D6A4119B75BC06F4E21D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Shadoworlds (1992) [En] (0.9.1) License GOG
 magnet:?xt=urn:btih:F9A896E437CAF6B75502306E431647EB45165029
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Back to the Future — компьютерная игра в жанре квес�
 magnet:?xt=urn:btih:FF5251B3C632A42FEAA2960DCC71148B9E9A151F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Secret Files: Tunguska (2009) [En] (1.02) License GOG
 magnet:?xt=urn:btih:A11848A15CE221BA58BD9A87A63C0E4C47A7DEEA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Jade Empire (2005) [Ru] (1.00) Repack xatab [Special Edition]
 magnet:?xt=urn:btih:0F5AF4AD6A1A6E30865A96774A93AA76BF25F54E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Call to Power 2 (2000) [En] (1.1) License GOG
 magnet:?xt=urn:btih:53BD52A183354A0699B0D6F3241B172047B750E4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,7 +462,7 @@ Deer Avenger [Ru] (P) 1998
 magnet:?xt=urn:btih:90A17B5A74B94AC78CE88D191BD717E42C1481FD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,7 +488,7 @@ Star Justice / Звездный судья [Ru] (RePack) 1998 | Kirill games
 magnet:?xt=urn:btih:ED04F44DB75E2D8FA63530F4D994441E957AF2F7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,7 +515,7 @@ Golden Gate [Ru] (P) 1997
 magnet:?xt=urn:btih:79F9DC086DF3304DBDFCE9E990D2E25E585A6368
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,7 +544,7 @@ Nightmare Ned [Ru] (P) 1997
 magnet:?xt=urn:btih:29467126C70AE175A9B2C412577B23B50520D843
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,7 +570,7 @@ Versailles 2: Testament of the King [Ru] (L) 2001
 magnet:?xt=urn:btih:626463CF6145C0C4E655895B0B218F07440531BE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,7 +597,7 @@ Midtown Madness [Ru] (P) 1999
 magnet:?xt=urn:btih:B292EE31CD76895B68AE649906FF69B2C6614046
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,7 +624,7 @@ Shark! Hunting The Great White [Ru] (RePack) 2001 | RG games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,7 +650,7 @@ Incoming Forces [Ru] (P) 2002
 magnet:?xt=urn:btih:2BD31F47D8C39FDA4338E8AA6C99AF20EC3095B5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -677,7 +677,7 @@ Braveheart [Ru] (P) 1999
 magnet:?xt=urn:btih:B54FA9449D7A39DE705BD368D2AA7C647DEF6B23
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

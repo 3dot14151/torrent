@@ -19,7 +19,7 @@ Bully (2008) [Ru/En] (1.2) Repack R.G. Catalyst [Scholarship Edition]
 magnet:?xt=urn:btih:AE8BC16065EFBDADD77098E3D124F1C165FD58C7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ FlatOut: Ultimate Carnage поднимает разрушительные гон
 magnet:?xt=urn:btih:C8056EABDA41ED53981BD2F8C3294F6449D38C46
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Overlord - это приключенческий action, события кото
 magnet:?xt=urn:btih:E3F4369C427B1F270A9150143DAEC08359B22B32
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Far Cry: BMS Russian Weapons Pak (2023) [Ru] (1.1) Mod Bert-Masters-Studio
 magnet:?xt=urn:btih:A0C6C12ACA88C74CA357718F690F3D3713516E0A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 magnet:?xt=urn:btih:579D2558D258786E5C5F7E667BF62E8667ABCF49
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Aliens vs Predator Антология [Ru/En] (RePack) 1999-2002 | R.G. Catalyst
 magnet:?xt=urn:btih:11CBC326733D87A603FAF99D8070C49B6AA93E98
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ UberSoldier / Восточный фронт: Неизвестная война (
 magnet:?xt=urn:btih:30882F1BACDB006632F05A1B47279C45834B96FC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Chicken Run (2000) [Ru/Multi] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:9DDEA8D738307E2CB34F81BF1BE6A5CA40E56B92
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:B45F432C7B1FBFED5DEBC3619661912B593E9419
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Cold War: Hot report / Cold War: Остаться в живых (2005) [Ru/En] (
 magnet:?xt=urn:btih:C1B5322294F73C77F7983A4053FA065E5293A3C8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
 magnet:?xt=urn:btih:B32EF1159F6FE34EE4644E7C0F0819F9ECD31BB1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Air Raid: This Is Not a Drill! (2003) [Ru/En] (1.0/dlc) Repack 1nomok
 magnet:?xt=urn:btih:C34FF629162518330998472B33DB955BC9BD5C64
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Cold Zero: No Mercy / Cold Zero: Финальный отчет (2003) [Ru/En] (1
 magnet:?xt=urn:btih:EE6029AC5F8BED73FBB41067B0B68F469EC8C9B4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Fifth Element (1998) [Ru/Multi] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:FC63CD6596D82BFE838CCAD2103837A71472A241
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 magnet:?xt=urn:btih:1C0F01B885198B000935705FF1F1F6F68F0F7C44
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Descent 2 - экшен от первого лица с элементами си
 magnet:?xt=urn:btih:7DAF14CD3E53F1CE91CAAD23B7AFC1F3CC9E59A6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Trespasser: Jurassic Park (1998) [Ru/En] (1.1) Repack 1nomok
 magnet:?xt=urn:btih:F19FE2E602CB3429CB436DE61EB15941A1E42732
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ World War Zero: Iron Storm (2005) [Ru/En] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:A759A4EBFE190BF0108AE8D0198A22C48850923F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ Turok 2: Seeds of Evil - это компьютерный шутер от пер�
 magnet:?xt=urn:btih:ADA5CC2F9F42291674F2F6292F6F6967F0563A45
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ Oni – напряженный боевик в стиле аниме. Агент
 magnet:?xt=urn:btih:9F1F1E025A3A34D2E62C10E31203A49337F530F7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
 magnet:?xt=urn:btih:AECEFB7C97720878E1BC7C72ABD5290B44FA3565
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ Exhumed (1996) [En] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:ED464DA6D76EE249A40875F2906D86E9D0D18928
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ Hogs of War (2000) [Ru/En] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:E70B3CD22CB59260631B22CD7C57CBEE98E60B2F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 magnet:?xt=urn:btih:0B5CC85B89C7D6B0961C19BEB995A57B7B954A44
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 magnet:?xt=urn:btih:9FB68820365CAD2FEE1AF166D5939D3D0DDA6763
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ Pariah / Изгой (2005) [Ru/En] (1.03) Repack 1nomok
 magnet:?xt=urn:btih:3D54975929A3ABB51BB0FBD86A1C74780E4DF447
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

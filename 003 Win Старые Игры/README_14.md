@@ -19,7 +19,7 @@ Resident Evil Anthology (1997-2000) [En] (2.0.2-1) Repack R.G. Revenants [Classi
 magnet:?xt=urn:btih:C2AC0234820906EBAB5836AFB4B67C90324B313A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc)
 magnet:?xt=urn:btih:39C32BDF86423135B6D87E558E56F14987B32234
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Slave Zero (1999) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:D0EE1E221F30BAFAB3E4D1B29A5EE6D1180D8704
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Marine Heavy Gunner: Vietnam / Морпех против терроризма 3:
 magnet:?xt=urn:btih:4EFA91B2DA5741D0417D14FE3E45DCF27C16BB0C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Sonic Adventure DX (2004) [Ru] (1.0.0.9) Repack [Director’s Cut]
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Sea Dogs / Корсары: Проклятие дальних морей (2000) [
 magnet:?xt=urn:btih:E0193C3DFEC3CB58C86627483D062D0B647A2D3C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ The Town of Light (2016) [Ru/Multi] (1.0) Repack bosenok
 magnet:?xt=urn:btih:C600A1345C229EB9F1DCF426AD876B034D926FB8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Outer Heaven - название хорошо вооружённой страны
 magnet:?xt=urn:btih:C2F3B099B3ED95B814632BA694E26A8C64F71998
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ Batman: Arkham Asylum (2009) [Multi] (1.1) License GOG [Game of the Year Edition
 magnet:?xt=urn:btih:ADA9A92D01DA64264055DB89B27658A622C0A1D6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,7 +255,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) License GOG
 magnet:?xt=urn:btih:06DCBB967A332C211355C13BE45DB437C7D6FD3F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,7 +281,7 @@ Batman: Arkham City (2012) [Ru/Multi] (1.1/dlc) License GOG [Game of the Year Ed
 magnet:?xt=urn:btih:4FCF06CE66E5A42D79E7D9BD8CB2F21450CB3F6C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,7 +311,7 @@ Gun [Ru] (Lossless Repack) 2005 | R.G. Catalyst
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -341,7 +341,7 @@ Fort Boyard: Le Jeu / Fort Boyard: Твоя игра [Ru] (P) 2007
 magnet:?xt=urn:btih:A2D4FE33E06E341D3108BAF00E4EF1AFCE91C88D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,7 +367,7 @@ Death to Spies / Смерть шпионам (2007) [Ru/En] (1.0) License GOG
 magnet:?xt=urn:btih:3113C899E70D4432926A3ADFF5A593BAD4A9E575
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,7 +393,7 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 magnet:?xt=urn:btih:6BE43847DC74525A8021294C6CEF9E163980B13A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,7 +420,7 @@ Casino inc. [Ru] (P) 2003
 magnet:?xt=urn:btih:F38090AD76DCC0C852EA12A87E32CA4D3BEDFE1F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,7 +447,7 @@ The Gladiators: Galactic Circus Games [Ru] (P) 2002
 magnet:?xt=urn:btih:7BB95247662C783B8869F97AF47C4F6116F797E3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:F71C7CDB3B9B6F23FC15A2D6F02113B219B24453
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:3E83FA3599F603B4002B865AAE5D7196A4D025B1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,7 +526,7 @@ Marvel Ultimate Alliance [Ru/En] (RePack) 2006 | R.G. Catalyst
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,7 +552,7 @@ Freddy Pharkas: Frontier Pharmacist (1993) [En] (1.000) License GOG
 magnet:?xt=urn:btih:5258B91E582EAF47EAA47DBB2866C305D296BC17
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,7 +578,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G
 magnet:?xt=urn:btih:CAB063EC684DACF6E31236FD644E865704F6C177
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,7 +604,7 @@ Full Spectrum Warrior  [En/Ru] (L) 2005
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,7 +630,7 @@ KKnD Xtreme (P) [Ru] 1997
 magnet:?xt=urn:btih:B15BB9706BB256E6A04A9469FADB8ADBB791DCFC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,7 +656,7 @@ Insane / Безумие [En] (L) 2000
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,7 +682,7 @@ Spartan / Спартанцы. Легион 3 (2004) [Ru] (1.017) License
 magnet:?xt=urn:btih:E6139E2A7AAC6AB5A42030720C19EFEA9317EABA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

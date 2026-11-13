@@ -19,7 +19,7 @@ Meteor Blade / Воин Поднебесной [Ru] (L) 2004
 magnet:?xt=urn:btih:2A5A1A411DAB015EDC38BE826A9AAE73CAB9EC8C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Car Tycoon - стратегия экономики, 1950-х гг. Америки
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Timon & Pumbaa's Jungle Games (L) [En] 1995
 magnet:?xt=urn:btih:27ACCA6D4CD997E533FCDF1CC89C847D988B4C96
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Seymour Goes to Hollywood [En] (RePack) 1992 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Warcraft III (2002) [Ru] (1.29.2/dlc) Repack Necros
 magnet:?xt=urn:btih:26DB5CEA5236B946E46DCBE69E74B10FB4BD27A7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) License
 magnet:?xt=urn:btih:4522EE202E2AA6EF3C3AAB5873C7A26C44EEC601
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 magnet:?xt=urn:btih:09E1779CDC0C5A40242531A627DF01ED8409E10E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Kabus 22 / Зона 22 Территория страха [Ru] (P) 2007
 magnet:?xt=urn:btih:CC26535687D85B04D2157679B4EAA81EE543BEC5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ The White Chamber: Definitive Edition / Белая комната [Multi9/+] (P/
 magnet:?xt=urn:btih:D1CB2111753F6CF94D2ABC27F2E855ED760FF052
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,7 +255,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,7 +281,7 @@ Space Crusade [En] (RePack) 1992 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,7 +307,7 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 magnet:?xt=urn:btih:3DD7D99E1100F7BEB15CDAAEDBAF88258DC0BF40
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,7 +333,7 @@ Shade: Wrath of Angels - это леденящая кровь история, п
 magnet:?xt=urn:btih:FE1530DC39B06803EE8FD00B050F0CB690BE4415
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,7 +359,7 @@ Death Rally [En] (RePack) 1996
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,7 +385,7 @@ Laser Squad Nemesis — пошаговая тактическая стратег
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,7 +412,7 @@ Space Haste [En] (RePack) 2001 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,7 +438,7 @@ Boppin [En] (RePack) 1994 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,7 +464,7 @@ Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
 magnet:?xt=urn:btih:D6431622859913977485BF5CB1C63598C14A3156
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,7 +490,7 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 magnet:?xt=urn:btih:C285383C620FA0AC446D0C7FDAE169FC2272C38C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -520,7 +520,7 @@ Tekken 3 [En] (L) 2000
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,7 +546,7 @@ Colobot [Ru] (RePack) 2001 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,7 +572,7 @@ ReVolution [Ru] (RePack) 2002 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:C5B51A5264CC51174CE9CC92EC8099E6EA6BD03C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,7 +624,7 @@ Rival Realms (P) [Ru] 1998
 magnet:?xt=urn:btih:85BCA4CE2ACFA04AF79A5EF8EE7F9506D127CD98
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,7 +650,7 @@ Gorky Zero: Beyond Honor / Горький Зеро: Фабрика рабов [R
 magnet:?xt=urn:btih:BE6136A82B96BD308485F25E12FFF87C1212DCF5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,7 +676,7 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

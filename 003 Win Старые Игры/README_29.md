@@ -19,7 +19,7 @@
 magnet:?xt=urn:btih:28FA82AF9DEFA31C84EBE068FF64C0BD05874E3A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Sid Meier's SimGolf / Магнат Гольфа [Ru/En] (P) 2002
 magnet:?xt=urn:btih:D098FB91C48F3C4AFD30F8213A6243DD1118154E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ GX UltraMoria [Ru] (L/0.9.9c) 1985
 magnet:?xt=urn:btih:F8940ED63C2F80486E1A8A41034F72F7BE9A8012
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Command & Conquer [En] (L) 1995
 magnet:?xt=urn:btih:972402253ADA9DF8218C0C6D1C42395CF8EB27D1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Mortal Kombat (1993-1996) [En] Repack R.G. Games
 magnet:?xt=urn:btih:283DEECBF5465F23C421FD859280128376EBD2E7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:FCF08E75BBA701CCBE2928926AA7303168C48DDF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:3BBCBB72F7B2CD7D982D905045507DED5C02E6D6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ US Racer / Трасса 66 (2002) [Ru] License
 magnet:?xt=urn:btih:88B8F44F7910918FC8545482054E9A61EC301055
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ Shellshock: Nam'67  / Shellshock: Вьетнам'67 [Ru] (L) 2004
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,7 +257,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + Mod
 magnet:?xt=urn:btih:2A045C7A485FBE29D5A46D0E1D93B5878A4BF6DE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -283,7 +283,7 @@ BattleTech: The Crescent Hawks' Revenge и The Crescent Hawk's Inception [En] (R
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,7 +309,7 @@ X-Men Legends II: Rise of Apocalypse [En] (L) 2005
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,7 +337,7 @@ The Suffering Дилогия [Ru] (RePack) 2004-2005 | R.G. Catalyst
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,7 +363,7 @@ You Are Empty [Ru] (RePack/1.3) 2006 | PURGEN
 magnet:?xt=urn:btih:3CDEB9DCB3E252C96758A95AA02461C221F03ACC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,7 +389,7 @@ Panzer Killer! / Panzer Killer: Истребитель танков (P) [Ru] (20
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,7 +415,7 @@ Warcraft: Orcs and Humans (1994) [En] (1.2) License GOG
 magnet:?xt=urn:btih:936818D5777D971920181F8F8823DD7BC1C33BD0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,7 +441,7 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 magnet:?xt=urn:btih:D9D4A9AC7DFA31090F5D7460B40B4CCC5A1AE264
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,7 +467,7 @@ The Last Blade (1997) [Ru/Multi] (1.0.12541) License GOG
 magnet:?xt=urn:btih:5E31C4033ADDD809E2D4D37310199EAAB531574C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,7 +493,7 @@ Merchant Prince II - пошаговая стратегия, предоставл
 magnet:?xt=urn:btih:9D90671D43FD81A7FAEE8952127A222B44B79F4C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,7 +519,7 @@ ABZÛ — это красочное приключение в подводном
 magnet:?xt=urn:btih:73FFD50CE788AA5DEDCADD6859A790DCBFC3DE27
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -545,7 +545,7 @@ Moto Racer - аркадные гонки на мотоциклах. Изнача
 magnet:?xt=urn:btih:B836E684D0232B2ECFEA59A9EF2BF32A578D411A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -571,7 +571,7 @@ Guilty Gear Gold [En/Ja] (RePack) 2001-2006 | R.G. Catalyst
 magnet:?xt=urn:btih:A0CAAE70BC8C7A80D84BABAB36C311CF6EECE90B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,7 +597,7 @@ Moto Racer 2 [En] (RePack) 1998 | WinterKiss
 magnet:?xt=urn:btih:8D38E365752F525BB11E2EE26F8F284679AC7292
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,7 +623,7 @@ Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:BB0AB3157D88B434CDB7C656D322B482F04BABC2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,7 +649,7 @@ Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
 magnet:?xt=urn:btih:BD39AEFBAD7001BD8FE08D86594E1F945C53423B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,7 +675,7 @@ Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 
 magnet:?xt=urn:btih:2AFD68132CB100A6D48F3C04E14AA1AD98827B22
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

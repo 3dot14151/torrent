@@ -19,7 +19,7 @@ Mortal Kombat Trilogy - это файтинг-сборник 1996 года, ко
 magnet:?xt=urn:btih:48B4C8E0B3D05F6398FB6DCCBC454625BA63075C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack Necros
 magnet:?xt=urn:btih:AAF6282BAAF39FC2771C168EEEA5794E907E8B1C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Star Trek: Deep Space Nine: The Fallen / Отверженные: Тайна те
 magnet:?xt=urn:btih:A76330CEC03D9DF4D7EB9183ECCC30ACC2DF4B62
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Quarantine Антология [En] (RePack) 1994-1996 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,7 +124,7 @@ Siege of Avalon / Осада Авалона [Ru] (RePack) 2001 | RG Games (Pilot
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,7 +150,7 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,7 +176,7 @@ Herrscher der Meere / Властелин Морей (RePack) [Ru] 1997 | RG Game
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,7 +202,7 @@ Monty Python's Flying Circus [En] (RePack) 1990 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,7 +228,7 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 magnet:?xt=urn:btih:46BC53B859BFCB85B73FFEBD6BEE12202BAA3A4E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,7 +254,7 @@ Call of Duty 4: Modern Warfare [Ru/En] (RePack/1.7) 2007 l R.G. Механики
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,7 +280,7 @@ Wasteland [En] (RePack) 1988 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,7 +307,7 @@ AquaNox / Aquanox: Сумерки Аквы (RePack) [Ru] 2001 | RG Games (Pilotu
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,7 +333,7 @@ Rune / Руна [Ru/En] (RePack/1.07) 2000 | R.G. Catalyst
 magnet:?xt=urn:btih:54AD20F9D4012E04B98E9B570F6BE2EE7E126947
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,7 +360,7 @@ Rally Championship 2000 [Ru] (L) 1999
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,7 +387,7 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,7 +413,7 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 magnet:?xt=urn:btih:BA49F64552FDB45635177499A90FEA6A331892E3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,7 +439,7 @@ Hard to Be a God – ролевое приключение в стиле нау�
 magnet:?xt=urn:btih:A91E3E5576ADAFDD0D2210462E0F325B0503A067
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,7 +465,7 @@ Venetica – игра в жанре CRPG, выпущенная в 2009 году 
 magnet:?xt=urn:btih:EB61A29170B2AB7AFBD4AD20A221BC348016E741
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,7 +491,7 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 magnet:?xt=urn:btih:9CF692B5BD06856D30B20C6A27CFC202F09E6158
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,7 +517,7 @@ Magic Boy [En] (RePack) 1993 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,7 +543,7 @@ Arthur's Knights / Легенды о рыцарстве Дилогия [Ru] (L) 
 magnet:?xt=urn:btih:B26E7C723868C826B134B87381819D84929D4677
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -569,7 +569,7 @@ Medieval Conquest (L) [En] 2004
 magnet:?xt=urn:btih:A9FD20F77B017A696478901B855685337AC35970
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,7 +597,7 @@ Su-27 Flancer [En] (RePack) 1995 | Pet9948
 magnet:?xt=urn:btih:46AB94F47BD477D04806CE2A26023DAE4EB5B874
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -623,7 +623,7 @@ Smurfs - это классический приставочный платфор
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -649,7 +649,7 @@ Demon Blue [En] (RePack) 1992 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -675,7 +675,7 @@ Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

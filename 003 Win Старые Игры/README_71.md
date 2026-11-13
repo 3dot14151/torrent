@@ -19,7 +19,7 @@ Cities in Motion – это возможность управлять собст
 magnet:?xt=urn:btih:474ABCCC53EE9295C8B82ED96C8E597A3D1B6820
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Gary Grigsby's War in the West переносит пользователей н�
 magnet:?xt=urn:btih:9C9FE2B32D5524601FFE46008DE02AE23DA19842
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Demise: Rise of the Ku'tan (2000) [En] (1.0r353) License
 magnet:?xt=urn:btih:9FDAFCA127D08961CC242AD65BCB0500184AF5EA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Crysis 2 (2011) [Ru] (1.9.0.0/dlc) Repack Necros [Limited Edition]
 magnet:?xt=urn:btih:E820D8D8E8E1E3C5F2392F34457B0B7E5A6CEC4E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
 magnet:?xt=urn:btih:4571ADF03CAD213F2862F56654EFEED915D718DC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Urban Chaos (1999) [En] (2.69) License GOG
 magnet:?xt=urn:btih:D5C2E103A6D2DAD902BF021358985C1C451E49D5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Gary Grigsby's War in the East - стратегический симулятор
 magnet:?xt=urn:btih:9B819EFCFC281CF34B7539104B82C75AFB7FB44D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Age of Wonders (1999) [En] (1.36.0053) License GOG
 magnet:?xt=urn:btih:F8C7DF3DB5EF73A2AEB842495A9F7919669F215C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Age of Wonders 2: The Wizard's Throne – вторая часть прослав
 magnet:?xt=urn:btih:38126DE20B5FA4A61620E3D9CEAE4BAA5866D3F7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Age of Wonders: Shadow Magic – это продолжение знаменит�
 magnet:?xt=urn:btih:4380A29856AB52B66B1BE8C6E11391214757ABA2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Outcast 1.1 - переиздание приключенческого экшен
 magnet:?xt=urn:btih:F0815DFD92FEF4C2918DB59F327432E72F638D78
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ DeathKeep (1995) [En] (3.3) License GOG
 magnet:?xt=urn:btih:C16751F277FB86D6EA77B1B147966DD25B23AB49
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
 magnet:?xt=urn:btih:5AEFFEB117C65913D8FFC6EB339C87826DCFD891
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 magnet:?xt=urn:btih:6691770967F7F3AE5A03B7AD6B2C4426CC0C9BDB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Overlord Ultimate Evil Collection (2007-2015) [Ru/Multi] (1.4/1.0/1.0.15.4016/dl
 magnet:?xt=urn:btih:AC1A347E63700B117D0A54283FB999F858336AC0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Star Wars: TIE Fighter – игра во вселенной Звездные В�
 magnet:?xt=urn:btih:84A3D66FEE07F2B059E534878EDCD8DBF4AD638F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Hard Truck: Road to Victory / Дальнобойщик: Путь к победе
 magnet:?xt=urn:btih:9C40CE1F9C8C54D7005BB1E69C7B91D0FBC2E564
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ Tropico 3 (2009) [Multi] (1.0/dlc) License GOG [Gold Edition]
 magnet:?xt=urn:btih:B7DF6D922AD134164FEB207FADD20EAD2FA83734
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ ArcaniA: Fall of Setarrif (2011) [Multi] (1.1499.0.0) License GOG
 magnet:?xt=urn:btih:EC988B8557F22ED3DF065F009BA70E0283D30E81
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ Everlight: Of Magic & Power / Хроники Мелвина. Проклятье 
 magnet:?xt=urn:btih:4DE36F00BBF81A6DD639E24878FB33E1FC059B30
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ Legacy of Kain: Defiance – атмосферный слэшер, выполне
 magnet:?xt=urn:btih:02B7B3A1E1485DA9312E1430814890B51E40A5D9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ Warhammer 40,000: Chaos Gate (1998) [En] (1.2hf3) License GOG
 magnet:?xt=urn:btih:66DA4327C2E06DCE431EC86164C5A932FEF8493F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 magnet:?xt=urn:btih:5BC7F1592FA46A071F0523C6A78DC4E377C1D6D5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 magnet:?xt=urn:btih:A36368CF453A5C4FADF10A436547AB14C9494F3D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ Desert Law / Койоты: Закон пустыни (2005) [Ru/Multi] (1.0) Lic
 magnet:?xt=urn:btih:10F4AE3979EB8D73D583BC4F952E94EF1D3C515D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ Warhammer 40,000: Dawn of War – Soulstorm – третий по счету а�
 magnet:?xt=urn:btih:52BD46115E34F7903C94228810A220A117BD4270
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

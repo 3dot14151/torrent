@@ -19,7 +19,7 @@ UberSoldier / Восточный фронт: Неизвестная война [
 magnet:?xt=urn:btih:191E01F3FEA822D7B038C7D054E1D993A385214C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ The Temple of Elemental Evil: A Classic Greyhawk Adventure [Ru/En] (RePack/1.1) 
 magnet:?xt=urn:btih:0F11FF0C5BA2217555352A3BFC120706021BBF62
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Liberation Day [Ru] (Rip) 1998 | Pilotus
 magnet:?xt=urn:btih:26A6282728D77D75073B3B00AC48B98EB06ACAD3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Descent 3 [En] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:399ACE226209029C7A796DB59CA585FD17486A73
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,7 +124,7 @@ Gangsters: Organized Crime [En] (Rip) 1998 | Pilotus
 magnet:?xt=urn:btih:235CA1C69AD38ED90FED5417EB34CECE72EFFBCD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,7 +152,7 @@ Fallen Lords: Condemnation [Ru/En] (P) 2006
 magnet:?xt=urn:btih:CEA1C18AC69CFB599BB532EFAAD69FEB5F689A1A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -185,7 +185,7 @@ Crazy Frog Racer Антология [En] (RePack) 2005-2006 | Nik97
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -212,7 +212,7 @@ DragonRiders — Chronicles of Pern — игра, базирующаяся на 
 magnet:?xt=urn:btih:04E7449522C021D6111F34D6FEB9BC3DA0DACDBF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,7 +238,7 @@ El Matador [Ru/En] (RePack) 2006 | PUNISHER
 magnet:?xt=urn:btih:EFC726B3CE66583BB478A187AF1D7FE08508AB6F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,7 +267,7 @@ Tom Clancy's: Ghost Recon Дилогия  [Ru/En] (RePack) 2006-2007 | R.G. Cata
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,7 +293,7 @@ Call of Juarez: Bound in Blood (2009) [Multi] (1.1.0.0) License GOG
 magnet:?xt=urn:btih:CADADFA6B8ADAB4817B3F050EF26303F8A622C72
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,7 +320,7 @@ Donald Trump's Real Estate Tycoon [Ru] (RePack) 2002 | RG games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,7 +347,7 @@ Pacific Warriors: Air Combat Action [En] (RePack/1.2) 2000 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -373,7 +373,7 @@ Pendragon (2020) [En] (1.2.13) License GOG
 magnet:?xt=urn:btih:BA339AC5CB21D254D996B9E4BF300549106AB50A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -399,7 +399,7 @@ Big Buck Hunter Arcade (2016) [En] (5.3.6) License PLAZA
 magnet:?xt=urn:btih:686E1863F9729F11B12A73E19641CD7F0FACB1E3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -425,7 +425,7 @@ Magic & Mayhem: The Art of Magic сделан в традициях первой
 magnet:?xt=urn:btih:6A02C6D918CC13643BFB04E2A7AE69EBFD614434
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -451,7 +451,7 @@ Konami Collector's Series: Castlevania & Contra (2002) [En] (1.0) License GOG
 magnet:?xt=urn:btih:592978909D7CE473B97A71A0EEC153999F8CA242
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -477,7 +477,7 @@ Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
 magnet:?xt=urn:btih:02C8F8641FA3BEFD88243B0BF74E9A0E592D0826
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -504,7 +504,7 @@ Desert Law / Койоты: закон пустыни [Ru] (RePack) 2005 | RG Gam
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -530,7 +530,7 @@ Kingdom Hearts [En] [RePack/Emul] 2002 | MoveXX
 magnet:?xt=urn:btih:9317AEF6E78E65A40888E5941446EA3174437FBE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -558,7 +558,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума [Ru/En] (ReP
 magnet:?xt=urn:btih:67A3C320C2A01D302C74C83CDC31D262FB6AA56B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -584,7 +584,7 @@ Second Sight [Ru/En] (RePack) 2005 | R.G. Механики
 magnet:?xt=urn:btih:D2D814AA575BF54797FCB377889ECE7D3B213CFD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -610,7 +610,7 @@ Simon the Sorcerer 3D (также известна как Simon 3D) - компь
 magnet:?xt=urn:btih:61361A9BA6D129FB106ED62D4358E2F5654D5DD9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,7 +636,7 @@ Wizardry Коллекция 7 in 1 [En] (RePack) 1981-1992 | Pilotus
 magnet:?xt=urn:btih:E9AF747627DBEEEAD3B53FC4AB5EB6FC089935D0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -662,7 +662,7 @@ Stonekeep (1995) [Multi] (1.2) License GOG
 magnet:?xt=urn:btih:ED67E269D57ED8167095104AA878F090C241A194
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -689,7 +689,7 @@ John Saul's Blackstone Chronicles [Ru] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:B29A9716A4C573A9ACD0E55B51417F3D2851FAC4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

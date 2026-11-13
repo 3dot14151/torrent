@@ -20,7 +20,7 @@ Alcatraz: Prison Escape [Ru] (RePack) 2000 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Civilization: Call to Power [Ru] (P) 1999
 magnet:?xt=urn:btih:38FFC0BC67EDF057EE640DB17B0402C8F1B090E9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ NBA Jam Tournament Edition [En] (RePack) 1995 | Pilotus, SomeOne
 magnet:?xt=urn:btih:06CA1CC636ECD007803D3677ACDE418C7134BA96
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ FlatOut (2005) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:51D38E5DEA9D68187C85693EE472C2299F31300C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Ship Simulator 2008 (2008) [Ru/En] (1.0) Unofficial
 magnet:?xt=urn:btih:70B943408CF0BA6DEF4B7A831CEAB7C4993DB01A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Al-Qadim: The Genie's Curse (1994) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:74625168E0A03ABB8710E654EE5F7021A7A3AA33
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Blades of Time (2012) [Ru/Multi] (1.0.0/dlc) Repack Other s [Limited Edition]
 magnet:?xt=urn:btih:80234ED22F18094137D3C57588DA68D4C6B5213B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Machiavelli the Prince (1995) [En] (1.0.3) License GOG
 magnet:?xt=urn:btih:CA3FFCFDEF46C046FE374ED818B471DFF8F3971E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ Alien Breed Impact - это взрывной научно-фантастичес
 magnet:?xt=urn:btih:9AFB15723E8602EA409AB817A430BBA76E99C1B1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,7 +255,7 @@ Alien Breed 2: Assault - вторая глава в серии игр Alien Bree
 magnet:?xt=urn:btih:68018862E1069667340871E546A8BE2F1A176814
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,7 +281,7 @@ Alien Breed 3: Descent - заключительная взрывная глав�
 magnet:?xt=urn:btih:617948CBEBAC2D4C84A975094D7951D952BE5AC9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,7 +307,7 @@ LEGO Indiana Jones: The Original Adventures – аркадная приключ�
 magnet:?xt=urn:btih:AF26CAD63D2E4F108F3224623A3B05AD7DE0C376
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,7 +333,7 @@ MechWarrior 3 (1999) [Ru/En] (1.2.22.0/1.0/dlc) Repack Necros
 magnet:?xt=urn:btih:7DC0686F944465D390264696536BBA57218F2654
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -359,7 +359,7 @@ Mechwarrior 2 - симулятор управления фантастическ
 magnet:?xt=urn:btih:9F046F020A718733DFA19B32D38E8AC162824A67
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -385,7 +385,7 @@ MechWarrior 4 (2000) [Ru/En] (2.1.0.5/dlc) Repack Necros [Compilation]
 magnet:?xt=urn:btih:D45A80E298F6067F2042FFB0DDC08AC3C8089FA2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -411,7 +411,7 @@ MechWarrior (1989) [En] (2.1.0.4) Repack Necros
 magnet:?xt=urn:btih:F4BD79823FFD20E6DA2FB6C671E194B86D977125
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -437,7 +437,7 @@ Sinking Island (2007) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:9CB113710CC96CD461FF87575FFC4742146ABED8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -463,7 +463,7 @@ Soldier of Fortune II. Double Helix - продолжение знаменито�
 magnet:?xt=urn:btih:3E2E4D7E90E30FB098DABAB17E845C374C36F5D9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -489,7 +489,7 @@ Deer Avenger / Олень-мститель (1.0/2.0/3.0/4.0) (1998—2001) [En] 
 magnet:?xt=urn:btih:6AF0F026FB4E370F50EE8E0964D903B3BDB06098
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -515,7 +515,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/Multi] (1.2/dlc) License GOG [Complete Editi
 magnet:?xt=urn:btih:200670039482D6F49EF97CD314622E4CD49E8599
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -541,7 +541,7 @@ Aus dem Leben eines Diebes / Из жизни вора (2012) [Ru/De] (1.1) Mod
 magnet:?xt=urn:btih:33799FB7DE0130E1783B4124C848C9ADC3A407B2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -567,7 +567,7 @@ Havoc, один из тысяч "кибернетических клонов", �
 magnet:?xt=urn:btih:896D13114BEA22217387782FFB8A566F9D2AC421
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -593,7 +593,7 @@ Dark Reign + Expansion – это мини-сборник, куда вошла �
 magnet:?xt=urn:btih:08CC7F0E5EF927D9741B00B0485047E03B9CFCC3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -619,7 +619,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License GOG
 magnet:?xt=urn:btih:79EB43086E94F28DE2556994E42FB70977BCE080
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -645,7 +645,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [En] (1.2) License ViTALiTY
 magnet:?xt=urn:btih:53B3C5822EC6B8A65BF63CA3CDB850BE13D56BD9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -671,7 +671,7 @@ The Legend of Kyrandia – трилогия в жанре квеста, кото
 magnet:?xt=urn:btih:022C2680FB9E13AE5E16D166F8F3D272DA18E381
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

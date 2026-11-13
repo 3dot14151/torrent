@@ -22,7 +22,7 @@ Taz Wanted [Ru] (RePack) 2002 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -51,7 +51,7 @@ Infernal / Дьявольщина (2007) [Ru/En] (1.0) Repack CUTA
 magnet:?xt=urn:btih:0977A79C9D81A276C178907371BCADA024BB3A57
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -77,7 +77,7 @@ El Matador [Ru] (RePack) 2006 | Zerstoren
 magnet:?xt=urn:btih:A2AC8DC21FA9446B3C5E214D5FF49A4F6627F5FF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -105,7 +105,7 @@ Neighbours from Hell: Revenge Is a Sweet Game / Как достать сосед
 magnet:?xt=urn:btih:C00A91B654CD3DF25B65B52CF48BB68B901C9BB1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -132,7 +132,7 @@ Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kiri
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,7 +158,7 @@ Star Trek: Fleet Commander III [Ru/En] (RePack) 2002 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -186,7 +186,7 @@ Deadly Dozen: Pacific Theatre [Ru] (RePack) 2002 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -213,7 +213,7 @@ War Inc. стратегия в реальном времени. Действие
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -240,7 +240,7 @@ The Curse of monkey Island [Ru] (RePack) 1997 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -266,7 +266,7 @@ Cossacks Anthology / Козаки Антология (2003) [En] (1.15/1.30/1.35
 magnet:?xt=urn:btih:19F62017486BE34209BDC66D2F6F1DCA470F6F03
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -292,7 +292,7 @@ Gorasul: The Legacy of the Dragon / Горасул: Наследие Драко�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -318,7 +318,7 @@ Oddworld Abe's Exoddus [Ru] (RePack) 1998 | Kirill games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -344,7 +344,7 @@ Deadlock: Planetary Conquest (1996) [En/Ge] (1.20) License GOG
 magnet:?xt=urn:btih:9AB4EB0C016B3911F81343D14743D301CD3FFD44
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -370,7 +370,7 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 magnet:?xt=urn:btih:EE973FBA73F231E6038309EAD777269755F91C15
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -396,7 +396,7 @@ Road to India / Дорога в Индию [Ru] (L) 2001
 magnet:?xt=urn:btih:EC03D76CE5ADD6F908941A41A79A9255A3ACB19C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -422,7 +422,7 @@ Legacy of Kain: Blood Omen 2 / Наследие Каина: Blood Omen 2 [Ru] (R
 magnet:?xt=urn:btih:494B8D8E3EB14E19ADA0F0B11B768E1C5A3A7D6F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -448,7 +448,7 @@ I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
 magnet:?xt=urn:btih:580C3C7C2C369AAD222C3C23937CE4887A7C274C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,7 +474,7 @@ Deadlock 2: Shrine Wars (1998) [En/Ge] (1.2) License GOG
 magnet:?xt=urn:btih:CDC153970C5C7B0E3839434F4D5B0DEC3CCCCB81
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -500,7 +500,7 @@ Gun [Ru] (RePack) 2005 | R.G.Spieler
 magnet:?xt=urn:btih:2280588865883C66CAA74FB44E6328A782966B75
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -526,7 +526,7 @@ Legacy: Dark Shadows – это трехмерная приключенческ�
 magnet:?xt=urn:btih:58DAC472E0F05F0DEE0F0C6D5446F627D2A835BB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -552,7 +552,7 @@ Chronicles of Riddick: Escape from Butcher Bay [Ru/En] (RePack) 2004 | MOP030B
 magnet:?xt=urn:btih:0BFC145EEB5F287116352840A11D95B3C2C73CD8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -578,7 +578,7 @@ Line of Sight: Vietnam [Ru/En] (P) 2003
 magnet:?xt=urn:btih:2390D70218A6A336629779362E242C3A45EC2D0D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:1A52938C65C8BA13D24ADAF75BDC205EF812EC9B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -630,7 +630,7 @@ Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
 magnet:?xt=urn:btih:BB6114E622058B11D7E73F24C94A5329538D0639
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,7 +656,7 @@ Star Wars: Galactic Battlegrounds Saga (2001) [Ru/En] (1.1) Repack R.G. Меха
 magnet:?xt=urn:btih:2D11F3F4255FBC5BC61DEB3D3D66E83033E8E7F9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,7 +682,7 @@ Star Wars: Empire at War Gold (2006) [Ru/En] (1.5/1.1) Repack R.G. Механи�
 magnet:?xt=urn:btih:DD30DFC5423DE920773258356D859C2E72490122
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

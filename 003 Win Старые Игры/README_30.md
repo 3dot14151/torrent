@@ -19,7 +19,7 @@ Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Aquaria (2007) [En] (1.1.1) License GOG
 magnet:?xt=urn:btih:30CFB69193DAF061B58EBFDEBBCE4AB26BED78C5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Spy Hunter / Spy Hunter: Некуда бежать [Ru] (RePack) 2003 | MOP030B
 magnet:?xt=urn:btih:004FC6AD9DD833118724CACA02D914E876854C14
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,7 +101,7 @@ Toon Car / Большие Гонки! [Ru] (L) 2001
 magnet:?xt=urn:btih:EEB10C40C7802D224E394CC499AFC4DF792F1F06
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -134,7 +134,7 @@ ISO статус: релиз состоялся 21 декабря 2006 года
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -162,7 +162,7 @@ BloodRayne - компьютерная игра в жанре action от тре�
 magnet:?xt=urn:btih:2C9B68023A5B669642FE3514877F062F66B703D4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -188,7 +188,7 @@ Horse Adventure 3 [Ru] (P) 2004
 magnet:?xt=urn:btih:31BFA352A380AF19121487444A3A2190E7A2A2A0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -220,7 +220,7 @@ Redneck Rampage Rides Again
 magnet:?xt=urn:btih:A3030D723B31518FB0EBF0E28CF952C75C169075
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -246,7 +246,7 @@ Battlefield 2 / ActaFull [Ru/En] (RePack/Mod) 2005 | Johnny
 magnet:?xt=urn:btih:561449D07048AE4993BC52A710E05867DA4A0EB7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -272,7 +272,7 @@ Fantastic Four/4 (2005) [Ru/En] (1.0.0.1) RePack R.G. Revenants
 magnet:?xt=urn:btih:5A00031A8DF6DE0EB3B65BA9E44F99F8BFDA9A37
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -298,7 +298,7 @@ MechWarrior 2 Трилогия / MechWarrior 2: 31st Century Combat + MechWarrio
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -326,7 +326,7 @@ Outcast – не игра. Это одно гигантское приключе
 magnet:?xt=urn:btih:155B9DB109FF88EF5FC45F61845C1C1888809463
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -353,7 +353,7 @@ Chaos Overlords (1996) [En] (1.0) License GOG
 magnet:?xt=urn:btih:8E3B633796D8B7866FD1D45CD02C643CD5D276B7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -379,7 +379,7 @@ CyberStorm 2: Corporate Wars [Ru] (Rip) 1998 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -405,7 +405,7 @@ CyberStorm 2: Corporate Wars [En] (RePack) 1997 | RG Games (Pilotus)
 magnet:?xt=urn:btih:82D867CD449A33C7A45A8E97014A46BC71AFA4E4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -431,7 +431,7 @@ Fallen Haven [Ru] (P) 1997
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -457,7 +457,7 @@ MechWarrior 2 Трилогия / MechWarrior 2: 31st Century Combat + MechWarrio
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -484,7 +484,7 @@ BloodNet: A Cyberpunk Gothic [En] (RePack) 1993 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -510,7 +510,7 @@ MechWarrior 4 Трилогия /MechWarrior 4: Vengeance + MechWarrior 4: Black 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,7 +536,7 @@ SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
 magnet:?xt=urn:btih:DCEE95ADD607C0E4016037B39C847DC213FDD151
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,7 +562,7 @@ Metaltech: EarthSiege и EarthSiege 2 Антология [En] (RePack) 1994-1995
 magnet:?xt=urn:btih:BD8F1D479D080D4D18A742BD47C8069D3D13ADD1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -588,7 +588,7 @@ Fade to Black [En] (RePack) 1995 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -614,7 +614,7 @@ Star Wars: X-Wing и TIE Fighter [En] (RePack) 1992-1994 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -641,7 +641,7 @@ X-Men 2: Wolverine's Revenge [Ru] (RePack) 2003 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -668,7 +668,7 @@ War Times \ Время Воевать (RePack) [Ru/En] 2004 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -694,7 +694,7 @@ Pool of Radiance: Ruins of Myth Drannor - современная реинкар�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

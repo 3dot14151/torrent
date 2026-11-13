@@ -23,7 +23,7 @@ Street Racing Syndicate [Ru] (RePack) 2005 | tukash
 magnet:?xt=urn:btih:A95FBF1B98C216047D8AC3769B90A8BE8E509EEF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -49,7 +49,7 @@ Konung Dilogy / Князь Дилогия (1999-2003) [Ru/En] (1.3/1.05) License
 magnet:?xt=urn:btih:4CE8008778C859E71E23978E557629C08F0C8B10
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -75,7 +75,7 @@ X-Com Classic Bundle (1994-2001) [En/Multi] (30.03.2016) License GOG
 magnet:?xt=urn:btih:1C6749218EB0E28B6666C3B4472BD1CD537B6EDC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,7 +101,7 @@ Ultima 9: Ascension (1999) [En] (1.00) License GOG
 magnet:?xt=urn:btih:D584E9D1C80FEAECA039682813D082DBEE052514
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,7 +127,7 @@ Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
 magnet:?xt=urn:btih:63400F18A4A42F1E8056B2446867E1708FCD13E8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,7 +153,7 @@ Legacy of Kain: Blood Omen 2 (2002) [Multi] (1.0.2hf) License GOG
 magnet:?xt=urn:btih:DB908066AA61BCA24FA61E99EF0E3029D67224FF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,7 +179,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 magnet:?xt=urn:btih:FF4728F8D18D52629D6B7FD95DC05E3727EEB2F4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,7 +205,7 @@ DX-Ball 2 [En] (L) 1998
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,7 +231,7 @@ Castlevania: Lords of Shadow (2013) [Ru] (1.0.2.9upd2) Repack xatab [Ultimate Ed
 magnet:?xt=urn:btih:65942604DB8A1EA85ABE91157E0B3E19126618C8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -262,7 +262,7 @@ FIFA 06 — ваш шанс оказаться в центре событий д
 magnet:?xt=urn:btih:0F7D3BC334A58879DE1F45E18739E4651FC63DC3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -291,7 +291,7 @@ Tom Clancy's Rainbow Six: Lockdown [Ru] (Repack) 2006 | mefist00
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -317,7 +317,7 @@ Tom Clancy's Ghost Recon: Operation Polar Star / Спецотряд Призра
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -343,7 +343,7 @@ Rally Trophy / Ралли Трофи (2001) [Ru] (1.01) License
 magnet:?xt=urn:btih:93A615E2DD18F732CB966FFB3CBDD3427BB39351
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -369,7 +369,7 @@ Trine – динамичная игра с реалистичной физиче
 magnet:?xt=urn:btih:4CC18B8B15EFBB3F100AFF91B0AD77FC34C6C6FF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:6291479418C20DAE450EFEDF8164843F8FCCACDB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -424,7 +424,7 @@ Blade of Darkness это потрясающий своей графикой и �
 magnet:?xt=urn:btih:0113ABFFC7F1BBF779ABF443140699172A25B011
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,7 +450,7 @@ Overlord (2007) [Multi] (1.4/dlc) License GOG
 magnet:?xt=urn:btih:E2CF94D9F8FC680C702AD8065CC5B560351D0947
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,7 +476,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 magnet:?xt=urn:btih:F2C06CFD0A0F2ECB52ABAECA75D70FF9E085D46E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,7 +502,7 @@ Battle Realms (2001) [Multi] (1.0/dlc) License GOG
 magnet:?xt=urn:btih:A1067E018080524C99B578EB992C1B790EDA698F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -529,7 +529,7 @@ Beach Head 2000 (2000) [Ru] (1.0) RePack R.G. Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,7 +556,7 @@ Fable: the Lost Chapters перенесет вас в удивительный �
 magnet:?xt=urn:btih:F7DBA3E1E9568477B871FCF7878864141966AA81
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,7 +582,7 @@ Silent Hill 3 [Ru/En] (RePack) 2003
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,7 +608,7 @@ Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
 magnet:?xt=urn:btih:5A833AB2AA4103E096C900ADD438DC6A4D31AEAE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -634,7 +634,7 @@ Lula: The Sexy Empire (1998) [En] (1.0) License GOG
 magnet:?xt=urn:btih:357F26480306AF2F4E4B16B951372D6D54826ECD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -664,7 +664,7 @@ Trade Empires / Торговые империи (L) [Ru] 2001
 magnet:?xt=urn:btih:614102BB5AA0778A0A7B2E2C424B9E5812C8693C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -691,7 +691,7 @@ Battlefield 1942 [En] (P) 2003
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

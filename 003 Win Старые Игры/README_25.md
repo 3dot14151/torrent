@@ -20,7 +20,7 @@ Mace Griffin: Bounty Hunter (2003) [Ru/En] Unofficial
 magnet:?xt=urn:btih:12E12CAFCC3B95A47A6F759127FE9B98A39AD11F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ Pokemon Play It! Pokemon Trading Card Game ver.2 (2000) [Ru] Repack R.G. Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -74,7 +74,7 @@ Pokemon Play It! Pokemon Trading Card Game ver.2 (2000) [Ru] Unofficial
 magnet:?xt=urn:btih:605BF3B8A5480AD3128B0C948861C2B68C3743CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -101,7 +101,7 @@ Desert Rats vs. Africa Corps / Пустынные крысы против кор
 magnet:?xt=urn:btih:8D5D0D1983736362C0C2BFE6DFCE5CD5EC24151D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -127,7 +127,7 @@ Crusader: A Conspiracy in the Kingdom / Crusader: Adventure Out of Time  (1997) 
 magnet:?xt=urn:btih:601395863ED3B93E7DBC1D3B489C05A1283603ED
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -158,7 +158,7 @@ FIFA World Cup 2006 предоставляет игроку возможност
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -189,7 +189,7 @@ Command & Conquer: Generals / Desert Storm 2 [Ru] (P/Mod) 2005
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -241,7 +241,7 @@ Tortuga: Pirates of the New World / Тортуга: Пираты Нового С
 magnet:?xt=urn:btih:53A94D2179797853D531266BA94F3D95CD62023A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -267,7 +267,7 @@ Gast / Призрак [Ru] (L) 2002
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -293,7 +293,7 @@ Combat Chess (1997) [En] (3.0) License GOG
 magnet:?xt=urn:btih:E07BAEFD0FCE5E421B853F59FD6272E2700FB0A1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -320,7 +320,7 @@ Lost Viking 2 (1997) [Ru/Gr/Fr] Repack R.G. Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -347,7 +347,7 @@ Conan / Конан (2004) [Ru] Repack Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -374,7 +374,7 @@ MechWarrior 2 Titanium Trilogy (1998) [Ru] Unofficial
 magnet:?xt=urn:btih:98BF43AD7CB2DC5D1FF7158B5618FB7F8E4DDBE9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -401,7 +401,7 @@ Amerzone-это квест путешествие от 1 лица. В далек
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -427,7 +427,7 @@ Sniper Elite: Berlin 1945 (2005) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:3FEA5844957DD8CE980FB09E449DAD6AEA11F8DD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -453,7 +453,7 @@ Army Men: RTS / Вояки: RTS [Ru] (RePack) 2002 | Scrim
 magnet:?xt=urn:btih:D508C2F935CBC06D7A40735ED6FE77D6BF89AF8B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -479,7 +479,7 @@ Ecco the Dolphin (1996) [En] Repack R.G. Games
 magnet:?xt=urn:btih:F2E125A80B884C3573443637DE890D3AD6FB7CD3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -507,7 +507,7 @@ Beowulf: The Game / Беовульф (2007) [Ru/En] (1.1) Repack R.G. Механ
 magnet:?xt=urn:btih:BAFE5E1C9814CA953C1D2AA9546BBA7C0A768EE6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -536,7 +536,7 @@ Thief: Trilogy (1998-2004) [Ru/En] (1.37/1.18/1.1) Repack R.G. Catalyst
 magnet:?xt=urn:btih:2C672A01E53143A1B0A9D9673F2FD40469296F66
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,7 +592,7 @@ V.O.T.E.R. Golem / Голем (2001) [Ru] (1.0) License
 magnet:?xt=urn:btih:3FEDBC1BBE33C286391A4B92BC4BF2346FDA943C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,7 +618,7 @@ Targhan [En] (RePack) 1989 | Pilotus (RG Games)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,7 +644,7 @@ Blind Justice [En] (RePack) 1995 | RG games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,7 +670,7 @@ Prophecy of the Shadow (RePack) [En] 1992 | RG games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -699,7 +699,7 @@ Bunny Bricks [En] (RePack) 1993 | Pilotus (RG Games)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

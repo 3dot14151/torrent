@@ -20,7 +20,7 @@ Roller Coaster Tycoon (Р) [Ru] 1999
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Supreme Ruler 2020. Курс доллара обвалился за одну н�
 magnet:?xt=urn:btih:8F00163D2A5161B763538758FBB434CFF9550093
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Kingdom Under Fire: A War of Heroes [Ru] (RePack) 2001 | Pilotus
 magnet:?xt=urn:btih:772EF162B2A8C9907B5CDCDAF3B33093017DE868
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Kult: Heretic Kingdoms / Культ: Королевства Ереси (2004) [R
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,7 +124,7 @@ Kult: Heretic Kingdoms / Культ: Королевства Ереси (2004) [R
 magnet:?xt=urn:btih:1DFC01F7105DA7FA05D42389F93C3F3458303395
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -152,7 +152,7 @@ Hexplore [Ru] (RePack) 1998
 magnet:?xt=urn:btih:36B441E7C27B9AD101EFD0E1079BA7ED3EEC1BA8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,7 +178,7 @@ Conqueror A.D. 1086 (1995) [En] (1.0) License GOG
 magnet:?xt=urn:btih:91D0693EF8502909F11B19D791732507903DA2A0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,7 +204,7 @@ Police Quest: SWAT 2 [Ru] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:CAB49E6E244E1DB4D0A49F86691371B5132C0A2F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,7 +230,7 @@ Tom Clancy's Splinter Cell: Double Agent (2006) [Ru/En] (1.02a) Repack Samael
 magnet:?xt=urn:btih:392F5A75A6FEFE6F38EDD37DB7DE8668EB845CBE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,7 +256,7 @@ Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Мех
 magnet:?xt=urn:btih:BBFBB86AD5ACDCAFF456FF9739A4EA63EFE5890D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,7 +282,7 @@ Rise of the Dragon (1990) [En] (1.0) License GOG
 magnet:?xt=urn:btih:4A49FD5CFC61D44ED76B4CF257AA6F48D120F4C3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,7 +308,7 @@ Painkiller (2004) [Ru/En/Fr] (1.64_lang_update/dlc) License GOG [Black Edition]
 magnet:?xt=urn:btih:19CE4E3EF38CC7B2DF4052F103B0E7E13A634F71
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,7 +334,7 @@ ObsCure Антология [Ru] (RePack) 2005-2007 | R.G ReCoding
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,7 +362,7 @@ Alpha Storm [Ru/En] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:F68729261A10E92D157D2B764A1FFDA6C5194F15
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:8E9E5F2832EA579BF516438DF777ECAAED20BB37
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,7 +415,7 @@ Remember Tomorrow [Ru] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:2827650DA49EB8AE37C55B1786078BDC19D920FD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,7 +441,7 @@ Warlords: BattleCry [Ru] (RePack) 2004 | Pilotus
 magnet:?xt=urn:btih:08E1C99A9950655D20659A08BDA56C6438108023
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,7 +473,7 @@ Star Wars: Rebellion [En/Ru] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:9427AF7A98C81C84B5B973B609FA7AEEB04176C8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,7 +502,7 @@ Far Cry + Collateral Damage / Возмещение Ущерба [Ru/En] (P/Mod) 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,7 +528,7 @@ FlatOut 2 [Ru] (L) 2006
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,7 +556,7 @@ Empires: Dawn of the Modern World (2003) [Ru] (1.0.5163) Repack
 magnet:?xt=urn:btih:ACB1929D137A6E02B7F477D2DF6A88AC140EFCE5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,7 +582,7 @@ Tale of Imerion (2002) [Multi] (1.0.3) License
 magnet:?xt=urn:btih:8D045925FFB408E2503F8CCFB2E8781FBB03F676
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -609,7 +609,7 @@ The Moment Of Silence / Момент истины [Ru] (L) 2005
 magnet:?xt=urn:btih:53B11B8E57E6E7FDC8B94D6B13CBB122E79EA0E4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -635,7 +635,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 magnet:?xt=urn:btih:37B63239DF79948E3D0E2DF1EBF9676D7C220955
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -661,7 +661,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 magnet:?xt=urn:btih:4F703D74B6D8FDF2A870986D34191C817229F6DC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -687,7 +687,7 @@ ObsCure II является продолжением ObsCure, в котором 
 magnet:?xt=urn:btih:C03CFB60162959F1FF613CE64010A4859778FADF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,7 +19,7 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 magnet:?xt=urn:btih:D34B7BE823D8BD9D853283B882CD6F009E98812D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Project IGI: I'm Going In [Ru] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:D1965C81644E88FE68C5450ECF3B7448EA512E21
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 magnet:?xt=urn:btih:719735D19A60E1012B60C23F6715E2435378476B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Vangers: One for the Road / Вангеры [Ru] (Rip) 1998 | Pilotus
 magnet:?xt=urn:btih:ACC618AAA10A0EE01CB2C9BDD832AAE02A5D9B0A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Disney's The Lion King [En] (RePack) 1994 | Pilotus
 magnet:?xt=urn:btih:44BE1587BB8AD2A4425558929097B1A30D40BECE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ TechnoMage: Return of Eternity [Ru] (RePack) 2001 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Lords of the Realm 2 & Seige pack (RePack) [Ru] 1996 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Voyage: Inspired by Jules Verne / Жюль Верн: Путeшествие на 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -230,7 +230,7 @@ Betrayal in Antara [Ru/En] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:899CF8EEA7A6ABC8FE9C5EDA20C1950F3AA26734
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -256,7 +256,7 @@ Disney's The Jungle Book [En] (RePack) 1994 | Pilotus
 magnet:?xt=urn:btih:A10F77FA6E7DF0E6FBEC0208A6DDD9EC7BD7C872
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,7 +282,7 @@ Bang! Gunship Elite [Ru] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:BE59748BB30D99FBB5EAD20CDB037029B2E24C73
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,7 +308,7 @@ Clans [Ru] (Rip) 1999 | Pilotus
 magnet:?xt=urn:btih:2E5910B7BEF6413DF5182C8477D31D6A4C1F9692
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -335,7 +335,7 @@ Brothers in arms: Road to hill 30 / Братья по оружию: Дорога
 magnet:?xt=urn:btih:46E5E2AB1468E8C2EB6B7E687666E7D687A25A2D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -361,7 +361,7 @@ Birthright: The Gorgon's Alliance [Ru] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:475C547D74FB51FCF871AD101BB5725289EB00A2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -388,7 +388,7 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 magnet:?xt=urn:btih:9F576D61D45A3A8FD1CAACECCC0C9809FB047121
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -414,7 +414,7 @@ Counter Action / Противостояние Дилогия [Ru] (RePack) 1996 
 magnet:?xt=urn:btih:85E00F4225E7DD0739ACA71C00F5CA970309A3E2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -440,7 +440,7 @@ Enclave + Addition mod [Ru] (RePack/1.0.0.1/1.1) 2003 | x-7
 magnet:?xt=urn:btih:1F3B44A3988E60E36D6FA35F3697EC85BDDE4C3A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -466,7 +466,7 @@ Spellcross [Ru] (RePack) 1998 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:A208B1F2174C97ADAC786846425BBC4827FFCF22
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -518,7 +518,7 @@ Redneck Rampage - компьютерная игра в жанре шутер о�
 magnet:?xt=urn:btih:4971CAD9ADC689944C2604337AD026693EF048CC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -544,7 +544,7 @@ Duke Nukem Коллекция [En/Ru] (RePack) 1991-2010 | WinterKiss
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -572,7 +572,7 @@ Nosferatu: the Wrath of Malachi / Вампиры [Ru] (P) 2003
 magnet:?xt=urn:btih:E30508AAFFD465F8DAD4029205CE12F00D8CBCCD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -599,7 +599,7 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 magnet:?xt=urn:btih:CC357CBD5B6C1671B6BB32AA2E50F9E5E71DA410
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -627,7 +627,7 @@ The Shield: The Game / The Shield: На страже порядка [Ru] (RePack
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -653,7 +653,7 @@ Dark Planet / Тёмная планета (RePack) [Ru] 2002 | Pilotus
 magnet:?xt=urn:btih:6F7040C0ABA7DE88458D8DBFD5EDAB4BAFF4991B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:B9005F9F920F85C663C5C3EA0E69A894C656ADEF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -21,7 +21,7 @@ Driver: Parallel Lines [Ru/En] (RePack) 2007 | R.G. Механики
 magnet:?xt=urn:btih:143C8F33CD3283097B3AEC5A89C44EB676F21E96
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ Holiday Island создана в стиле Сим-Сити, но вместо �
 magnet:?xt=urn:btih:0F3B1C9E96D1B5E514253C801BDF9522B9AF26E6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ Reunion [En] (RePack) 1994 | Pilotus
 magnet:?xt=urn:btih:105B2927AB7B8C9A9E2F07E1CA735D8E7B50E1A3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ JA в особых представлениях не нуждается - игр
 magnet:?xt=urn:btih:F68B91CAA464BBACCD77C8AEBBA43B1A19C85303
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ MDK2 снова вышла на PC. На этот раз улучшения ко
 magnet:?xt=urn:btih:EE707378649AD6816DDB5E5012B09461AC9FF644
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Terminal Velocity [En] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:CC0E0E5C3A7B8D66D0F9822F9F0AC6D0F5438CF2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Tone Rebellion [Ru] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:6DDDEA6AD11C6CAE13ECCE65B37F4FC8775DFC02
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Shadowman / Тень [Ru] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:579E87B32DED3C3ED6CAED92F544EA633974A5F4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:7F455805EF0D847EA936A178C34C952027F43800
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,7 +255,7 @@ Spirit of Excalibur [En] (RePack) 1990 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -282,7 +282,7 @@ Night Shift [En] (RePack) 1990 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -309,7 +309,7 @@ Power Dolls [En] (RePack) 1995 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,7 +336,7 @@ Metal Marines - изометрическая стратегия ведения �
 magnet:?xt=urn:btih:1A6E55CE8EFFF37C8E77C6621B8313A37D4EB4E0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,7 +363,7 @@ Dark Heart of Uukrul [En] (RePack) 1989 | RG games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,7 +390,7 @@ Independence War Deluxe [En] (RePack) 1997 | GOG {Independence War:The Starship 
 magnet:?xt=urn:btih:A7EE42BB681585260121FADEA8E4FBE3B69AFBDD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,7 +417,7 @@ Chris Sawyer's Locomotion / Chris Sawyer's Locomotion: Транспортный 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -444,7 +444,7 @@ Robinson's Requiem и Deus Дилогия [En] (RePack) 1994-1996 | GOG
 magnet:?xt=urn:btih:ADC2814C37F522A2B48119F3992AA43C217E02F0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -470,7 +470,7 @@ Enemy Infestation [En] (RePack) 1998 | Pilotus
 magnet:?xt=urn:btih:77FE8EC3E347CCAFEA9761DCA54ABD8A3A490711
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -498,7 +498,7 @@ Silent Storm Антология [Ru] (P) 2003-2005
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -524,7 +524,7 @@ Kingdom at War [En] (RePack) 1992 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -550,7 +550,7 @@ Motor City [En] (RePack) 1994 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -576,7 +576,7 @@ Holiday Island - великолепная, насыщенная радужным
 magnet:?xt=urn:btih:B194E62B3FF1D7A341D4ED05D11BB9C584382C58
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -602,7 +602,7 @@ Darkspyre [En] (RePack) 1990 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -629,7 +629,7 @@ Shadoworlds [En] (RePack) 1993 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -656,7 +656,7 @@ Worms: Armageddon [Ru/En/Multi9] (RePack/3.6.31.2b) 1999 | R.G. GraSe Team
 magnet:?xt=urn:btih:F5D77B09A4F8F8747D8FF905EBD5622AA78C9D05
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -682,7 +682,7 @@ True Crime: Streets of L. A. [Ru] (L) 2004
 magnet:?xt=urn:btih:80B5D11222E9AD2CC28428286C4FD867C4B57D99
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

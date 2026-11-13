@@ -19,7 +19,7 @@ Shattered Union: Захват США - тактическая стратегия
 magnet:?xt=urn:btih:872A7821581DB616C0236F06EF6F7129248F5F2A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ The Lord of the Rings: The Battle for Middle-earth (2004) [Ru/En] (1.03) Repack 
 magnet:?xt=urn:btih:7C62A68528E95BC189702F5D8DDA36EAE05C0902
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ So Blonde (2008) [En] (1.0) Scene Reloaded
 magnet:?xt=urn:btih:DD0DA566F331020893B32A814A2478456643E6E5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ BloodCM - это разрабатываемый в данный момент, н
 magnet:?xt=urn:btih:55B825E78D3E72FCFE2EC471B4CFE4DD85C72CD7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ DXX Rebirth - это модификация Descent 1 и 2 части для з�
 magnet:?xt=urn:btih:449BBD8A2789A74CBC5777A0B162CA35877D7EE8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Perimeter 2: New Earth / Периметр 2: Новая Земля (2008) [Ru] (
 magnet:?xt=urn:btih:3D2E3DE584DB12188D05A339F3074A56A14A4FE3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 magnet:?xt=urn:btih:9887982EAE798CAD6241D68A93B09EA46674E614
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Star Wars: Jedi Knight II - Jedi Outcast (2002) [Multi] (1.04) License GOG
 magnet:?xt=urn:btih:2644B1BDE9E7809231294851333BF54D127EA5B0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 magnet:?xt=urn:btih:D3F038E8051DCB350DAA625D0F4070BBE82F1279
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Panzer General 3 - третья глава популярной серии ст�
 magnet:?xt=urn:btih:F1A851BA54465D8AFE2ACB730CA96359C991934E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 magnet:?xt=urn:btih:B47FFD3FD3CCB09E3C517EB5B039EBF933186202
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Cossacks: Back to War / Казаки. Снова война (2002) [Ru/En] (1.35
 magnet:?xt=urn:btih:64AF894D82575FC015E3061219401B4A0F787C28
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ Alexander (2004) [Ru] (1.60) Repack Decepticon
 magnet:?xt=urn:btih:301924C8EE433488F71405BE1238DFB8D7B306CD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ The Bard's Tale ARPG: Remastered and Resnarkled - фэнтезийное хак-
 magnet:?xt=urn:btih:4001A0B457780D5FACC62B659E374FCE5A4EB8AC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Velen 2.0 / Велен 2.0 (2019) [Ru/Multi] (2.1.3) License
 magnet:?xt=urn:btih:0AC1760C24E9638096E06130BBFDF638B4616A9A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ World Rally Fever – взрывная смесь боевика и сумасш
 magnet:?xt=urn:btih:3C969A74CDB9DF47AB10927114C1C04004E177CE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -436,7 +436,7 @@ Enclave [Ru/En] (RePack) 2003 | R.G. Механики
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -462,7 +462,7 @@ Scorched Earth (RePack) [En] 1991 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -488,7 +488,7 @@ Bad Blood - это пост-апокалиптическая РПГ от Origin 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -514,7 +514,7 @@ Stronghold Crusader (Rip) [Ru] 2003 | maestro1997
 magnet:?xt=urn:btih:02EE0A8E10D25152D6D2E1C60BC9C6176218ACA8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -540,7 +540,7 @@ Druid: Daemons of the Mind [Ru] (RePack) 1995 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -566,7 +566,7 @@ Master of Magic (RePack) [En] 1995 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -592,7 +592,7 @@ Centurion: Defender of Rome (RePack) [En] 1990 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -618,7 +618,7 @@ Inherit Earth – игра, в которой сюжет играет перво
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -644,7 +644,7 @@ Battle Master [En] (RePack) 1991 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -670,7 +670,7 @@ The Elder Scrolls Adventures: Redguard [Ru] (RePack) 1998 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

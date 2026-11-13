@@ -21,7 +21,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 magnet:?xt=urn:btih:711660E9BAE9D23F59C0D898693C0A16A6E5CABC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -47,7 +47,7 @@ BloodRayne [Ru] (L) 2005
 magnet:?xt=urn:btih:F761C7142A2E4604B4729DE2B5F69594514FA0A5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ Speed Busters: American Highways (1998) [En] (1.0.0.1) License GOG
 magnet:?xt=urn:btih:4FFE5995C9D346513434BF030664561DE7677B7B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Star Wars: Shadows of the Empire (1997) [En] (2.2.0.11 GOG) License GOG
 magnet:?xt=urn:btih:67C0395E01EAEB3FCF8AB203EF3282F7CD007F5D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ No Man's Land / Колонизация: Битва за новые земли (L
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Nascar Racing + Nascar Racing 2 (1994-1996) [En] Repack WinterKiss
 magnet:?xt=urn:btih:14F3205C67D6D9F8010E81B201AC8B7BF1175C92
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Undercroft (2006) [En] (1.2) Repack dark_elf2
 magnet:?xt=urn:btih:AFF923544232C7ACFABE61F9818D306F1C022A30
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,7 +205,7 @@ Theocracy [Multi6\+] (P) 2000
 magnet:?xt=urn:btih:C710AEB705001912D9A3B2397DE5D0911A9E0FDB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -231,7 +231,7 @@ Army Men 3: Toys in Space (1999) [En/Multi] (1.0.0.0) License GOG
 magnet:?xt=urn:btih:8D4B831D6CB29D9FBFB0E64C70367C9FF57F0044
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -257,7 +257,7 @@ Manhunt Anthology - это собрание всех представленны�
 magnet:?xt=urn:btih:2EE4092B8FE773DBFF42FFD88A945ADBCA0547CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -285,7 +285,7 @@ The X-Files Game (1998) [Ru/En] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:67CCABAE9A2F0219843F97354C8E9180516F8922
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -311,7 +311,7 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 magnet:?xt=urn:btih:E80A10160B127ECAA55AE54E31F61B57BE0323F4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,7 +337,7 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 magnet:?xt=urn:btih:35E5C339D448CEEAB4A39B02FE68DC18FA1FD1F2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,7 +363,7 @@ MX vs. ATV Unleashed (2006) [En] (1.0) License GOG
 magnet:?xt=urn:btih:8B027BACC1442FB46957791083BB48E12A11AD04
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,7 +389,7 @@ Imperialism 2: The Age of Exploration (1999) [En] (1.03) License GOG
 magnet:?xt=urn:btih:D3E54DED862542DE9E9A3DD40B40043CC5E8B612
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,7 +415,7 @@ Rayman Raving Rabbids 2 / Rayman: Бешеные кролики 2 [Ru] (RePack) 
 magnet:?xt=urn:btih:E2A78ACB891547E6C166B6EE6D38324DE52929E9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,7 +441,7 @@ Airlines 2 [Ru] (RePack) 2002 | RG Games\Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -467,7 +467,7 @@ State of Emergency [Ru] (RePack) 2002 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -493,7 +493,7 @@ Bedlam [Ru] (RePack) 1996 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -519,7 +519,7 @@ Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kir
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -546,7 +546,7 @@ Seven Kingdoms 2: The Fryhtan Wars [Ru] (RePack) 1999 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,7 +574,7 @@ Farscape: The Game [Ru] (RePack) 2002 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,7 +600,7 @@ Transport Giant - компьютерная игра, экономическая 
 magnet:?xt=urn:btih:869A0434665E34568287E48A9D097074760EFB80
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,7 +626,7 @@ Deadlock II: Shrine Wars [Ru] (RePack) 1998 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,7 +652,7 @@ Gamos Collection: Color Lines, Corner, Balda, Nine, IT, Flip-Flop [Ru/En] (RePac
 magnet:?xt=urn:btih:C86C702C267AEA30C28F368F56EA54967B685605
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,7 +678,7 @@ Gobliiins Classic Trilogy (1991-1993) [Ru/En] (1.0.1) Repack R.G. Catalyst
 magnet:?xt=urn:btih:F9827FB9B27EFFDEFC5E434744FCE8E8E7210870
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

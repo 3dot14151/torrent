@@ -20,7 +20,7 @@ Test Drive 6 [Ru] (RePack) 1999 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:3CCCDB66126AECE6A958AA9EE8E42566389640A8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ Black Moon Chronicles (1999) [En/Fr/Ge] (1.0) License GOG
 magnet:?xt=urn:btih:15EE6ABC13790827FFFE42CF27D38B5F3576AED6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Test Drive 6 [Ru] (P) 1999
 magnet:?xt=urn:btih:ADF4C4860B1E60E2EF2B6EDDBE76ACB8BB08D892
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Civilization 2: Test of Time [Ru] (P) 1999
 magnet:?xt=urn:btih:BF7FA97A2631BACF2C4B79CD3CD75A75CAD676CE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Far Cry K9 Vision - то, что изначально планировалось
 magnet:?xt=urn:btih:402A294D4FF3654B3E083EDB40CCB36BC8C573B1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Disciples 2 Gold (2005) [En] (2.02/dlc) License GOG
 magnet:?xt=urn:btih:DD60C6C3624F8356ECD5955D85529055B3536A65
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:93A9993728BC66C2A17B4B66E0B468FCEFD98DEA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ Submarine Titans / Морские Титаны: Зов Глубин (2000) [En] 
 magnet:?xt=urn:btih:854A65829FAB9D92A7BA7BE906045F855BC48376
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,7 +255,7 @@ Thief: Deadly Shadows / Thief 3: Тень смерти (2004) [Multi] (1.1) Lice
 magnet:?xt=urn:btih:8C11DAA6231C44B359EDD2C17638A4995557B651
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,7 +281,7 @@ Dune 2000 - стратегия в реальном времени с видом 
 magnet:?xt=urn:btih:4236E5D1AC6EE80C9A7F8F0A7E7E339B0C75E21D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,7 +307,7 @@ Imperialism (1997) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:8367512C24ECC4F58717596009EF6AB0ADF438E9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -333,7 +333,7 @@ Warcraft Trilogy (1994-2002) [Ru/En] (1.2/2.02/1.26a/dlc) Repack Necros
 magnet:?xt=urn:btih:F1758A42BFF845B69E0FF64E440D4DC5CE1E7EA8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,7 +360,7 @@ Carrier Command [En] (RePack) 1989 | RG games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -387,7 +387,7 @@ Tower Toppler [En] (L) 2007
 magnet:?xt=urn:btih:1048A5BBE934266798D120819BA367FEFE9C8FAA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -413,7 +413,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.100) Repack Necros [20th An
 magnet:?xt=urn:btih:846F8A275A986E3C660D160C828A2949C8DA0AEB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -439,7 +439,7 @@ Microsoft Flight Simulator — серия гражданских авиа сим
 magnet:?xt=urn:btih:9A52ABFD607303E9FAA28ABCD3C0A313F0DE26D0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -465,7 +465,7 @@ Test Drive 2002 [En/Ru] (Rip) 2002 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -491,7 +491,7 @@ Grand Theft Auto: London 1969 - дополнение для игры Grand Theft
 magnet:?xt=urn:btih:6CC6A885EECE6A59943760B34F68D4917038DD8A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -517,7 +517,7 @@ Space Clash: The last frontier / Космические войны: Послед
 magnet:?xt=urn:btih:5056D403F593D17322ADC1708BE20C4CEC636B0E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -543,7 +543,7 @@ Warrior Kings / Лорды войны [Ru] (L/1.4) 2002
 magnet:?xt=urn:btih:F0CC09E7A2C282248BD58A27A14053CAE32FA378
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -570,7 +570,7 @@ LEGO Drome Racers (2002) [Ru/Multi] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:8857674338D64CC012777542FDD0932933B33887
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -597,7 +597,7 @@ Battle for Troy посвящена мифическому событию, опи
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -624,7 +624,7 @@ Gates of Troy / Легион 3: Врата Трои [Ru] (RePack) 2004 | RG game
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:0DEC25865723D54F4CA4C563C6EA36AC9B770DB4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -676,7 +676,7 @@ Thief™ Gold (1999) [En] (1.26ND) License GOG
 magnet:?xt=urn:btih:561A324397E3C849E4A285FB1E0032240A343D1B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

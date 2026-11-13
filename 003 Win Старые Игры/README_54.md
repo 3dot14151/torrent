@@ -19,7 +19,7 @@ Darkstone (1999) [En/Ge/Fr] (1.0.5b) License GOG
 magnet:?xt=urn:btih:7ED7C79A13BB9675DC96A0C03B7AE71136CEDA87
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Master of Orion 3 / Master of Orion 3: Престол Галактики (2003) 
 magnet:?xt=urn:btih:E498028156CF8DCD5550E8BBB286B6CB638B5620
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Teenagent (1994) [En] (1.0) License GOG
 magnet:?xt=urn:btih:26D0BD427165D429B8971997786E6AF2DD7C782C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Grand Theft Auto: Vice City / Killer Kip [En/Ru] (P/Mod) 2003
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Code Blue: The Interactive ER Game / Скорая помощь 1 (2000) [Ru] (1.
 magnet:?xt=urn:btih:E1D73F71AACF311230367E9065E4E468E63FC12B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Knight Rider: The Game / Рыцарь дорог (2003) [Ru] (1.0) License
 magnet:?xt=urn:btih:D3D94D35BC958A679DCCFB7930A2205BFC6968BB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,7 +176,7 @@ Dracula 2: The Last Sanctuary / Дракула 2: Последнее Прибе�
 magnet:?xt=urn:btih:A95D119451FBADF8DD479BB4D4B3B5C4189F20A6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,7 +202,7 @@ Pax Romana / Римская империя (L) [Ru] 2003
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,7 +228,7 @@ The Legend Of Kyrandia: Book Three: Malcolm's Revenge / Легенда Кира�
 magnet:?xt=urn:btih:06B82640E559C0F4EC3044F0D81961AF41C82B06
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,7 +254,7 @@ Bubble Bobble [En] (RePack) 1986 | Pilotus
 magnet:?xt=urn:btih:E6AE3F33791E2B67AF90B0DBE2BF56C11B16594E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,7 +280,7 @@ Duke Nukem начал свой путь еще в 1991 году, до того �
 magnet:?xt=urn:btih:19045322A89DFDA29B3E5185E29A81FC862570A1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,7 +307,7 @@ Call of Juarez / Call of Juarez: Сокровища Ацтеков (2006) [Ru/En
 magnet:?xt=urn:btih:E180FFBA09250FC30599FA8C3842EEA5D1539709
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -339,7 +339,7 @@ Tom Clancy's Splinter Cell: Double Agent [Ru/En] (Rip/1.02a) 2006 | R.G. Shift
 magnet:?xt=urn:btih:835D72B0B3374A6427768A058714BEC4A4ADCC43
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -367,7 +367,7 @@ Battle of Europe: Royal Air Forces / Рыцари неба: Асы короле�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -393,7 +393,7 @@ Myth III (разработчик Mumbo Jumbo) представляет собо�
 magnet:?xt=urn:btih:15A7881D8DCB634B0BA440C60215E24B3662598D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -419,7 +419,7 @@ Blade & Sword 2 [Ru] (RePack) 2005 l IGALLARDOI
 magnet:?xt=urn:btih:D744F1A1E145D362FF2D5E0492D519332354075A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:DB90A642F1B35317481891DEDD070AE6F5E81E26
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -474,7 +474,7 @@ Gotcha! / Банзай! [Ru] (L) 2004
 magnet:?xt=urn:btih:2D21F96AA7CB96D200E0B82E111FC723F26CF2CF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,7 +501,7 @@ MegaMan X2 [En] (P/Emul) 1994
 magnet:?xt=urn:btih:27A306D90DC326794F26707575A8938BCDC7C026
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,7 +528,7 @@ MegaMan X [En] (RePack) 1995 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -555,7 +555,7 @@ Megaman X4 [En] (RePack) 1997 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -582,7 +582,7 @@ Y2K: The Game / Y2K Problem / Millennium Bug [Ru] (RePack) 1999 | Kirill Games
 magnet:?xt=urn:btih:7D18458685BB6A9B118CE1B376AD5DA421CF5D9B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -608,7 +608,7 @@ Agharta: the Hollow Earth [Ru] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:A4003B333E44E2A8B3E9C7605C7C5290BD709F2A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -636,7 +636,7 @@ Mega Man X, его друг Zero и новый герой Axl продвигаю
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -663,7 +663,7 @@ MegaMan Legends [Ru] (RePack) 1997 | RG Games/Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -690,7 +690,7 @@ Mega Man — платформер. Игра начинается с ролика
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

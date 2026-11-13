@@ -19,7 +19,7 @@ Tell: Das Spiel zum Film / Вильгельм Телль: Голый арбал�
 magnet:?xt=urn:btih:CFC2A6921509B6D7A64EC0CA39932E6577B22CD5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Counter Action / Противостояние [Ru] (L) 1997
 magnet:?xt=urn:btih:539B4B983557E81F44295B5B97A56B430C07FF98
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ Counter Action: Fired Snow / Противостояние: Опаленный с
 magnet:?xt=urn:btih:E55A504E776E6BF870CD07A07580A13A79BA0FBD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ X-COM: Apocalypse [En] (L) 1997
 magnet:?xt=urn:btih:8A914DAF647F8BA5B9C6C3BB34A4B1E382BEECCE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ Matrix / Матрица Дилогия (RePack) [Ru/En] 2003-2005 | VANSIK
 magnet:?xt=urn:btih:BA951CF8A7177FEE1E7CDE09F7C4D025A297DEB4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Black Dahlia Black Dahlia - так прозвали известную в 40-е 
 magnet:?xt=urn:btih:A783525B65C901EEAEF5A7C56DF9A3E10239B3D7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -178,7 +178,7 @@ Creatures – это игра, симулятор жизни. Вы будете 
 magnet:?xt=urn:btih:90B225BC716596E1D793548965A20327E3F2B833
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -204,7 +204,7 @@ Sid Meier's Pirates! (2004) [En] (1.0) License GOG
 magnet:?xt=urn:btih:D346AE04E7E1C8BB4CA4485B9A63B98BA84711CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,7 +232,7 @@ Doofus [En] (RePack) 1994 | RG games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -288,7 +288,7 @@ PaladinТип издания: RePackЖанр: СтратегияЯзык озв�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -314,7 +314,7 @@ Die by the Sword: Limb from Limb [Ru] (P) 1998
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,7 +342,7 @@ Gold and Glory: The Road to El Dorado [Ru] (P) 2000
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,7 +368,7 @@ Forsaken [Ru] (P) 1998
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -395,7 +395,7 @@ Redjack: Revenge of the Brethren [Ru] (P) 1998
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -421,7 +421,7 @@ Death Gate [En] (RePack) 1994 | Pilotus
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -447,7 +447,7 @@ Pax Imperia 2: Eminent Domain - игра в жанре глобальной ко
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -473,7 +473,7 @@ MechWarrior 3 + MechWarrior 3 Pirate Moon [Ru/En] (P) 1999
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -501,7 +501,7 @@ Metal Gear Solid + VR Missions [En] (RePack) 2000 | R.G. Catalyst Old Games
 magnet:?xt=urn:btih:79F78C08AEBFD92F1B843F73271EF47D9866C163
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -527,7 +527,7 @@ Billy Blade and the Temple of Time / Принц Блэйд и Храм Врем�
 magnet:?xt=urn:btih:3A162F3C38B4196EC271825EB55849E001C3EB82
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -553,7 +553,7 @@ Cameron Files 2: The Pharaoh's Curse / Amenophis: Resurrection / Проклят�
 magnet:?xt=urn:btih:889C27E31389A2187B8EBC75C5DD7FB6270ADDD6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -579,7 +579,7 @@ Keepsake / Keepsake: Тайна Долины Драконов [Ru] (Repack/1.6) 
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -605,7 +605,7 @@ Wallace & Gromit in Project Zoo / Уоллес и Громит: Ужасная �
 magnet:?xt=urn:btih:87F8AB93E2B380D71F1E04D416BB466469D7D393
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -631,7 +631,7 @@ Company of Heroes (2006) [Ru/En] (2.700.2.43/dlc) SteamRip Let'sPlay
 magnet:?xt=urn:btih:56D5873E6298D6E688CEB3DCA93B3228937A763C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -657,7 +657,7 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 magnet:?xt=urn:btih:6D2FA6349C36C81911C67071014AC9083258B99D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -684,7 +684,7 @@ EuroCops / Полиция Европы: Спецподразделения [Ru] 
 magnet:?xt=urn:btih:7C54E9D2EE6CE25C457F0582885D935B8F7CDD04
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

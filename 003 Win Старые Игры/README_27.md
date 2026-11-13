@@ -19,7 +19,7 @@ Asterix: Operation Getafix [En] (RePack) 1989 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Digger с элементами стратегииТип издания: RePackЖ
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Railroad Tycoon 2 (Rip) [En] 1999 | RG Games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Dangerous Dave Антология [En] (RePack) 1988-1993 | RG games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ King's Bounty [En] (RePack) 1990 | RG games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ Stolen / Stolen: Ограбление века [Ru] (RePack) 2005 | SKLYARAN74
 magnet:?xt=urn:btih:360526E6B0EE31D760D5414E40B15A233DFF99D2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -177,7 +177,7 @@ Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
 magnet:?xt=urn:btih:C1618ED1717C777CF152ACFF38FC590F0EF4E084
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -203,7 +203,7 @@ Bio Menace (1993) [En] (1.1) License GOG
 magnet:?xt=urn:btih:BD9A4066C8A3A242258F33369177D96700C1D87B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -229,7 +229,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -255,7 +255,7 @@ Guitar Hero 3: Legends Of Rock / Guitar Hero 3. Легенды рока (2008) [
 magnet:?xt=urn:btih:C2A7787708A430F2A31278D481F348F9D3F2F087
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -281,7 +281,7 @@ Operation Air Assault 2 / Апач 2: Русский синдром [Ru] (RePack
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:2362A7E50AE4067ED813BE94CD6C9E8B98388F39
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -337,7 +337,7 @@ Necronomicon: The Dawning of Darkness (2001) [Ru/En] Repack R.G. Механик�
 magnet:?xt=urn:btih:4BE653C6BAF97FE84D0E43B4F9F22F13009F8241
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -363,7 +363,7 @@ D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
 magnet:?xt=urn:btih:480893D5C21A90E59767C7D6CA252FA588B18C49
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -390,7 +390,7 @@ Halcyon Sun / Солнце Халкиона [Ru] (RePack) 2002 | RG games (Pilot
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -417,7 +417,7 @@ Robot Wars: Arena of Destruction [Ru] (P) 2002
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -445,7 +445,7 @@ Earth 2140 Trilogy / Земля 2140 трилогия (1997-2006) [Ru/En] (1.0) 
 magnet:?xt=urn:btih:5214771D1E7A86676EA140F9ECB2C9445EB3C2B1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -471,7 +471,7 @@ War Wind (1996) [En/Fr/Ge] (1.2) License GOG
 magnet:?xt=urn:btih:0CCD5B0F13D7DDEF75FFB25B2AA1F39904537C1B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -497,7 +497,7 @@ Ominous Horizons – не «агитка» церкви и не пропаган
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -523,7 +523,7 @@ Tyrian Антология [En] (RePack) 1995-1999 | Someone
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -549,7 +549,7 @@ Flying Heroes / Рыцари поднебесья [Ru] (L) 2000
 magnet:?xt=urn:btih:3F435E1186E3D08E85594F3052ECBCB322832B9C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -575,7 +575,7 @@ Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
 magnet:?xt=urn:btih:6377911158DF95D8DF144445AD838AF791292111
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -601,7 +601,7 @@ Doom — культовая компьютерная игра, выпущенн�
 magnet:?xt=urn:btih:5FD543CA19AB05398C56A00510FB9E17EC7BEF42
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -632,7 +632,7 @@ The Battle for Wesnoth / Битва за Веснот (L) [Multi35/Ru] (2012)
 magnet:?xt=urn:btih:248BB74A97484BC9FADE69A4D87057DA5B67A404
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -658,7 +658,7 @@ Diggers 1 и Diggers 2: Extractors [En] (RePack) 1993-1995
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -685,7 +685,7 @@ Timeline [Ru] (RePack) 2000 | RG games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

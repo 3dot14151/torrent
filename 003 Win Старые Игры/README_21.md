@@ -19,7 +19,7 @@ Pray for Death (1996) [En] (1.0) License GOG
 magnet:?xt=urn:btih:4A56A90BC5E20A83B2BA8EDD18CD906B841E1E0B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Turok / Турок (2008) [Ru] (1.0) Rip xatab
 magnet:?xt=urn:btih:22AB8DE224FD63BD944639BAA4E3F9B0DF8F6CCF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Anachronox (2001) [En] (1.02) License GOG
 magnet:?xt=urn:btih:14934E84843336DBB315A278B8B14ABCBEDC1183
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Titan Quest (2006) [Ru] (1.20) License
 magnet:?xt=urn:btih:827AF2593CFFB71AEAC4C616FAE452B64597D597
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ Tomb Raider 4: The Last Revelation / Tomb Raider: Последнее откро�
 magnet:?xt=urn:btih:A748C9FB4E2219A5F5D6D1ACE017F6438D641F06
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ Carmageddon 2: Carpocalypse Now (1998) [En] (1.0) License GOG
 magnet:?xt=urn:btih:44A369AE36F3A829364466A9E652CFF84C96B2DA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Starship Titanic (1998) [Multi] (1.0.0.42c) License GOG
 magnet:?xt=urn:btih:B2B3FF833E493C92B9D781B35B4A321B55B5DF8B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.21.2.1256) License CODEX
 magnet:?xt=urn:btih:D71DAAFF2DDD0AAC66D3A6E57A05808D9210C6E0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Alpine Skiing 2005 (2004) [En/Ge] (1.88) Repack CoD - MW2
 magnet:?xt=urn:btih:D4833679EB15C10A788F8DA6ABE8F8D559EAF241
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Salt Lake 2002 является официальной игрой XIX зимни
 magnet:?xt=urn:btih:9BBF6B78A2280A50065C13BB28B554279FBD7FFC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Alpine Skiing 2006 / Лучшие из лучших. Горный слалом 2
 magnet:?xt=urn:btih:137B6715E5D7C15DE5D31D3DCF3E4711E0097CDD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ Torino 2006 (2006) [Multi] (1.0) Repack CoD - MW2
 magnet:?xt=urn:btih:39AB580A01F4AE6797661D0EC628DE90EE5140A2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ RTL Biathlon 2007 / RTL Биатлон 2007 (2006) [Ru] (1.0) Repack CoD - MW2
 magnet:?xt=urn:btih:E7E2046B327E7EB351A6388A64882593B4A84E7D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Curling 2006 (2006) [Ru] (1.0) Repack CoD - MW2
 magnet:?xt=urn:btih:5BA74441C186E0338E0D545D838F563B24941EE5
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ RTL Winter Games 2007 / RTL Зимние игры 2007 (2006) [Ru] (1.0) Repack 
 magnet:?xt=urn:btih:0E338991CB1ECBA02C871D7F1EDC97E37CBC17AE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ RTL Ski Jumping 2005 (2004) [En/Ge] (1.47) Repack CoD - MW2
 magnet:?xt=urn:btih:6A9E999B8E276761B289080C921B73C24F964A17
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ RTL Ski Jumping 2007 / RTL Лыжный трамплин 2007 (2006) [Ru] (1.0) 
 magnet:?xt=urn:btih:E378604FD4C247920EB3A674E9D7C7D4B2BFBFCF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ Alpine Ski Racing 2007 / Горные лыжи: Альпийский сезон 
 magnet:?xt=urn:btih:0F1011FC2A8BF0E1725688AFC45077668C52C25A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:54C0BA32844ACE895B1AE77305226F292CF0F1CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ Baldur's Gate II: Shadows of Amn / Baldur's Gate 2: Тени Амна (2000) [Ru
 magnet:?xt=urn:btih:95DCA453A7F716C8F74CEFB999FBD7FDE845B6B2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ Peter Jackson's King Kong: The Official Game of the Movie (2005) [Ru/Multi] (1.0
 magnet:?xt=urn:btih:8319CEB520DE1361C33C1D48288DC0757AC8B9F9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ RTL Winter Sports 2008: The Ultimate Challenge / Зимний спорт 2008 (2
 magnet:?xt=urn:btih:5814503806ECAE01771A7E05A1BAE69690328CF9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ The Guild Gold Edition — вероятно, одна из самых необы
 magnet:?xt=urn:btih:ADC096E9937C2E987FBA63DC67620D36B841835E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ Lighthouse: The Dark Being (1996) [En] (2.0a) License GOG
 magnet:?xt=urn:btih:811A3550AC16181774A40694FCC9E124CA7A3706
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ Dogfight: Battle for the Pacific / Pacific Warriors 2: Dogfight! / Ударна�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 magnet:?xt=urn:btih:473A8E9D82F1165102CB02B2BC8D7E20316D1FC3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

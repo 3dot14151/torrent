@@ -19,7 +19,7 @@ Heroes of Might and Magic IV (4) (2004) [Ru/En] (3.0/dlc) Repack Wanterlude [Com
 magnet:?xt=urn:btih:8275AF1DAF5B0CC3845B2B089DD48835036533CB
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Action-RPG нового поколения, созданная на новейш
 magnet:?xt=urn:btih:15E8F710FB0FE74A68ECB6AD23C3E8416802A6C4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Jagged Alliance 2/1 Metavira (2013) [Ru] (1.0.8) Repack/Mod dark_elf2
 magnet:?xt=urn:btih:91BDD6A34699C7588755DC0DB8E87BC4CE6D71C4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -97,7 +97,7 @@ Prey (2006) [Ru] (1.4) Repack/Mod seleZen
 magnet:?xt=urn:btih:94C97738AFAAD46C06BFE75034AD80A4305ED397
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -123,7 +123,7 @@ O.D.T.: Escape... or Die Trying (1998) [En] (1.0) License GOG
 magnet:?xt=urn:btih:635317622734E4DE0BF784410C03EF57E24F5AB0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -149,7 +149,7 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 magnet:?xt=urn:btih:CB90409C79D1A350F50B41B9B7B7EBA65FB4A034
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -175,7 +175,7 @@ Blackwell Epiphany - заключительная часть серии поин
 magnet:?xt=urn:btih:1B943C68FB2D28B548A715880BBDB13FBE1BAD3B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -201,7 +201,7 @@ Resonance (2012) [En] (3.1c) License GOG
 magnet:?xt=urn:btih:9733F735DF814ADB90ACC12E4189F7EB1BC6C792
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -227,7 +227,7 @@ Black Convergence - третья часть известной приключе�
 magnet:?xt=urn:btih:420714B27D4E23DE768179EB8F6DEE13DBB1036B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -253,7 +253,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд. Легенда Шерв�
 magnet:?xt=urn:btih:91DA7567182C7BC64359DE9304C5F440020FF5A0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -279,7 +279,7 @@ Garry's Mod - физическая песочница. В отличие от о
 magnet:?xt=urn:btih:E7903F367D82DB6E78D675BA1A552A1AAECD97B4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:F412A20B53B3FD1CA85F326849A4F236D0344CB6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -331,7 +331,7 @@ he Elder Scrolls IV: Oblivion® Game of the Year Edition является одн
 magnet:?xt=urn:btih:8B94FB189FD927913B5D7E70675E51604FECB890
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -357,7 +357,7 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 magnet:?xt=urn:btih:0B39E3F79053D3A25817804312997505A3224DA6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -383,7 +383,7 @@ Cannon Fodder - это смесь таких жанров, как стратег
 magnet:?xt=urn:btih:3081BEFF15C1EFF3B28A9C5235182E529A12850E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -409,7 +409,7 @@ Warlords III: Darklords Rising (1998) [En] (1.0.2) License GOG
 magnet:?xt=urn:btih:59F9CE9EE962DBDE1BEA35E14D663E9B439A09E7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -435,7 +435,7 @@ Homeland - The Stone of Night (2000) [En] (1.0.3z) License
 magnet:?xt=urn:btih:E4953FCDD4E1BF274E37525F0E63B7A9B08E3950
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -461,7 +461,7 @@ Hitman 2: Silent Assassin (2002) [En] (1.01) License GOG
 magnet:?xt=urn:btih:178A692A28EB1EAA5DEDF08EAFC99B882BF497E7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -487,7 +487,7 @@ RollerCoaster Tycoon 3 (2006) [Ru/Multi] (1.0) License GOG [Complete Edition]
 magnet:?xt=urn:btih:F4C2AD6EDBA5585ED775A7160411A0B664ED3465
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -539,7 +539,7 @@ I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License А
 magnet:?xt=urn:btih:BF2DBEA1736BD3AA631CF6CB010642AEE04BE44D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -565,7 +565,7 @@ Creatures: Village (2004) [En] (1.11) License GOG
 magnet:?xt=urn:btih:7F5FF802CE6ACB8FC9B5D7A2B7A32DEDA10D8562
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -591,7 +591,7 @@ Warhammer 40000: Rites of War сильно отличается от други�
 magnet:?xt=urn:btih:9EEDC1659ED9263EBC8E1BE15381D2E4146A3252
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -617,7 +617,7 @@ Warhammer 40.000: Dawn of War (2004) [Ru] (1.51/dlc) Repack EXROW
 magnet:?xt=urn:btih:E811A1EBE14E7B3527518403D2C9ECDD3AA6A1BC
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -643,7 +643,7 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 magnet:?xt=urn:btih:8013ECEEB0A740CC90371D15FEC2A0C1E507342C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -669,7 +669,7 @@ BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 magnet:?xt=urn:btih:AD60B18C768A46C929DFA483861456CCDACC467C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

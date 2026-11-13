@@ -20,7 +20,7 @@ Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальн�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -46,7 +46,7 @@ Insane / Безумие [Ru] (RePack/2.1) 2002 | Liones
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -72,7 +72,7 @@ True Crime: Streets of L.A. [Ru] (RePack) 2004 | tukash
 magnet:?xt=urn:btih:456B5C3F38E7D79243CCA6980C4489B65CEF4091
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -98,7 +98,7 @@ Starship Troopers Антология - это собрание всех игр �
 magnet:?xt=urn:btih:92E04D3514C67E9824ACB9FB99A4088F1C919758
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -124,7 +124,7 @@ Rune Classic / Руна (2000) [Ru/Multi] (1.10/dlc) License GOG
 magnet:?xt=urn:btih:C639E13977CBFEF1606EF5EB0D17C26DBDEAC73E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -150,7 +150,7 @@ Fallout (1997) [En/Cz] (1.3.4) Repack
 magnet:?xt=urn:btih:F379FB786F5ACD1FA5539ADC7CCAEC071888F3EE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -176,7 +176,7 @@ The Mims Beginning – стратегия в реальном времени, с
 magnet:?xt=urn:btih:965B19E2C05083A98C28E76AA6E42AC2CE673AE9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -202,7 +202,7 @@ Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]
 magnet:?xt=urn:btih:2958DDF69D2573969DF5133447C6C0889FF491B7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -228,7 +228,7 @@ Soldier of Fortune: Payback / Солдат Удачи: Расплата [Ru] (L)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -280,7 +280,7 @@ Pathologic / Мор. Утопия [Ru] (L) 2005
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -308,7 +308,7 @@ Toon Quad / Большие Гонки 2: Трасса [Ru] (L) 2003
 magnet:?xt=urn:btih:49E3268221DB323F097FCB4AAC4C779EE698DDC7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -334,7 +334,7 @@ Praetorians (2003) [En] (1.04) License GOG
 magnet:?xt=urn:btih:C433055671E6515BE3B8AC18F2A1590DCFA6F53F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -360,7 +360,7 @@ Total Overdose: A Gunslinger's Tale in Mexico (2005) [En] (1.00) License GOG
 magnet:?xt=urn:btih:0ADAD0AF984CF00CA73215250EB19F60FE8E05A1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -386,7 +386,7 @@ World War II Combat: Road to Berlin / Дорога на Рейхстаг (2006) 
 magnet:?xt=urn:btih:FF7DFC2E66F6F96701D284674A1C98B09312A911
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -412,7 +412,7 @@ Restricted Area / Запретная зона [Ru] (L) 2004 | RG Games
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -438,7 +438,7 @@ UAZ Racing 4x4 / Полный привод: УАЗ 4x4 [Ru] (L) 2006
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -464,7 +464,7 @@ Tomb Raider Collection Game - это собрание первых 3 игр зо
 magnet:?xt=urn:btih:E0F1F72B22D1EFBE314C80F9616EAB4FD0549D34
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -490,7 +490,7 @@ Duke Nukem Anthology - это собрание всех игр из серии D
 magnet:?xt=urn:btih:0D609B75C8B936BAC290E65457553FEFDB4ABD2B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -516,7 +516,7 @@ Star Trek: Starfleet Command III (2002) [En] (1.01.534_rdna_fix) License GOG
 magnet:?xt=urn:btih:42D3395AB7F807A4195272521F556AEB1253ABE9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -542,7 +542,7 @@ Star Trek: Armada - официальная игра по мотивам знам
 magnet:?xt=urn:btih:76051E520BA934B67453CD83E704273CE401F99F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -568,7 +568,7 @@ Star Trek: Armada 2 - стратегическая игра, разработа�
 magnet:?xt=urn:btih:7765264314CEE66BFF2CACBD6B7E7EEED6F0723D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,7 +600,7 @@ Medal of Honor Airborne(   Читать дальше...   )Тип издания
 magnet:?xt=urn:btih:961F152B775A1707B771D0D893832426FBB0AAE7
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,7 +626,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:312F2D7731F1D2A4F3951E3F74321DB916870AF8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,7 +652,7 @@ The Settlers 2: 10th Anniversary (2006) [Multi] (11757) License GOG
 magnet:?xt=urn:btih:BA912D16E845F2D9012765F974E9ED59F865AFD9
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -681,7 +681,7 @@ iFly Jets: 737NG является наиболее сложной и полно�
 magnet:?xt=urn:btih:E15DD43D70BF2963685AF327D074A7837056F6BA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,7 +19,7 @@ Hogs of war / Свиньи войны (L)[En](2000)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Unreal (2000) [En] (226/dlc) License GOG [Gold]
 magnet:?xt=urn:btih:7F4B20CCCFE53E0E9786EDCC7BC24AAEBA14ED7B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -73,7 +73,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Carmageddon Антология [Ru/En] (RePack) 1997-2000 | R.G. ILITA
 magnet:?xt=urn:btih:1EB8E69B62B781316A0FB3217F3B51AECA1090CD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -125,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -182,7 +182,7 @@ Battle Engine Aquila / Боевая Машина Акилла (2003) [Ru] (1.0) 
 magnet:?xt=urn:btih:AFEB235691A31BE21A38A9B4623D889285DAEE6C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -209,7 +209,7 @@ Alien Trilogy - трехмерный шутер на тему фильма "Чу
 magnet:?xt=urn:btih:E1966FBDDC045CF7DFC909A9FB641EB28A447E05
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -238,7 +238,7 @@ Outpost 2: Divided Destiny [En] (RePack) 1997 | RG games (Pilotus)
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -264,7 +264,7 @@ Nosferatu: Wrath of Malachi (2003) [En] (1.0) License GOG
 magnet:?xt=urn:btih:1B8FE07C6FDDBC94A498DE3F141325FD44327085
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -290,7 +290,7 @@ Prince of Persia: The Sands of Time / Принц Персии: Пески вре
 magnet:?xt=urn:btih:77FC28D539C83F694F59903A7534FF6B6A033616
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -316,7 +316,7 @@ Prince of Persia / Принц Персии (2008) [Ru] (1.0) Repack xatab
 magnet:?xt=urn:btih:0A6272E40C17FB9795F384C8C4B794E8B44AB2C1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -342,7 +342,7 @@ Mob Rule Classic / Street Wars: Constructor Undergroud (1999) [En] (2.0) License
 magnet:?xt=urn:btih:C8E1B4C4AA73DC967E80808E7B219736BCD558A3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -368,7 +368,7 @@ Neighbours From Hell Compilation (2004) [Ru/Multi] (1.00.13233/1.01a.13237) Lice
 magnet:?xt=urn:btih:FC83D31C3EB790788106F061E07337D8CF501B9A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -394,7 +394,7 @@ Necromania: Trap of Darkness / Некромания: Сила Тьмы [Ru] (Rip
 magnet:?xt=urn:btih:F149F8080FD75BB56345E548A179886B94E2B01A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -420,7 +420,7 @@ Operative: No One Lives Forever / Никто не живет вечно [Ru] (Re
 magnet:?xt=urn:btih:A01E667FD8D038CF938AAAF6F3A71E47F605229B
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -450,7 +450,7 @@ Contract J.A.C.K. / Агент Д.Ж.Е.К. [Ru] (RePack) 2003 | death7lord
 magnet:?xt=urn:btih:806B40B5E62EF1E610A4F5463D5C4AF4ED396161
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -476,7 +476,7 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 magnet:?xt=urn:btih:C0320C4603DE6CD5B60B1B3B76E9D3ED23AF3D38
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -502,7 +502,7 @@ Metal Fatigue - стратегия в реальном времени, кото�
 magnet:?xt=urn:btih:CA1ACB0AD636EC9704CCA81C8B2692CCCD73E546
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -528,7 +528,7 @@ OutRun 2006: Coast 2 Coast [Ru] (RePack) 2006 | Luminous
 magnet:?xt=urn:btih:031141A0C114E1452EE521269B9F88B8326E1C91
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -556,7 +556,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + mod
 magnet:?xt=urn:btih:BDFF1AEE3D36DE14F2375207E669116FC12BC098
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -587,7 +587,7 @@ Neverend [Ru] (L) 2005
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -613,7 +613,7 @@ Armed Assault - это стопроцентное продолжение Operati
 magnet:?xt=urn:btih:F4BB750EC6423048E27FE0F4893C363D385E4FA8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -639,7 +639,7 @@ Midnight Club 2 [Ru/En] (RePack) 2003 | VANSIK
 magnet:?xt=urn:btih:1157A28236A207257BDACFBEFFAB8C2F715E3579
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -667,7 +667,7 @@ Alien Shooter: Начало вторжения- Бесконечная темн�
 magnet:?xt=urn:btih:94CEC880B9251AA8850D1B26A2612D2EDE705BB6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -693,7 +693,7 @@ Drakkhen (1989) [En] (1.0) License GOG
 magnet:?xt=urn:btih:B50980D886DCC0F34B47A7931227CAE428917FF1
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 

@@ -19,7 +19,7 @@ Ultima Антология [En/Ru] (RePack) 1980-1995
 magnet:?xt=urn:btih:417DEB06C49F7A489423CD72D98E20AFBB455963
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -45,7 +45,7 @@ Disney's Duck Tales: The Quest for Gold [En] (RePack) 1990 | Pilotus
 magnet:?xt=urn:btih:AABC7993D43D135A4EE33ABE371D22EB25895B1E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -71,7 +71,7 @@ Quake 2: Mission Pack 2 Ground Zero [En] (L) 1998
 magnet:?xt=urn:btih:F33AFD6C5472DB299A7ED53DEA6887A1260EA695
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -99,7 +99,7 @@ Flight of the Amazon Queen [Ru] (RePack) 1995 | Pilotus
 magnet:?xt=urn:btih:D0BD6BDF998C2480C3C6FB93FAEF092BBE4FF6B2
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -126,7 +126,7 @@ Commander Keen [En] (RePack) 1991 | Puilotus
 magnet:?xt=urn:btih:71D03A647F6AAC9B80328A20FE6003409502D02E
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -153,7 +153,7 @@ Phantasmagoria 2: A Puzzle of Flesh [En] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:F4E5B5C93774AF3DEFAA89391257B45E3F80D91D
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -179,7 +179,7 @@ Ultima 9: Ascension [Ru/En] (L) 1999
 magnet:?xt=urn:btih:D3FD820A6DB64F8D83388A47FFA69B417F84E3A8
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -205,7 +205,7 @@ Vampire: The Masquerade - Bloodlines (2004) [Multi] (1.2/10.2) License GOG
 magnet:?xt=urn:btih:DEF1628922EECBBF49E0C401DC7B25B4118B8C11
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -232,7 +232,7 @@ Eradicator [En] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:9563251D9A02D059F269CE10A22FCC6C25DEC38F
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -258,7 +258,7 @@ Kreed: Battle for Savitar / Kreed: Битва за Савитар [Ru] (L) 2004
 magnet:?xt=urn:btih:11790C24CC1B9C75964D56F1D0125651F971D3AD
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -284,7 +284,7 @@ Eye of the Beholder Антология [Ru/En] (RePack) 1990-1992 | Pilotus
 magnet:?xt=urn:btih:731A3856F5CB2F0AD321DDBE6AE0BABB654DD414
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -310,7 +310,7 @@ The Matrix: Path of Neo / Матрица: Путь Нео [Ru] (RePack/1.2) 2005
 magnet:?xt=urn:btih:EF7990A868B5314DAD5A72305E6BA7E05EF7CD5C
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -336,7 +336,7 @@ Dominus [En] (RePack) 1994 | Pilotus
 magnet:?xt=urn:btih:1C70A417FFD66F6B74F24D41E1A6F9CC954D8EDE
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -362,7 +362,7 @@ Evil Dead: Regeneration (2005) [Ru/En] (1.0) Repack R.G. Revenants
 magnet:?xt=urn:btih:B7C6EA121D12E46B0625129D87356534C09753D3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -389,7 +389,7 @@ Emperor: Battle for Dune сочетает в себе трехмерную гр�
 magnet:?xt=urn:btih:7B983E797B1390B5D26186B14A2CE95E973B8F1A
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 magnet:?xt=urn:btih:3D36A918CA68F647F14DE0111C16E3DAE36012CA
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -441,7 +441,7 @@ Psychonauts (2005) [Ru/Multi] (1.1.603.0/dlc) SteamRip Let'sРlay
 magnet:?xt=urn:btih:4A2EB169D8570522D39A8E305C24D474584D0AD3
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -469,7 +469,7 @@ Half-Life Source [Ru/En] (P) 1998
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -495,7 +495,7 @@ Onimusha: Warlords / Onimusha: Путь самурая [Ru/En/Jp] (Repack/1.2) 2
 magnet:?xt=urn:btih:0981193CF686EA73F7FA57518FFC5A4F51B73BC6
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -522,7 +522,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч: Ангел см�
 нет
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -548,7 +548,7 @@ Force 21 [Ru] (Rip) 1999 | Pilotus
 magnet:?xt=urn:btih:D8E949C6B7542C58568A6F5500F28DE143DCC0CF
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -574,7 +574,7 @@ Bad Day on the Midway - интригующая 3D адвентюра от раз
 magnet:?xt=urn:btih:61F90D1F17EA808EB2BF63928B8532B675FAFED4
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -600,7 +600,7 @@ Magic & Mayhem [Ru] (Rip) 1999 | Pilotus
 magnet:?xt=urn:btih:9AFF0113E7A640B7F361FAB60EE3BEF420E3C954
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -626,7 +626,7 @@ Congo: The Movie: The Secret of Zinj [Ru] (RePack) 1996 | Pilotus
 magnet:?xt=urn:btih:67A92A1FFA9A5FAA3CD0F275D5E59B3AD02B7B50
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -652,7 +652,7 @@ Galador: Der Fluch des Prinzen [Ru] (RePack) 1999 | Pilotus
 magnet:?xt=urn:btih:BB0261B626580EFBD68ABDC64F2751E5E9B8B676
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
@@ -678,7 +678,7 @@ Shadow Warrior [En] (RePack) 1997 | Pilotus
 magnet:?xt=urn:btih:1989C27C199DC9C1EF9DB00AE2C6079B412A6EB0
 ```
 
-https://mybot314.ru/tekegram_catalog/
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 
