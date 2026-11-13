@@ -1,0 +1,794 @@
+###  Публикация: 449014   (92707) от 08.02.2012
+
+Ричард Пратер | Дело об исчезнувшей красотке [2012] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив Шелл Скотт, отчаянный малый, искатель приключений. Место действия — роскошный и непредсказуемый Голливуд, где Скотту не грозит остаться без работы. Его клиенты — кинозвезды, воротилы кинобизнеса и прочие "сливки общества". ...Она казалась горячее, чем жало паяльника, и намного-намного опаснее. До сих пор публика уделяла представлению гораздо меньше внимания, чем дамским туалетам. Танец мексиканских сомбреро, какие-то, тоже из Мексики, скрежещущие зубами трубадуры со своими традиционными «Кукарача» и «Челито Линдо» и, наконец, смуглый и совсем не смешной комик. Но как только на небольшое, высвеченное прожекторами возвышение для танцев взошла она, все просто обмерли. Здоровенные мужики били в ладоши с такой силой, как будто под кожу им впрыснули новокаин. Они орали и вопили во всю глотку: «Ол-ле!», «Браво, Лина!», «Провалиться мне ко всем чертям!» — и что-то еще, чего я не мог разобрать.Жанр: ДетективПродолжительность: 09:59:20
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448620   (92706) от 08.02.2012
+
+Иэн Рэнкин | Не на жизнь, а на смерть [2009] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Скотленд-Ярд оказывается бессилен найти жестокого маньяка, совершающего с чудовищной методичностью убийство за убийством. В Лондон в качестве "эксперта" по серийным преступлениям вызывается эдинбургский сыщик инспектор Ребус. Преодолевая неприязнь английских коллег и нащупывая слабые места так называемого Оборотня, инспектор шаг за шагом приближается к раскрытию кровавой тайны.Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501BC5DE9467FE3B6EF8B5748C41313A780FF2BB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446532   (92705) от 08.02.2012
+
+VA - House Vip (02.02.2012) [MP3|320 kbps]<Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1 . Bruno Barudi, Steklo - Fly Away (Original Mix)
+2 . Cut La Roc - Freeze (Hoi Remix)
+3 . Defunct! - What The FUCK!(Jack That Bady)(Original Mix)
+4 . Dimaro & Rosette feat. Carlprit - Ready For Tonight (Extended Mix)
+5 . Javi Reina, Alex Guerrero feat. Syntheticsax - Oig 2012 (Mickey Martini Remix)
+6 . K12 feat. Flying Without Wings - Crazy (Original Mix)
+7 . Pulsedriver - Lookout Weekend 2012 (Gordon & Doyle Remix)
+8 . Streamrocker, Rene De La Mone - Changes (Purple Project Remix)
+9 . Vanilla Ice - Ice Ice Baby 2k12 (DJ Pasha Lee & DJ Vitaco Remix)
+10 . Yenn feat. Halev - Another Night (Robert Firth Remix)02.02.2012Жанр: Electro HouseПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F166C9C40C4624589DC8491EAA50512BD47D821C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447523   (92704) от 08.02.2012
+
+Jimsaku - Best Selection (1995) [FLAC|Lossless]<Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsy Romance (04:52)
+02. Centro Habana (04:31)
+03. Muchacha Bonita (04:58)
+04. Hatsu-Zekku (04:20)
+05. Songo De Go Go (05:36)
+06. Wind Loves Us (04:28)
+07. I'm Gonna Catch You (04:36)
+08. Alisa (04:36)
+09. 261 Broadway (05:09)
+10. Awakening (04:47)(   Читать дальше...   )1995Жанр: FusionПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448667   (92703) от 08.02.2012
+
+Laidback Luke - Live at Ivy (Sydney,Australia)(25-01-2012) [MP3|~191 kbps]<House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01.Pitbull feat. Marc Anthony - Rain Over Me (Laidback Luke Remix) w/ Laidback Luke & Steve Aoki feat. Lil Jon - Turbulence (Acappella)
+02.Human Resource - Dominator (Rishi Bass & Robert Feelgood Remix)
+03.Congorock - Ivory
+04.Congorock vs. Dada Life - Kick Out The Babylon Motherfucker (Gusto Boracay Bootleg) w/ Wynter Gordon - Dirty Talk (Acappella)
+05.Sidney Samson feat. Lil Jon - Mutate
+06.TV Rock feat. Rudy - Been A Long Time (Laidback Luke Remix)
+07.Calvin Harris - Feel So Close (Nero Remix) (Laidback Luke Edit)
+08.Afrojack feat. Shermanology - Can't Stop Me
+09.The Prodigy vs. Jacob Van Hage - Voodoomatic (Real El Canario Mash)
+10.Angger Dimas - Hey Freak!(   Читать дальше...   )Жанр: HouseПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814C1CD281A4E39000D62808288E5CC8271E3E8F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449169   (92702) от 08.02.2012
+
+[Wallpapers] Фэнтези и Игровые 233 шт
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Подборка обоев на тему фэнтези
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FC38FC83B833049BEAE7C9BAFC4482A0DE11DD1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447510   (92701) от 08.02.2012
+
+Mick Goodrick - Biorhythms (1990) [FLAC|Lossless]<Contemporary Jazz>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1 In Praise Of Bass Desires / Thramps
+1.1 In Praise Of Bass Desires 1:24
+1.2 Thramps 5:30
+2 H., D. & L. 6:23
+3 Falling Grace 2:48
+4 Something Like That Kind Of Thing 10:26
+5 Biorhythms 4:56
+6 Groove Test 4:51
+7 Bl'ize Medley
+7.1 Not Soon Forgotten 1:52(   Читать дальше...   )1990Жанр: Contemporary JazzПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448648   (92700) от 08.02.2012
+
+VA - Улетная 100-ка по зимнему (2012) [MP3|256 kbps]<Поп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Smash, DJ Рыжов, ChinLong - На Заре (Jeff & Tinto Brothers Remix)
+02. Juli Kravets - Ты Где-то Есть
+03. Никита - Бессонница
+04. KatRina - Прикосновение
+05. Seventeen - Танцуй, Даже Если Это Конец Света (Volta Remix)
+06. Дан Балан - Лишь до утра
+07. Юлия Савичева - Сердцебиение
+08. DJ Anastasia - Shake It
+09. Оксана Ковалевская & DJ Antonas - Игра Без Правил (DJ Spectroman Remix)
+10. Виктория Дайнеко - Сотри его из memory (Radu Sibru Remix)(   Читать дальше...   )2012Жанр: ПопПродолжительность: 06:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5D88F8274983977A36FA936EE49E63241C60AE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449124   (92699) от 08.02.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (08.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BE6137C48FAA293C2B78963A555144FFDBF10E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448617   (92698) от 08.02.2012
+
+VA - Club BOOM Vol. 7 from SEV (2012) [MP3|320 kbps]<Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Taio Cruz - Dynamite (DJ Fisun Extended Mix)
+02. Tito & Tarantula - After Dark (DJ Nejtrino & DJ Stranger Remix)
+03. Adele - Set Fire To The Rain (THE PEREZ BROTHERS Remix)
+04. Andreea Banica - Electrified (Sagi Abitbul Official Remix)
+05. DJ MAX MAIKON (FRESH RECORDS FREEDOM OF SOUND (FOS)) - Help Me Dr.Dick (DJ MAX MAIKON Club Mix)
+06. EMF - Unbelievable (DJ Vini Remix)
+07. Emma Hewitt - Colours (Armin Van Buuren Radio Edit)
+08. Guenta K. feat. Kane - Follow Me (Radio Edit)
+09. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia (Firebeatz Remix)
+10. LMFAO - Sexy & I know it (Dj Fashion & Andrey S.p.l.a.s.h. remix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 01:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6B37AF50E95450976E05311E06C672CB350C7E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448467   (92697) от 08.02.2012
+
+4 Arm - Submission For Liberty (2012) [MP3|320 kbps]<Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1.Sinn Macht Frei
+ 2.While I Lay Awake
+ 3.Raise a Fist
+ 4.Submission for Liberty
+ 5.The Oppressed
+ 6.I Will Not Bow
+ 7.Taken Down
+ 8.My Fathers Eyes
+ 9.The Warning
+ 10.Blood of Martyrs2012Жанр: Thrash MetalПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E7BA2ED8B4B7ADCFA5418FB6864E94282F67C3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449179   (92696) от 08.02.2012
+
+NG: Последняя рысь Испании / Spain's Last Lynx (2005) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+В одном из последних поистине диких уголков южной Испании скрытный хищник обороняет свою крепость. В туманных горах Андалузии обитает редчайшая дикая кошка на свете – иберийская рысь. Кошка, которая ежедневно смотрит смерти в глаза. Но может ли она обмануть смерть и выжить? Пора отправиться в эту уязвимую дикую местность, чтобы обстоятельно понаблюдать за жизнью этой дикой рыси. Враги поджидают на каждом повороте, но награда для прекрасного охотника может быть великолепной. Мы проследим за двумя самками, обитающими в разных частях этого региона – одна обитает в горах, а другая на низинных болотах. Две кошки с одной задачей – не попасться в развернувшиеся сети исчезновения. Это невероятная история последней рыси Испании...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720C787A54439C48753F16F82BD83B832A123518
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449106   (92695) от 08.02.2012
+
+Like Wendy - Rainchild (1999) [FLAC|Lossless]<Progressive Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_92695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn (2:49)
+02. Drowned (6:23)
+03. Colours Of The Summer (5:59)
+04. Spaces Of The Deep (8:07)
+05. I Will Find (0:34)
+06. Underwater Voyager (7:00)
+07. 1011 (1:21)
+08. Shadow Of The Sun (6:23)
+09. Skybound (3:09)
+10. Four Years (6:37)(   Читать дальше...   )1999Жанр: Progressive Rock / Neo ProgПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448761   (92694) от 08.02.2012
+
+[Wallpapers] Desktop wallpapers (07.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FFF994CD910DB53BA2C48324C41A640101EE53
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449268   (92693) от 08.02.2012
+
+Улетное видео по-русски. Новый сезон  (2012.02.08) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63695D1EF65FF4391CD2FAD32B899ED6F1A5FF08
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449114   (92692) от 08.02.2012
+
+[Wallpapers] HQ Wallpapers (08.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D43F32A931DB5E5CE2D51E3CEE9DE2954042B3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449069   (92691) от 08.02.2012
+
+[Wallpapers] Collection HQ Wallpapers №94
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Collection HQ Wallpapers №94Название: Collection HQ Wallpapers №94
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1600x1200 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981A06830C7EE84ECF7355C53A91842A71D715AC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449267   (92690) от 08.02.2012
+
+Дорожные войны  (2012.02.08) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал «Дорожные войны» рассказывает о работе сотрудников ГИБДД. Программа основана на материале, снятом видеорегистраторами патрульных машин, уличными камерами наблюдения и случайными очевидцами. Также присутствуют и собственные репортажи от съемочной группы ДТВ, выезжающей на дежурство вместе с экипажами ГИБДД.
+В целом, «Дорожные войны» посвящены двум извечным проблемам: дуракам и дорогам. Теперь, когда появились видеокамеры, можно оценить масштабы этих проблем. Сюжеты получаются разные: от смешных до трагических, от поучительных до просто вызывающих недоумение. Конечно, больше всего проблем на дорогах создают подвыпившие водители, но бывают и более интересные случаи. Например, съемочной группе выдалось заснять как наряд ГИБДД несколько кварталов гнался за… трактором! Водитель долго пытался скрыться, создавая угрозу на дороге — выезжал на встречную полосу и на тротуары. Когда трактор, наконец, удалось остановить, выяснилось, что он числиться в угоне, но водитель так и не смог объяснить, зачем (   Читать дальше...   )Жанр: Документальный сериал, криминалПродолжительность: ~ 00:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547E1BC330C86A9CB2CEF0418121E6E54C00B7A7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447665   (92689) от 08.02.2012
+
+Josh Alan - Famous & Poor (1991) [FLAC|Lossless]<Acoustic Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Josh's Breakdown
+02. Stone Free
+03. Love Is Grey
+04. Greyhound
+05. Deep River Blues
+06. Shoe Shine Boy
+07. Famous & Poor
+08. Composition 5
+09. Composition 6
+10. Composition 8(   Читать дальше...   )1991Жанр: Acoustic BluesПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448078   (92688) от 08.02.2012
+
+Syrrenfor - Inside my mind (2012) [MP3|320 kbps]<Instrumental,Electronic,Progressive Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. Inside my mind (04:24)
+2. The Johnson Chihuahua clamp (03:18)
+3. Crush (04:32)
+4. On the other side of the hill (04:17)
+5. How it should be (03:00)
+6. Whispers (01:30)
+7. The eternal circle (04:58)
+8. The invisible third mode (03:45)
+9. Cry if you think it will help (02:24)
+10. 4509 (03:47)(   Читать дальше...   )Жанр: Instrumental,Electronic,Progressive MetalПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF224854C9909692088C6A41516CD695764782E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448355   (92687) от 08.02.2012
+
+Компания HyperSolar собирается строить "солнечную" установку для производства водорода.
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Представители компании HyperSolar утверждают, что им удалось реализовать новый метод получения газообразного водорода из сточных вод, используя только лишь солнечную энергию. Газообразный водород является самым перспективным видом экологически чистого топлива будущего, в результате сгорания которого получается только один побочный продукт - обычная вода. Но водород в природе не существует в чистом виде, газообразном виде, его можно получать из воды, затрачивая при этом, немалое количество энергии, которая вырабатывается электростанциями, как правило, выбрасывающих в атмосферу сотни тонн углекислого газа. Работа компании HyperSolar означает, что водородное топливо, являющееся чистым и возобновляемым источником энергии, становится значительно ближе к всеобщему использованию.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448754   (92686) от 08.02.2012
+
+[Wallpapers] Best HD Wallpapers Pack (07.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC991A5178D833BDA4761F154584107A9B1FA091
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448477   (92685) от 08.02.2012
+
+VA - Музыкальный проект Выпуски 1-2 (2012) [MP3|~254-256 kbps]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+VA - Музыкальный проект Выпуски 1-2 (2012)
+Год: 2012
+Жанр: Pop,Dance
+Общая продолжительность: 12:29:57Кодек: MP3
+Битрейт: ~254-256 kbps
+Тип битрейта: CBR/VBRТрек лист:
+Музыкальный проект Выпуск 1
+Продолжительность: 06:14:34(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D840768ED60564F857F7A3B8DCDCE8C81D1A941D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447956   (92684) от 08.02.2012
+
+Aggression - Viocracy (2012) [MP3|320 kbps]<Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. False Flags 04:19
+2. Chemical Slavery 03:28
+3. Viocracy 05:00
+4. MK Ultra 04:33
+5. Get Mad 04:26
+6. Awake Awareness 04:10
+7. Human Nature 04:42
+8. Dehumanized 04:49
+9. Victims of Bias 04:332012Жанр: Thrash MetalПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435D3B3B4937C960DDA200B79AED1E658ACC5CCA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447912   (92683) от 08.02.2012
+
+Karmic Link - Esoterica (2010) [FLAC|Lossless]<Gothic Metal,Progressive Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Cold (4:02)
+02. Esoterica (5:15)
+03. Fire (4:37)
+04. Whispers On A breeze (3:34)
+05. Still (4:20)
+06. The Separate Reality (4:21)
+07. Pleasure Is Nothing Without Pain (3:02)
+08. Twisting Patterns (4:03)
+09. This Affliction (5:34)
+10. A Tattered Canvas (4:28)(   Читать дальше...   )2010Жанр: Gothic Metal,Progressive MetalПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448750   (92682) от 08.02.2012
+
+[Wallpapers] Collection HQ Wallpapers (07.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A89109B4C2FD40E2835DB8DF0185DDFC9C164AE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

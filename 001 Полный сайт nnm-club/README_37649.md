@@ -1,0 +1,719 @@
+###  Публикация: 1736382   (106697) от 12.07.2024
+
+Legions Of The Night - Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Control
+02. Rebirth
+03. Darkness
+04. Hate(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35135612D29F8590CA474E3823BC1E992936FF57
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736380   (106696) от 12.07.2024
+
+Spektra - Hypnotized (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freefall
+02. Taste Of Heaven
+03. Search For More
+04. My Voice For You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB8B7C95EAEF17171A1D158D3F48AB4A4FCFFE4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736448   (106695) от 12.07.2024
+
+Spektra - Hypnotized (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freefall (3:49)
+02. Taste of Heaven (3:29)
+03. Search for More (3:45)
+04. My Voice for You (4:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E1BC0AC83639F4244C2BA90CEEB8EFA29EC672
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736435   (106694) от 12.07.2024
+
+VA - Jazz House Grooves Volume 2 (The Finest Jazzy Soulful Chill House Selection) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulstance - Karma (5:53)
+02. Andy Sax - Saxsoulaction (4:10)
+03. Pomante - Kick Back (3:48)
+04. Jazz 2 More - Spiritual Session (5:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6072213BDCBF7B6F38EB3B08EA1D2BDE94DD67
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736433   (106693) от 12.07.2024
+
+VA - Funky Summer (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - Wiser (4:02)
+02. Anduze - Defibrillator (4:25)
+03. Funky Destination - Mr. Bong (Louie's beat re-work) (3:40)
+04. DJ Umbi - The Way We Live (Radio Edit) (4:33)(   Читать дальше...   )Жанр: Funky Jazz, DanceПродолжительность: 01:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1207407AE55821125D39BE2A97A962C8CE94634F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736359   (106692) от 12.07.2024
+
+Miles Davis - Miles In Tokyo (1964) 2005, Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction by Teruo Isono (Live) [1:10]
+02. If I Were A Bell [10:17]
+03. My Funny Valentine [12:50]
+04. So What [8:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B326D86AF1FF8D10DA99F3BC48511568851793
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736367   (106691) от 12.07.2024
+
+Mr. Big - Ten (2024) with bonus track [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Luck Trying (4:06)
+02. I Am You (4:32)
+03. Right Outta Here (4:38)
+04. Sunday Morning Kinda Girl (4:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32214F8BBE0D867F0389BCE3727737FC58D72047
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736376   (106690) от 12.07.2024
+
+The Angels - Ninety Nine (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ninety Nine (Go For Broke)
+02. Blue Winter
+03. Heartbeats
+04. Follow The Red Thread(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2DC27BF3095C7AB23FFDDEE368A0691EE95B25
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736447   (106689) от 12.07.2024
+
+Palace - Reckless Heart (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <AOR/Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reckless Heart (3:37)
+02. The Widow's Web (3:49)
+03. Back In Your Arms (4:04)
+04. Girl Is An Angel (4:25)(   Читать дальше...   )Жанр: AOR/Melodic RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EA12B19DA308D03D5BEFAF8CC6D5FD8035A65F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736501   (106688) от 12.07.2024
+
+Сатисъ | Жития святых в земле российской просиявших. Жития, чудеса, поучения [2 тома] (2001) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляемые книги – это зеркало, отражающее историю России в жизнеописаниях тех, реально существовавших, истинных героев, которых породила наша земля, которые по благодати Божией прославили Отечество и позволили именовать его Святой Русью.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA79DFA60CCCFAE5C0D1C8E42FE2D7350204872
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736346   (106687) от 12.07.2024
+
+Photo Supreme 2024.2.1.6568 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471D8F0E0B5CF48D697E1A0A8677CA3762E43D5A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736502   (106686) от 12.07.2024
+
+Матвей Барсов | Сборник статей по истолковательному и назидательному чтению Деяний Святых Апостолов (1994) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Труд М. В. Барсова (1836–1896) представляет собой гомилетическую и экзегетическую хрестоматию по книге Деяний святых апостолов, в которую вошло огромное количество святоотеческих толкований, богословских работ и проповедей. Каждый раздел книги снабжен библиографическим справочником. Книга будет полезна всем, изучающим Священное писание.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5754905577B868DCD7FA9721D1D747D89DC26E1B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736437   (106685) от 12.07.2024
+
+VA - Lounge Playlist for a Picturesque Retreat to Rejuvenate Your Body and Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Iridescent (5:10)
+02. Konstantin Klashtorni - Hypnotize Me (4:03)
+03. Chillaxonic - Cosmic Visions (4:26)
+04. Kool&Klean - Misty Mountains (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527B04A1E130EC080153242C114DC7EC3D25D41F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736510   (106684) от 12.07.2024
+
+VA - Black Hole House Music 07-24 (2024) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZOYA - Riverside (Extended Mix) [05:09]
+02. PARAFRAME - We Are the Only Ones (Extended Mix) [05:30]
+03. Siskin - Fly Away (Hel:sløwed Extended Remix) [05:46]
+04. Alex H - Not Fair (Máximo Lasso Extended Remix) [04:55](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B1104A0E5324628A7C880D33885EB6882D2C70
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736439   (106683) от 12.07.2024
+
+VA - Playlist for a Picturesque Retreat That Will Rejuvenate Your Mind, Body, And Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Aurora (5:13)
+02. Konstantin Klashtorni - Just for 2 (4:25)
+03. Kool&Klean - Misty Mountains (4:31)
+04. Chillaxing Jazz Kollektion - Home (5:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9320EF6CF9E6409FABDC9BB91C04CC6C5787C5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736702   (106682) от 13.07.2024
+
+Бегство к Афине / Escape to Athena (1978) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106682.jpg" />
+</div>
+
+
+###  Подробнее
+
+1944 год. Один из греческих островов, оккупированных нацистами. Американские и британские военнопленные под руководством Зенона осуществляют побег. При этом они спасают не только свои жизни, но и древнегреческие предметы искусства...Производство: Великобритания / Incorporated Television Company, Pimlico FilmsЖанр: боевик, приключения, военныйРежиссер: Джордж П. КосматосАктеры: Роджер Мур, Телли Савалас, Дэвид Нивен, Клаудия Кардинале, Стефани Пауэрс, Ричард Раундтри, Сонни Боно, Эллиотт Гулд, Энтони Валентайн, Зигфрид Ройч, Майкл Ширд, Ричард Рен, Филип Лок, Стив Убельс, Пол ПицерниПеревод: профессиональный многоголосый, профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (R5), английскиеПродолжительность: 01:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C034DFD408A7705564490FE7BD9F54B83CC35034
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736635   (106681) от 13.07.2024
+
+Files Inspector Pro 4.10 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если на диске заканчивается свободное место, и вы не можете понять, чем занят ваш диск, то Files Inspector – отличное решение для поиска и удаления затерявшихся фильмов, загруженных файлов и неиспользуемых программ, которые вам уже не нужны, но занимают место на диске.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986D2BD564856A0189149DEBFFFFF9DEA06AA6C7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736637   (106680) от 13.07.2024
+
+Будь красивой и молчи / Sois belle et tais-toi (1958) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая 18-летняя сирота сбегает из исправительной колонии, связывается с бандой контрабандистов драгоценностей и выбирает преступную жизнь. Однако она влюбляется в полицейского и выходит за него замуж, что кладет конец её криминальной карьере...Производство: Франция / Films EGEЖанр: комедияРежиссер: Марк АллегреАктеры: Ален Делон, Анри Видаль, Милен Демонжо, Беатрис Альтариба, Рене Лефевр, Жан-Поль Бельмондо, Энн Коллетт, Робер Дальбан, Франсуа Дарбон, Робер БазильПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: английские, французские SDHПродолжительность: 01:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A99D76D9039B34B6749F66410A13956E87FF3D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736606   (106679) от 13.07.2024
+
+Проклятие. Дом с прислугой / The Maid (2020) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная девушка по имени Джой устраивается горничной в дом богатой супружеской пары с маленькой дочкой, где подозрительно часто меняется прислуга. Главное правило для работников — не совать нос в чужие дела, но соблазн оказывается слишком велик, когда Джой начинает видеть призрака.Производство: Таиланд / Global Film Station, Hollywood, Thongkham FilmsЖанр: драма, мистика, триллерРежиссер: Ли ТхонгкхамАктеры: Плойнарин Сорнарин, Савика Чайядей, Тхирапхат Саякул, Ратчанок Суваннакет, Китапат Понгрыа, Каннапорн Пуангтонг, Сорабоди Чангсири, Венус Саксири, Алина Хомсангпрадит, Натани СиттхисаманПеревод: ДублированныйЯзык озвучки: русский, тайскийСубтитры: английскиеПродолжительность: 01:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9531D88AF475A1F04976E5605BBFB3A5D4F9FC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736459   (106678) от 13.07.2024
+
+Clairo - Charm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bedroom Pop, Dream Pop, Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nomad (3:46)
+02. Sexy to Someone (3:28)
+03. Second Nature (3:47)
+04. Slow Dance (3:55)(   Читать дальше...   )Жанр: Bedroom Pop, Dream Pop, Indie PopПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81B53F45B3380507683AD24A86E93712441C5C0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736738   (106677) от 13.07.2024
+
+MediaHuman YouTube Downloader 3.9.9.93 (0713) RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106677.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DE1554DB67E5F7A8B22CBD7EC7F154FB9CDC55
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736693   (106676) от 13.07.2024
+
+Opera One 112.0.5197.24 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_106676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4001492AF3B4D66B9D5330BC9BA1DDAEF06FC6FF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736551   (106675) от 13.07.2024
+
+Хитрый Петр / Hitar Petar (1960) HDTVRip [AV1/1080p] [10-bit] [VO] [Handmade]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хитрый Пётр избегает любых трудностей, которые преподносит ему жизнь, используя свой острый ум.Производство: Болгария / Киностудия «Бояна»Жанр: комедияРежиссер: Стефан СырчаджиевАктеры: Рачко Ябанджиев, Лео Конфорти, Константин Кисимов, Димитар Стратев, Георгий Попов, Анастасия Бакарджиева, Elisaveta Ruskova, Rumyana Shipkovenska, Любен Калинов, Идеал ПетровПеревод: Одноголосый любительский (Andre1288)Язык озвучки: русский, болгарскийСубтитры: отсутствуютПродолжительность: 01:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1311EAA506551A2055B90917335CE364E17A104D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736716   (106674) от 13.07.2024
+
+Pain - I Am (Remixes) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbeat, Hardcore, Techno, Acid>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Go With The Flow (Harddope Remix) [2:37]
+02 - Party In My Head (Zardonic & Levia Remix) [2:27]
+03 - Don't Wake The Dead (Infraction Remix) [4:34]
+04 - Push The Pusher (Zardonic Remix) [3:36](   Читать дальше...   )Жанр: Electronic, Breakbeat, Hardcore, Techno, AcidПродолжительность: 00:22:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C4FBD297FCD4F6DD33079380B5151335FE13E4A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736553   (106673) от 13.07.2024
+
+Макфейл Тереза | Аллергия (2023) [MP3, Ольга Дель]
+
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллиарды людей во всем мире страдают той или иной формой аллергии. Число аллергиков растет катастрофически, и это увеличивает моральную и физическую нагрузку не только на них самих, но и на их семьи, систему здравоохранения и общество в целом. Медицинский антрополог Тереза Макфейл решила разобраться в причинах недуга, почему он может быть смертельным и какой вред (   Читать дальше...   )Жанр: Здоровье и медицинаИздательство: Альпина ПаблишерПродолжительность: 13:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E347052D57955BA86D42A2DD97080E65F93FF1A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736707   (106672) от 13.07.2024
+
+Бриджертоны / Bridgerton (2020 WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit] (сезон 1, серии 1-8 из 8) VSI Moscow, HDRezka, Jaskier, NewStudio,TVShows
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименной серии исторических любовных романов Джулии Куинн.
+Восемь дружных братьев и сестер из семьи Бриджертонов пытаются найти любовь и счастье в высшем обществе Лондона.Производство: США / ShondaLandЖанр: драма, мелодрамаРежиссер: Том Верика, Триша Брок, Шери ФоксонАктеры: Джули Эндрюс, Фиби Дайневор, Реге Пейдж, Джонатан Бэйли, Никола Кохлан, Клаудия Джесси, Аджоа Андох, Сабрина Бартлетт, Рут Геммелль, Люк НьютонПеревод: Дублированный (VSI Moscow), Многоголосый (HDRezka, Jaskier, NewStudio,TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7301682C56A03908E0E44113AB08692A993E6731
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

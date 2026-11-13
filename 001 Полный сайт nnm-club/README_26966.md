@@ -1,0 +1,730 @@
+###  Публикация: 402711   (388051) от 26.10.2011
+
+Microsoft Press | MCTS Self-Paced Training Kit (Exam 70-640): Configuring Windows Server 2008 Active Directory, 2nd Edition [En] [2011] [unpacked]
+
+>>Мультимедийные материалы
+>>Компьютеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Учебный курс MCTS 70-640 Настройка Active Directory полностью обновлён до Windows Server 2008 R2!
+Улучшите Вашу подготовку к экзамену MCTS 70-640 благодаря работе с этим официальный учебный гурсом Microsoft. Готовьтесь в своём собственном темпе через серию уроков и обзоров, которые полностью покрывают каждый раздел экзамен. Затем, усильте и применяйте то, чему вы научились через реальные сценарии и практические упражнения.
+Максимизируйте Вашу производительность на экзамене овладев навыками и опытом в следующих разделах:
+- Настройка системы доменных имен (DNS) для Active Directory
+- Настройка инфраструктуры Active Directory
+- Настройка служб Active Directory
+- Создание и поддержание объектов Active Directory
+- Сохранение окружения Active Directory
+- Настройка служб сертификации Active Directory
+Полностью обновленый курс для Windows Server 2008 R2 - это набор 2-в-1, который обеспечивает подготовку плюс практический экзамен MCTS 70-640.Жанр: АдминистрированиеФормат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AFAFC7DB0C3E90A7866BB44DE75F25C5C5F5C0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574102   (388050) от 04.09.2022
+
+Pure Massacre - Pure Massacre (2022) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Along the Blood Red Path [00:04:11]
+02. In Blood and Flames [00:04:24]
+03. Pure Massacre [00:04:00]
+04. 1914 [00:05:11](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804AB2D6BCF7A6F333FEEAB39D2115B97EF082B4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574143   (388049) от 04.09.2022
+
+Dynazty - Final Advent (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Of Will
+02. Advent
+03. Natural Born Killer
+04. Yours(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E91030471E60CED3377ED84DFBF5D822454AA5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574350   (388048) от 04.09.2022
+
+Джулия Филлипс | Исчезающая земля (2022) [MP3, Ольга Салем]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388048.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Камчатке пропадают две сестры 8 и 11 лет. Полицейское расследование приводит в тупик. Главы знакомят нас с женщинами, так или иначе знавшими жертв. Пока мать девочек пытается жить дальше, соседи, свидетели и следователь переживают свои драмы.Жанр: Зарубежные детективы, ТриллерыПродолжительность: 10:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49FF2512A7A4918C4080E915FD3EE6B05F1C52E2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574285   (388047) от 04.09.2022
+
+Nordic Union - Animalistic (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On This Day I Fight (3:02)
+02. In Every Waking Hour (3:27)
+03. If I Could Fly (3:46)
+04. Riot (3:51)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C91CD62CBBE1264B7D91D94B4A41667D083AA6C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574255   (388046) от 04.09.2022
+
+Дженни Колган | Далёкий берег (2021) [MP3, Алла Човжик]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непросто живётся отцу-одиночке с двумя сыновьями – их родина осталась далеко. Сможет ли маленькая семья обрести утешение, радость и новый дом на гостеприимном Муре? Ответ на этот вопрос можно найти в повести «Далёкий берег», которая рассказывает предысторию некоторых героев романов, посвящённых острову Мур.Жанр: зарубежные любовные романы, легкая проза, современные любовные романыПеревод: Татьяна В. ГолубеваПродолжительность: 02:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28796101CD4BBE2EB4DFE6939B8F7FCD2627DDC3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574295   (388045) от 04.09.2022
+
+Чудо техники с Сергеем Малозёмовым (04.09.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помочь разобраться в высокотехнологичных новинках, ознакомить с последними тенденциями в науке и технике, рассказать о возможных сценариях развития событий в будущем — талантливый журналист и опытный науковед Сергей Малоземов вместе с телезрителями познает все тонкости и раскрывает тенденции в современном мире.
+Сегодня передача расскажет о том, как с помощью криолиполиза (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37C16BE9A2B63E7021B2E5944EEF848707D53B2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574258   (388044) от 04.09.2022
+
+Pat Travers - The Art of Time Travel (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pat Travers - икона блюз-рока и великолепный гитарист возвращается с новым мастерским студийным альбомом! The Art Of Time Travel - твердое свидетельство магии уникального бренда классического блюз-рока Pat Travers'а, обладающего сверхъестественной способностью переносить слушателей в недалекое прошлое, когда рок был королем, а гитары доминировали в эфире радиостанций. (   Читать дальше...   )01. The Art Of Time Travel (4:34)
+02. Ronnie (3:21)
+03. No Worries At All (5:30)
+04. Over And Over (5:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4DCD2AD4F201ABC66909030F6BA14AF220C1E70
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574416   (388043) от 04.09.2022
+
+MotoGP. Этап 14. Гран-при Сан-Марино. Гонка (04.09.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388043.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 сентября 2022, воскресенье. 15:10 МСК, Этап 14, Мизано-Адриатико, Италия. Гонка (27 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D260D22719A245EA045DD02519385B2A289D9A47
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574278   (388042) от 04.09.2022
+
+Hydra - Point Break (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop The Madness (4:31)
+02. Bringing Down The Moon (4:10)
+03. No Lullaby (4:58)
+04. Stay A While (3:59)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8237AFB7182A3D45485F199888B30FD6C5B841C2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574302   (388041) от 04.09.2022
+
+Мишель Филгейт (сост.) | О чём мы молчим с моей матерью. 16 очень личных историй, которые знакомы многим (2020) [MP3, Алёна Комолова и др.]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проговаривание – способ исцелить наши отношения с другими и собой. На страницах книги шестнадцать талантливых писателей делятся переживаниями, которыми они так и не решились поделиться со своими матерями, а также тем, как это сказалось на них потом.Жанр: биографии и мемуары, зарубежная публицистика, семейная психологияПеревод: О. В. Терентьева, Екатерина Петрова, Марина ФлейшманПродолжительность: 09:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C045E1C509E81891AD4147BAE6D2DA3AFF20A65B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574294   (388040) от 04.09.2022
+
+Femme Fatale - One More For The Road (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Mean Nothin' (3:29)
+02. Lady In Waiting (4:05)
+03. I Know (3:48)
+04. One More For The Road (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D37D3AA77974AB566CE65AC17D8847511C34F39
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574250   (388039) от 04.09.2022
+
+Сергей Лазарев | Диагностика кармы  (Книга 11). Завершение диалога 2005-2007 (2022) [MP3, Сергей Лазарев]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир прекрасен. Он прекрасен в каждом своем проявлении, прекрасен по своей сути, ибо он Божественен. И поскольку любая ситуация ведет к любви и Богу, ни в какой ситуации мы не имеем права отказываться от любви, улыбки, радости и оптимизма.
+
+И если мы сохраняем такой взгляд на мир, то начинаем правильно оценивать происходящее и нам легче увидеть, как связываются причины (   Читать дальше...   )Жанр: Психология, эзотерикаПродолжительность: 160:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E18B1D6DDC165CF3E20401D5079966E9956ADEB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574149   (388038) от 04.09.2022
+
+Machine Head - Of Kingdom and Crown (2022) [FLAC|Lossless|image + .cue] <Groove, Thrash Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slaughter the martyr (10:26)
+02. Choke on the ashes of your hate (4:06)
+03. Become the firestorm (5:00)
+04. Overdose (0:58)(   Читать дальше...   )Жанр: Groove, Thrash Metal, Nu-MetalПродолжительность: 01:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0B391A32A5E2218C0D6A76E48B216F4312AC4E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574261   (388037) от 04.09.2022
+
+Venus 5 - Venus 5 (2022) [FLAC|Lossless|image + .cue] <Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lioness (3:22)
+02. The Simulation (3:20)
+03. Nothing But A Heartache (3:09)
+04. Bride With Blackend Eyes (4:36)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BBD8B05B2E4631EE42AAD2C47127AC6DD41C72
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574331   (388036) от 04.09.2022
+
+Epica - Live At Paradiso (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hunab K'u (Live At Paradiso) [00:01:58]
+02 - Dance Of Fate (Live At Paradiso) [00:05:47]
+03 - Sensorium (Live At Paradiso) [00:04:58]
+04 - The Last Crusade (Live At Paradiso) [00:04:26](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1749CBC5218B86CAA4C9C302C2A12BA8C97B346B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 151811   (388035) от 10.11.2009
+
+VA - МакSиМальная ВечеринкA (2009) [MP3|256 kbps]<Рор>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рор
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252964   (388034) от 07.10.2018
+
+Willie Lewis - 1941 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Will I Do? [2:43]
+02. Happy Feet [3:05]
+03. Baby Ain't You Satisfied [3:04]
+04. Ti-Pi-Tin [3:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC51EFE12F9C1B34F16C7D04991FBCA923472F86
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252965   (388033) от 07.10.2018
+
+Александр Федоров-Давыдов | Веселые мореплаватели (1908) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка для детей младшего школьного возраста.Жанр: Детская проза. Сказка.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A194A9CD456691FBCD242B43DF25DF761ECC7AC7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252907   (388032) от 07.10.2018
+
+И. Пинксис и др. | Революционная Лиепая (1956) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник популярных статей «Революционная Лиепая» является первой в исторической литературе Советской Латвии попыткой познакомить трудящихся нашей республики с историей Лиепаи — одного из крупнейших промышленных и культурных центров Советской Латвии, со славными революционными традициями этого города в борьбе за советскую власть, а также с его достижениями в социалистическом (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3C7CE29F0566D04096D020E01DB98D37E8BED7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252945   (388031) от 07.10.2018
+
+A Made Up Sound - At Klangendum (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno Ambient, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Klangendum (46:21)Жанр: Ambient, Techno Ambient, TechnoПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFED7EBADF082E63A0C23604FAA258F8F3DC2F7B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253134   (388030) от 07.10.2018
+
+VA - Body Of Work - The Best Of Denise Rivera (The Radio Edits) (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blizzard & Denise Rivera - Love Is In The Little Things (Original Mix)
+02. Ruslan Radriges & Denise Rivera - The Voice Of Freedom (Original Mix)
+03. Cosmic Gate feat. Denise Rivera - Body Of Conflict (Vocal Edit)
+04. Ferry Corsten - Possession (Radio Edit)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E826E786B908A47F594BA4D5814616DBB8B09695
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252872   (388029) от 07.10.2018
+
+Dim Mak - Knives Of Ice (2006) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knives of Ice
+02. Seeing Crows in Silver
+03. Great Worm of Hell
+04. Devil Finding Mirror(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C2FB88ECC65CDAEA7F27A09F8DC3E9B55DFC9C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252911   (388028) от 07.10.2018
+
+Я. А. Балагуров (ред.) | Кижское восстание [1769-1771] (1977) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление олонецких приписных крестьян в 1769-1771 годах было наиболее значительным событием в истории Карелии феодальной эпохи. Движение крестьян охватило русские, карельские и вепсские погосты и волости с населением около 40 тыс. человек. Центром движения стала территория старинного Кижского погоста. В настоящем сборнике представлены документы, рассказывающие (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5376D6FFE03AB06E6E6C07326C92AA754A0C90F9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252951   (388027) от 07.10.2018
+
+Спортивная гимнастика. Чемпионат Европы 2018. Глазго (Великобритания). Мужчины. Командное многоборье. Финал (2018) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388027.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-й Объединённый Чемпионат Европы 2018 по летним видам спорта. Глазго (Великобритания).
+32-й Чемпионат Европы по спортивной гимнастике среди женщин 2018 года.
+11 августа 2018
+Мужчины. Командное многоборье. Финал(   Читать дальше...   )Телекомпания: Eurovision SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32320F5B36C266C348625AB4FD57B803B6F2C505
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252869   (388026) от 07.10.2018
+
+Сымон-Музыка - Сымон-Музыка (2011) [FLAC|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_388026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сымон-Музыка (5:21)
+02. Разважанне Аб Смерцi (3:55)
+03. Родны Край (3:35)
+04. Крыж Няволi (4:22)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8F90C24DFBFDD793E9C8A2FEB82E8154653786
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

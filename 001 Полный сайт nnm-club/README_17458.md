@@ -1,0 +1,722 @@
+###  Публикация: 1228486   (635259) от 01.06.2018
+
+Tomb Raider: Лара Крофт / Tomb Raider (2018) HDRip [MVO]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_635259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лара Крофт — весьма самостоятельная дочь эксцентричного искателя приключений, который пропал, едва она стала подростком. Теперь ей двадцать один, она бесцельно проживает свою жизнь, курьером рассекая на байке по забитым улицам восточного Лондона. Решительно настроенная пробиться сама, она отказывается брать на себя руководство глобальной империей отца, столь же категорично (   Читать дальше...   )Производство: Великобритания, США \ Metro-Goldwyn-Mayer (MGM), Square Enix Inc., Warner Bros. PicturesЖанр: Боевик, приключенияРежиссер: Роар УтхаугАктеры: Алисия Викандер, Доминик Уэст, Уолтон Гоггинс, Дэниэл Ву, Кристин Скотт Томас, Дерек Джекоби, Александр Виллауме, Тамер Барджаг, Эдриан Коллинз, Кинэн Эррисон ...Перевод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:57:50
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143616   (635258) от 18.06.2017
+
+Орел и решка. Перезагрузка (2017.06.18) WEB-DL [H.264/720p-LQ] (сезон 14: Чикаго)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147179EA5E5A857CD60CAE6E34A20C5E9102E600
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143508   (635257) от 18.06.2017
+
+Чудо техники (2017.06.18) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635257.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5C555DA198F5894CB55079572B6D09C8C90BA3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143414   (635256) от 18.06.2017
+
+Ice Cream Men - When Time Was Yours (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Too Late  (03:42) 
+02. Running Away  (04:12) 
+03. Men on a Mission  (04:26) 
+04. Nothing Wrong  (08:33) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C23803F8A11DB33EB45500E7FB9C6F6DA8A6C1A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143313   (635255) от 18.06.2017
+
+Apoptygma Berzerk - Rocket Science (2009) [FLAC|Lossless|image + .cue] <Alternative Rock, Electronic Rock, Synthpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weight Of The World
+02. Apollo (Live On Your TV)
+03. Asleep Or Awake?
+04. Incompatible(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Synthpop, Post-Punk, Futurepop, New WaveПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C82D30A8CC7AFBF139DF5DB2C6498CFE24EA990
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143375   (635254) от 18.06.2017
+
+Взлёты и падения / The Vertigo Years: Europe, 1900-1914 (2013) HDTVRip (3 серии из 3)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незадолго до Первой мировой, между 1900 и 1914 годами, происходили индустриализация и урбанизация, которые повлекли за собой изменение общества по всей Европе и в США. Несмотря на миф об этой эре как о «золотой», это было время постоянных изменений как научных, так и социальных. Благодаря огромному количеству архивных съёмок со всей Европы, мы увидим стремительное (   Читать дальше...   )Производство: Германия, DOR FILM, ZDF, ORF, AUTENTICЖанр: Документальный, познавательный, историяРежиссер: Роберт НоймюллерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~ 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF6319DD938794FC48DA98E730AAEB10C428AA2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143018   (635253) от 18.06.2017
+
+VA - Global DJ Broadcast: Top 20 June (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ferry Corsten presents Gouryella - Venera (Vee's Theme) (Extended Mix)  7:21
+02.  Nifra - Edge Of Time (feat. Seri) (Extended Mix)  6:50
+03.  JES & Game Chasers - Carry Me Away (Markus Schulz Remix)  7:01
+04.  Dan Thompson - Lucid (Extended Mix)  6:35(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842186795DB0E2D50A760B0B295E7B934DC9142A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143548   (635252) от 18.06.2017
+
+Disco Digitale - In The 25th Century (2007) EP [FLAC|Lossless|image + .cue] < Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Dancer
+02. Hotline
+03. In The 25th Century
+04. Living In A Fantasy (Single Version)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67473EEA5403D1DA6F69AA0F99FC73D57308C90F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143673   (635251) от 18.06.2017
+
+Halogenix - All Blue (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Blue (feat. Cleveland Watkiss) (05:11)
+ 02. Beyond The Bounds (05:21)
+ 03. Shank (05:24)
+ 04. Shores (05:37)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739360D1C5F5BAE32001DC2C9F0BE3D1DC2D795B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143546   (635250) от 18.06.2017
+
+Disco Digitale - Computer Dreams (2006) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taken To The Stars
+02. Videogirl
+03. Digital Love
+04. Lightspeed(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D708678DE1AAFE7962F2B7AD0B2514F2796EC1D1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143382   (635249) от 18.06.2017
+
+Взлёты и падения / The Vertigo Years: Europe, 1900-1914 (2013) HDTVRip [H.264/720p-LQ] (3 серии из 3)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незадолго до Первой мировой, между 1900 и 1914 годами, происходили индустриализация и урбанизация, которые повлекли за собой изменение общества по всей Европе и в США. Несмотря на миф об этой эре как о «золотой», это было время постоянных изменений как научных, так и социальных. Благодаря огромному количеству архивных съёмок со всей Европы, мы увидим стремительное (   Читать дальше...   )Производство: Германия, DOR FILM, ZDF, ORF, AUTENTICЖанр: Документальный, познавательный, историяРежиссер: Роберт НоймюллерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~ 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D156D8AA9D4816C593413A6CFAE6D06A40A1963
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143464   (635248) от 18.06.2017
+
+Vellum 2.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vellum — приложение для создания электронных книг на OS X
+Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, имели совместимые с ними форматы и были также удобны для чтения на бумаге. Многие приложения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 июня 2017Разработчик: 180gПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05F0CDA966CCE2415AB53883CFC27E7ABF88A07
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143613   (635247) от 18.06.2017
+
+Орел и решка. Рай и ад (2017.06.18) WEB-DL [H.264/720p-LQ] (сезон 13: Адская Аккра)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635247.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
+В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6E060E40D4BCC06D889E735E0CA65DFFEB276A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143550   (635246) от 18.06.2017
+
+Jeff Lynne And Friends - Every Little Thing (2010) Compilation [FLAC|Lossless|image + .cue] <Rock, Pop-Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every little Thing (12'' remix)  (07:49) 
+02. Rockabilly Holiday  (03:50) 
+03. Heartbreak Radio  (03:01) 
+04. Sand in my eyes  (03:21) (   Читать дальше...   )Жанр: Rock, Pop-Rock, Classic RockПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F23DD5B33A1D7DAC6075E412595D6FCC89646EB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142656   (635245) от 18.06.2017
+
+Hi_Tack Feat Kristy Thirsk - Silence (2008) [FLAC|Lossless|tracks] <Electronic, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Silence (Radio Mix) 3:05
+02 - Silence (Hi_Tack Remix Edit) 3:23
+03 - Silence (Original Mix)  8:50
+04 - Silence (Hi_Tack Remix) 7:58(   Читать дальше...   )Производство: Spinnin' Records – SPCDS10208Жанр: Electronic, TranceПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E816645368930AF1F22CC097B712D58A0B8D228
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143171   (635244) от 18.06.2017
+
+Facebook делает свою соцсеть в Tor более дружелюбной
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_635244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крупнейшая соцсеть улучшила обмен ссылками зоне .onion, запустив две новые функции, которые позволяют оптимизировать отображение информации при совместном использовании Tor и Facebook.В своём официальном паблике Facebook анонсировал улучшение работы социальной сети в Tor, в частности — взаимодействие основной версии Фейсбука с той, что расположена в .onion:
+«Сегодня (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143300   (635243) от 18.06.2017
+
+VCMG - EP2 / Single Blip (2012) [MP3|320 Kbps] <Electronic, Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Single Blip (Original Mix) (5:47)
+02. Single Blip (Matthew Jonson Remix) (11:11)
+03. Single Blip (Terrence Fixmer Remix) (5:34)
+04. Single Blip (Byetone Remix) (6:26)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A8C071A81397817AD4C6F7DC0DFA354EAF8391
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143175   (635242) от 18.06.2017
+
+Lanskoy & Co. - Вопреки (2017) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты нравишься мне
+02. Корабли ушли
+03. Вопреки
+04. Повезло(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7536793C66FE936A7CB9475CCE6E2CA4D5BB45
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143465   (635241) от 18.06.2017
+
+L.A.X. - L.A.X. (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman Ad Lib (6:12)
+02. I Don't Wanna Be Undercover (4:40)
+03. Don't Stop (7:03)
+04. Dancin' At The Disco (6:49)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B49731983EF175248C075D1FEA5A6F831A9EA9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143623   (635240) от 18.06.2017
+
+VA - Slow Smooth Jazz: Relaxation Soft Music (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Jazz Lounge School — Slow Smooth Jazz
+02. Moody Jazz Collection — Piano Bar Chill Out
+03. Relaxing Piano Music Ensemble — Pleasure and Easy Listening
+04. Good Morning Jazz Academy — Take it Easy(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234901C27D8A04AD62515BEE4B73425A7699557D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143363   (635239) от 18.06.2017
+
+Members Of The Glenn Miller Orchestra - A Tribute To Glenn Miller (1998) [MP3|320 Kbps] <Jazz, Swing, Oldies>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635239.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tuxedo Junction (3:50)
+2. American Patrol (3:33)
+3. Lover's Serenade (2:34)
+4. Londonderry Air (2:25)(   Читать дальше...   )Жанр: Jazz, Swing, OldiesПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6BDDE6F0FA9D3480C770E26107C9FC6E084D47
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293727   (635238) от 04.04.2019
+
+Обои - Desktop Wallpapers Full HD. Part (418) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0FE19D0C6BE77FEE5EE51A3BE9B63461BC08DD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293608   (635237) от 04.04.2019
+
+Элис Робертс | Приручение. 10 биологических видов, изменивших мир (2019) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635237.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении сотен тысяч лет наши предки выживали благодаря диким растениям и животным. Они были охотниками-собирателями, превосходно знакомыми с дарами природы, принимающими мир таким, какой он есть. А потом случилась революция, навсегда изменившая отношения между человеком и другими видами: люди стали их приручать…
+Известный британский антрополог и популяризатор (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16409FD182DBE2A12F88D7A37E4EEEC11A44BC2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293733   (635236) от 04.04.2019
+
+Обои - Desktop Wallpapers Full HD. Part (419) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D185283D70FD5C0A997331FD7A593601A3EACA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293693   (635235) от 04.04.2019
+
+VA - Golden DJ Hits Vol. 2 (2006) [MP3|320 Kbps] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Teens - Gimme! Gimme! Gimme! (A Man After Midnight) (3:54)
+02. E-Type feat. Nana - Life (3:41)
+03. Dana International - Diva (2:59)
+04. Aqua - Around The World (3:26)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B39F64A1E888F41B7EAD110AEBC39EC63CF2EC7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293539   (635234) от 04.04.2019
+
+Ангел / El Angel (2018) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_635234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карлитосу 17, у него ангельское лицо и дьявольские наклонности. В школе он знакомится с Рамоном, с которым они составляют блистательный и беспощадный дуэт. На пути изощренного воровства и лжи их совместные преступления становятся лучшим самовыражением.Производство: Аргентина, Испания / El Deseo, Instituto Nacional de Cine y Artes Audiovisuales (INCAA), Instituto de Credito Oficial (ICO)Жанр: Драма, криминал, биографияРежиссер: Луис ОртегаАктеры: Лоренцо Ферро, Чино Дарин, Даниэль Фанего, Мерседес Моран, Малена Вилла, Сесилия Рот, Sofía Inés Torner, Питер Ланзани, Marcelo Cancemi, Луис НьеккоПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABA9310C57C92002AED1EF2CA509B520C4361F9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

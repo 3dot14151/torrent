@@ -1,0 +1,738 @@
+###  Публикация: 1321648   (859223) от 25.09.2021
+
+Андрей Красников | «Перекресток» [6 книг] (2019-2021) [FB2]
+
+>>След.
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл «Перекрёсток» книги 1-6.
+
+Заключая договор страхования с компанией "Роботек", Алексей никак не предполагал, что воспользоваться им придется уже через месяц.
+Трагическая случайность, не справившийся с управлением водитель - и о нормальной жизни остается только мечтать.(   Читать дальше...   )Жанр: Боевое фэнтези, ЛитРПГФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78741FC19A694DD96D584020BE332DEE3A1719B8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497928   (859222) от 25.09.2021
+
+Главный герой / Free Guy (2021) BDRip [H.264/1080p-LQ] [Line, AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_859222.jpg" />
+</div>
+
+
+###  Подробнее
+
+У сотрудника крупного банка всё идёт по накатанной, пока однажды он не выясняет, что окружающий его мир — это часть огромной видеоигры, а сам он в ней — всего лишь второстепенный персонаж. Хватит ли у него духу переписать свой код, обратить на себя внимание прекрасной девушки и, наконец, спасти мир? Одним словом, получится ли из него главный герой?Производство: США, Канада, Япония, 20th Century Studios, 21 Laps Entertainment, Berlanti Productions, Lit Entertainment Group, Maximum EffortЖанр: Фантастика, боевик, комедияРежиссер: Шон ЛевиАктеры: Райан Рейнольдс, Джоди Комер, Тайка Вайтити, Уткарш Амбудкар, Джо Кири, Камилль Костек, Лил Рел Ховери, Кимберли Хоу, Мэтти Кардаропл, Тейт ФлетчерПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:54:57Реклама: Присутствует баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497176   (859221) от 25.09.2021
+
+Kena: Bridge of Spirits (2021) [Ru/Multi] (1.04) License CODEX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kena: Bridge of Spirits – сказочное приключение в очаровательном мире, где исследование постоянно сопровождается сражениями. Игрока все время сопровождают крошечные духи, которые помогают расширять спектр доступных умений героя и открывают новые способы взаимодействия с виртуальным миром. Кена, юная духовная вожатая, отправляется в забытую богом деревушку в поисках (   Читать дальше...   )Тип издания: LicenseРазработчик: Ember LabЖанр: Adventure, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4FA1EE8835CF2072311CEBDFBDAAFE40076DB2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496851   (859220) от 25.09.2021
+
+Windows 7 SP1 (x86/x64) 52in1 +/- Office 2019 by SmokieBlahBlah 2021.09.19 [Ru/En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_859220.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 редакций Windows 7 (русские и английские) с IE 11, важными и рекомендуемыми обновлениями по сентябрь 2021 (кроме нежелательных) и интегрированными системными библиотеками +13 таких же редакций со встроенным MS Office 2019 Pro Plus х86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС. Начиная с версии (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497002   (859219) от 25.09.2021
+
+AllWinUSB Constructor by SmokieBlahBlah 2021.09.20 [Ru/En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_859219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конструктор для создания загрузочной флешки (или внешнего жесткого диска) с выбором компонентов для записи, содержащий все сборки Windows от SmokieBlahBlah (XP/7/8.1/10) с обновлениями - 21H1, LTSC, 8.1, 7: январь 2021; LTSB: июль 2019 и т.д. Также есть возможность добавить 2k10 Live и WinPE Sergei Strelec.
+
+	    При установке Windows опционально (ставите нужные галочки) (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109158   (859218) от 27.02.2017
+
+Лыжные гонки. Чемпионат Мира 2017. Лахти (Финляндия). Женщины, Мужчины. Спринт, свободный стиль. Финалы (23.02.2017) IPTV [H.264/1080p-LQ][RU,EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859218.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 февраля 2017 года, четверг. 18:30 МСК
+Чемпионат мира по лыжным видам спорта 2017. Лахти (Финляндия)
+Лыжные гонки. Женщины, Мужчины. Спринт, свободный стиль. Финалы
+(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский,  АнглийскийПродолжительность: 01:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDD49051B6D0C9AAD4FB7423844AF68BE65B595
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109392   (859217) от 27.02.2017
+
+VA - Dreaming Of Sunset: Chillout Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda Project - Count The Clouds  5:38
+02.  Enrico Donner - Prefabricated Dreams  6:46
+03.  Cane Garden Quartet - 2 Steps To The Sun  5:42
+04.  Norman & Real - Hot Gambles  6:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8E60429E4F0BA8C7AC3D49AE7CBEBB5886FAD0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109346   (859216) от 27.02.2017
+
+Журнал | 4х4 Club №3 (224) (март 2017) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал 4x4 Club представляет результаты испытаний новейших моделей полноприводников, захватывающие рассказы о путешествиях и приключениях в стиле 4х4, об ралли - и трофи-рейдах и джип-триале, о способах подготовки внедорожника для преодоления офф-роуда, повышения его мощности и управляемости. Коллективу редакции одинаково интересны и кроссоверы, и суровые вездеходы, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939E3201476668F3C3F91A76F41E80A947F67348
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109383   (859215) от 27.02.2017
+
+VA - Startail - Artist Focus 66 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Startail - Sunshine (Original Mix)  7:52
+02.  Startail - Rainbow (Original Mix)  8:31
+03.  Startail - Eclipse (Original Mix)  7:07
+04.  Startail - Under The Surface (Original Mix)  6:41(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88BBF5164A667C5F891231D8FA1B60AFC65D4CA4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109409   (859214) от 27.02.2017
+
+VA - Modern Art Of Easy Listening Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive – Frozen Heart
+02. Sattva Project – Intro
+03. Velvet Dreamer – Desert Road
+04. Marga Sol – Moonlight(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC2B884C215445209DAAE5ADCCFD08A87D68547
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109441   (859213) от 27.02.2017
+
+Cookie 5.2.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cookie  - Программа для полного удаления cookie-файлов, очистки кэшей и истории посещения веб-страниц в браузерах. Cookie поможет сохранить безопасность и приватность пользователя в сети.
+
+•  Безопасное удаление нежелательных данных, и спокойно отдыхать, зная, что внешние угрозы не могут восстановить личные данные.
+•  Устали от целевых объявлений, которые таинственным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26 февраля 2017Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F115C9FDB7A133ABF0792242CC655242FCFE4655
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109373   (859212) от 27.02.2017
+
+Miguel Zenon - Tipico (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary Jazz, Post-Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новый альбом альт-саксофониста Мигеля Зенона, которого ведущий мировой джазовый журнал DownBeat несколько лет назад назвал "новым гением". Вообще-то "гений" - такое слово, которым серьезные люди обычно просто так не "бросаются", но в данном случае у критиков были свои глубокие резоны.
+Первое: он родился в стране, в которой (   Читать дальше...   )01. Academia (8:27)
+02. Cantor (8:47)
+03. Ciclo (8:02)
+04. Tipico (8:47)(   Читать дальше...   )Жанр: Contemporary Jazz, Post-Bop, World FusionПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6044FF9FD519CE17BDF1D4A8FB17C6257C2B4C8C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109446   (859211) от 27.02.2017
+
+Lee Thomas Band - 40 Miles of Bad Road (2000) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take A Little Time (4:21)
+02. Just Pretend (5:31)
+03. Pack My Bags (9:16)
+04. Tides Of Life (4:28)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D2F240251E24235BE6B5079901ADF7C191A65E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109420   (859210) от 27.02.2017
+
+Duke Ellington - Stockholm, June 1963 (2012) La Maison du Duke [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Take The 'A' Train [07:26]
+ 02.Jeep's Blues [04:55]
+ 03.Rose Of The Rio Grande [03:17]
+ 04.Kinda Dukish / Rockin' In Rhythm [07:26](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E929443F5E332C01785E004745C05066384B2F3B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109224   (859209) от 27.02.2017
+
+VA - Зимняя русская радиоволна. Версия № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859209.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Смирнов & Комапния - Я Люблю Тебя 3:13
+002. Fahmi - Мы Были Вдвоем 3:00
+003. Александр Рипчанский - Она 4:56
+004. Катерина Красильникова - Пусть Станет Раем 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9125D21C60C06D01DF5CB1B54D77020A56126D4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109345   (859208) от 27.02.2017
+
+VA - Dance Territory (2017) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expensive City – My Friend is a Killer 05:58
+02. Stinger 63 – Take Over  04:54
+03. Neryo – Rage Destroyer  03:57
+04. DJ Vantigo – Club Girls  04:53(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A28327A1A8645209BAD2F27FB2917D3409466AF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109377   (859207) от 27.02.2017
+
+Jose James - Love In a Time of Madness (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary Jazz, Contemporary R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский вокалист Хосе Джеймс (родился 20 января 1978 года в Бруклине) стал известен в широких кругах меломанов благодаря феноменальному скрещиванию современного джаза и хип-хопа. У Джеймса за плечами классическое джазовое образование, полученное в The New School of Jazz and Contemporary Music в Нью-Йорке. В 2008 году он дебютировал со своим первым альбомом The (   Читать дальше...   )01. Always There (3:14)
+02. What Good Is Love (3:51)
+03. Let It Fall (Feat. Mali Music) (4:07)
+04. Last Night (3:44)(   Читать дальше...   )Жанр: Contemporary Jazz, Contemporary R&BПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCDB494FDB85D364B474052415D66049D8EA144
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109152   (859206) от 27.02.2017
+
+Футбол. Лига Европы УЕФА 2016-2017. Жеребьёвка 1/8 финала (24.02.2017) WEB-DL [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859206.jpg" />
+</div>
+
+
+###  Подробнее
+
+В штаб-квартире УЕФА в швейцарском Ньоне 24 февраля 2017 года прошла жеребьевка 1/8 Лиги Европы 2016-2017. По ее итогам определились пары, которым предстоит сыграть между собой в первых матчах плей-офф второго по значимости клубного турнира Старого Света.
+Матчи 1/8 финала Лиги Европы состоятся 9 и 16 марта 2017 годаТелекомпания: Матч! Футбол 1 HDЖанр: Телепередача, Церемония, СпортЯзык озвучки: РусскийПродолжительность: 00:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEACC73621C0045A1DFFBE0F02B72D8E79C44BFF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109425   (859205) от 27.02.2017
+
+VA - Dixieland Planet: The Best Of Dixieland (1998) M&A Group [FLAC|Lossless|tracks + .cue] <Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sweet Emma Barrett - When The Saints o Maching In [03:00]
+ 02.Kid Ory - Original Dixieland One-Step [05:21]
+ 03.Bob Scobey's Frisco Band - Ostrich Walk [03:33]
+ 04.Turk Murphy's Jazz Band - Stuttin' With Some Barbecue [03:02](   Читать дальше...   )Жанр: DixielandПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A000C621E801D7DFE362B7A6DB46AFE4DAA3C139
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999952   (859204) от 25.03.2016
+
+Wu-Latino - The New Chamber (2006) Mixtape [MP3|192 кб/с] <Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Латиносы считывают хиты Wu-Tang`а на родном языке.
+"Оффициальный микстэйп RZA. Один из лучших, если не лучший его микстэйп."01. Wu-Latino Intro
+02. Introduction To Wu-Tang Latino
+03. Wu-Tang Latino Ain't Nuttin' Ta F*** With
+04. Bones(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD40987B6304C7A637806973B9F2EB314410B00
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000341   (859203) от 25.03.2016
+
+Caliban - Gravity (2016) Deluxe Edition [MP3|320 кб/с]<Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859203.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:29] 01. Paralyzed
+[03:01] 02. Mein Schwarzes Herz
+[04:12] 03. Who I Am
+[03:24] 04. Left For Dead(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9BE284091DBB8F845B24B09E14CE457E3D8858
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999919   (859202) от 25.03.2016
+
+Queensryche - Greatest Hits (2000) Compilation, Remastered [FLAC|Lossless|tracks] <Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen of the Reich   04:22
+02. The Lady Wore Black   06:14
+03. Warning   04:45
+04. Take Hold of the Flame   04:55(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 01:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D6CDD37386584F2A76F2F14AE587B6ACC4EEBF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000415   (859201) от 25.03.2016
+
+Aes Dana feat. MikTek - The Unexpected Hours (2016) Ultimae Records [FLAC|Lossless|WEB-DL|tracks|24Bit] <Psybient, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Unexpected Hours (11:33)
+02. Far & Off (08:36)
+03. Sulfur (05:46)
+04. Small Things Matter (08:06)Жанр: Psybient, AmbientПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAF35B181774F54550CDC72A4EFE407A26BD5D5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999902   (859200) от 25.03.2016
+
+Tool - Undertow (2001) Jараn Еditiоn [FLAC|Lossless|tracks] <Rock, Alternative Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859200.jpg" />
+</div>
+
+
+###  Подробнее
+
+02. Prison Sex   04:56
+03. Sober   05:06
+04. Bottom   07:13
+05. Crawl Away   05:30(   Читать дальше...   )Жанр: Rock, Alternative Rock, Prog RockПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5554DC88485CB250CA8BF97A4AEA6906C46ED5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000299   (859199) от 25.03.2016
+
+Неизвестная версия: Мужики!.. / Невідома версія (2008) DVBRip [Русский] [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой и масштабный документальный проект появился на СТБ в начале 2008 года. В нем всенародно любимые фильмы раскрывают свои секреты. Для каждой «Неизвестной версии» съемочная группа углубляется в архивы «Мосфильма», встречается с актерами, находит фотопробы, уникальные кадры рабочих моментов. В итоге в этих фильмах собираются факты, о которых раньше никто не говорил, (   Читать дальше...   )Телекомпания: СТБЖанр: ДокументальныйПеревод: ОтсутствуетПродолжительность: 00:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222BFADFC60AC17C1222B76E15637AA8022AC1A6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000098   (859198) от 25.03.2016
+
+Demis Roussos - The Universal Masters Collection (2000) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_859198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy To Be On An Island In The Sun
+02. Forever And Ever
+03. Lost In Love
+04. My Friend The Wind(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07C557AA3D18132CCD7B646DEA4CB93B3BF49A9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

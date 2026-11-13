@@ -1,0 +1,723 @@
+###  Публикация: 1623230   (234102) от 31.03.2023
+
+Jake Stack & The Unincorporated - Heavy Is the Head (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Singer-songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hope They Bled
+02. Heavy Is the Head
+03. In My Head
+04. Letters(   Читать дальше...   )Жанр: Rock, Singer-songwriterПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB738BF5993F96DC797BB4B406C7448ECAF1BF99
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548266   (234101) от 02.05.2022
+
+Satan's Host - This Legacy Will Never Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadmans Walk (6:32)
+02. Minuet ~ Vampyre En Amor (5:36)
+03. From the Dark (6:02)
+04. Malediction (6:34)(   Читать дальше...   )Жанр: Blackened Heavy, Power MetalПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056E52923F2F1BF91517D0DC938EF73F56B9B556
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633618   (234100) от 16.05.2023
+
+RTG. Путешествие на Соловецкие острова (2012) HDTV [H.264/1080i] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соловецкие острова в Белом море, на севере России. Столетия и тысячелетия назад на самых простых судах, на лодках люди совершали опасное путешествие, чтобы достичь этих островов, которые считались священными. Они и сегодня, как магнит, притягивают путешественников. Посреди моря град обетованный: монастырь и крепость, древние артефакты и современные музеи, уединенные (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, история, путешествияРежиссер: Игорь СоколовЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7093C03F2E54924F2BF211241167BADAC4E11B9F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577884   (234099) от 20.09.2022
+
+Шазам! / Shazam! (2019) BDRip [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234099.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждом из нас живет супергерой, нужна лишь толика магии, чтобы он проявил себя. Билли Бэтсон должен прокричать всего лишь одно слово — ШАЗАМ! — чтобы из сообразительного четырнадцатилетнего мальчишки превратиться во вполне себе взрослого супергероя Шазама, а все благодаря древнему волшебнику. В душе он остается ребенком, пусть и во взрослом могучем теле, поэтому (   Читать дальше...   )Производство: США, Канада / 7 Bucks Productions, DC Comics, DC EntertainmentЖанр: фэнтези, боевик, комедияРежиссер: Дэвид Ф. СандбергАктеры: Закари Ливай, Эшер Энджел, Мишель Борт, Джимон Хонсу, Грэйс Фултон, Марк Стронг, Джек Дилан Грейзер, Марта МилансПеревод: ДублированныйСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6625B16FC213ABA61EE79E3388B4931A4C296720
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501683   (234098) от 13.10.2021
+
+VA - Electronic Clouds, Vol. 2 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Mike - Sai (Original Mix) (2:25)
+02. Seven Heaven - I'm Here (Original Mix) (3:33)
+03. Red Sea Grooves - Freezone (Original Mix) (4:22)
+04. Blue Castle - Days in Love (Original Mix) (3:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCF47E0FC5766A4D6BAA480B871A8813E5F64E6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633827   (234097) от 17.05.2023
+
+MediaHuman YouTube Downloader 3.9.9.81 (1605) RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234097.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49213CC066B5F0260074B11981E260575D8A082
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640602   (234096) от 18.06.2023
+
+Memoriam - Rise To Power (2023) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234096.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Never Forget, Never Again (6 Million Dead)
+2. Total War
+3. I Am The Enemy
+4. The Conflict Is Within(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B707E27DDFED61C7736AC7EB239C21B826AD527B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552296   (234095) от 20.05.2022
+
+Брошу всё и открою чирингито / Mollo tutto e apro un chiringuito (2021) HDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнесмен из Милана разочаровался в своей деятельности. Он понимает, что больше не способен заниматься бизнесом после грандиозного провала. Крупная сделка должна была принести основную часть прибыли, но она сорвалась в последний момент. Мужчина тяжело переживает это потрясение, и решает, что должен оставить неудачное направление. Ему кажется отличной идея бросить (   Читать дальше...   )Производство: Италия, QMI, Medusa Film, Fondazione Sardegna Film Commission, Ramaya ProductionsЖанр: КомедияРежиссер: Пьетро Бельфиоре, Давиде Боначина, Андреа ФадентиАктеры: Джермано Ланцони, Валерио Айро, Лаура Локателли, Леонардо Усленго, Бенито Ургу, Алессандро Бетти, Бренда Лодиджани, Марта Зоболи, Симонетта Колумбу, Дзюн ИтикаваПеревод: Многоголосый профессиональный (Синема УC)Субтитры: отсутствуютПродолжительность: 01:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF824A7FE2B3F387FC5DC8BBF9D4974D36A2C25
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622994   (234094) от 31.03.2023
+
+UctoX 2.9.8 U2B [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234094.jpg" />
+</div>
+
+
+###  Подробнее
+
+UctoX - это мощное приложение для выставления счетов, которое позволяет оставаться удобным для пользователей, предлагая широкий спектр функций для управления финансовыми отчетами.
+Управлять финансовыми документами вашей компании, отслеживать счета-фактуры, банковские выписки, инвестиции и многое другое, с помощью этого интуитивного приложения
+Если вы управляете малым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2023Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5413BB28ED43C68E23119EA7021D0990991728F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548049   (234093) от 02.05.2022
+
+Hempress - Masters Of The Trade (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Sky
+02. Melancholy Of A Dead Flower
+03. My Dopamine
+04. Funeral Haze(   Читать дальше...   )Жанр: Stoner Metal, Doom MetalПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64C7568E004828C92B1D97CD8C13C7F6C60D7F2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633703   (234092) от 16.05.2023
+
+Artefactoschool, Игорь Хайков | Времена года (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнаем особенности работы акварелью по мокрому и напишем сказочные пейзажи.
+
+Техника акварели “по мокрому” как будто создана для рисования волшебных пейзажей: глубокого неба и воздушных облаков, загадочного тумана или осеннего пасмурного дня.
+На этом курсе вы научитесь управлять водой и акварелью, изучите приемы и техники работы на мокрой бумаге, научитесь контролировать (   Читать дальше...   )Производство: ArtefactoschoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 04:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D74755B0598BD409FE6C2293417E772372BD53F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577841   (234091) от 20.09.2022
+
+CCleaner 6.04.10044  Free / Professional / Business / Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234091.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27614D9FD950913461935C08CE2457C74DB9DE91
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501689   (234090) от 13.10.2021
+
+VA - Electronic Clouds, Vol. 4 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 82 Talking - Keep Control (New Fragrance Mix) (3:20)
+02. Mark Mars - Ship's Lounge (Downtown Slow Mix) (3:23)
+03. Planet Sun - Get up Stand Up (Original Mix) (3:12)
+04. dgn - Moisture (Lounge Mix) (7:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731C2B06149BA365BABBD1651A15CEAC2042247B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622983   (234089) от 31.03.2023
+
+The Chapter - Delusion of Consciousness (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Halocline (05:23)
+02 - Delusion of Consciousness (04:50)
+03 - Book of Life (06:09)
+04 - Compos Mentis (05:20)(   Читать дальше...   )Жанр: Doom, Death, Gothic MetalПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:033A7E29AF6724679203BA06C35CEF522E8DD290
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640606   (234088) от 18.06.2023
+
+Terra Black - All Descend (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner, Dark, Gothic Meta>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asteroid [00:07:13]
+02. Black Flames of Funeral Fire [00:05:00]
+03. Ashes and Dust [00:05:44]
+04. Divinest Sin [00:05:58](   Читать дальше...   )Жанр: Doom, Stoner, Dark, Gothic MetaПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC88F3D85F3444BE4050BBCB5DEB9BF2E92A998E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548341   (234087) от 02.05.2022
+
+Somali Yacht Club - The Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Silver (00:05:16)
+02 - Pulsar (00:09:07)
+03 - Obscurum (00:05:06)
+04 - Echo of Direction (00:09:45)(   Читать дальше...   )Жанр: Psychedelic, Stoner RockПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA7675E9B28BA349A16C1DCB71DC634518B2ED0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552290   (234086) от 20.05.2022
+
+Производителей обяжут предустанавливать RuStore на смартфоны
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_234086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минцифры уже внесло в Правительство соответствующий проект федерального закона о российском магазине приложений для мобильных устройств.Отечественный магазин мобильных приложений RuStore под управлением «ВКонтакте» нужно будет предустанавливать «на технически сложные устройства», заявил глава Минцифры Максут Шадаев на Российском интернет форуме (РИФ). Принципы работы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633798   (234085) от 17.05.2023
+
+Футбол. Лига Чемпионов 2022-2023. 1/2 финала. Интер (Италия) - Милан (Италия) (16.05.2023) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2022-2023. 1/2 финала. Ответный матч. Интер (Италия) - Милан (Италия) (16.05.2023)
+СУДЬЯ Тюрпен Клеман (Улинс, Франция)
+Судья на линии 1: Дано Николя (Франция)
+Судья на линии 2: Паж Бенжамен (Франция)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992B36C8A83D2BE870508477E144E53C6EE39ABD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633737   (234084) от 16.05.2023
+
+Capture One 23 Pro 16.2.0.112 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конвертеров цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.05.2023Разработчик: Phase OneПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8D8DE263866F4C80435692511059D84224B965
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577969   (234083) от 20.09.2022
+
+Microsoft Windows 10.0.19044.2006, Version 21H2 (Updated September 2022)  - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
+
+Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.2006.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D536315C63D604CBE3143C531806A42E91BFFE7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640505   (234082) от 18.06.2023
+
+The Soap Opera - Back On Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise And Fall Of A Teenaged Hooper [00:04:04]
+02. Who Ate The Last Phoney Oreo ? [00:03:26]
+03. Golden Springs S.A.S. [00:03:06]
+04. The Clouds Are Laughing At Me [00:02:10](   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E752DC9C571D1C70E60BBE5315968EE72DB13F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496918   (234081) от 13.10.2021
+
+VA - Lounge & Cookies, Vol. 2 (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noel McCalla - Teach Us (3:52)
+02. Matthew Daniel, Roszunn - Rhythm Of Life (Lemongrass Nu Disco Remix) (4:01)
+03. K'un - My Gentleman (5:09)
+04. T2'n - Garden Brain (6:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BD55484F3E65FC3AE0B134A64DE6FD8A382D1B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547975   (234080) от 02.05.2022
+
+Greenbeard - 7 Albums (2014-2022) [MP3|320 Kbps, V0] <Stoner Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creatures of the Night [00:03:23]
+02. Burns Like Basketweave [00:04:24]
+03. Get in the Car. No Time to Explain. [00:05:09]
+04. Diamond in the Devil's Grinder [00:05:20](   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 03:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18591403272BEEE52F1B495E9DC60479A2344657
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633820   (234079) от 17.05.2023
+
+Эльдар Сафин, Софья Ролдугина | Аква (Книга 4). Время приливов (2022) [MP3, Александр Дунин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Океан никогда не бывает спокойным. Даже если и стихает яростный шторм, глубинные течения неутомимы и неистощимы, хотя и не видны глазу. Перед этой мощью ничтожными кажутся и алонкеи, благословлённые Жребием моря, и простые люди, и хитроумные адепты Ордена Механиков, и одарённые с Небывалого острова… Океан – значит судьба. Этой судьбой связаны воедино мальчишки-рыбаки (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 11:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573BD6EF89DE77D4582836EFACBEF13105E71C92
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633663   (234078) от 16.05.2023
+
+EZ CD Audio Converter 11.0.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234078.jpg" />
+</div>
+
+
+###  Подробнее
+
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EC52CDFC64E0DB1E1308759C49E77F8339B7B0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577889   (234077) от 20.09.2022
+
+Открытое море: Монстр глубины / The Reef: Stalked (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_234077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ники и ее подруги отправляются на экзотический остров в Тихом океане, чтобы покататься на байдарках и заняться дайвингом. Но девушек начинает преследовать огромный морской монстр, и теперь им придется встретиться со своими страхами лицом к лицу.Производство: Австралия / Thrills & Spills, Filmology Finance, Cornerstone PicturesЖанр: триллер, ужасыРежиссер: Эндрю ТраукиАктеры: Тересса Лиэн, Энн Чюонг, Саския Арчер, Кейт Листер, Bridget Burt, Тим Росс, Wendy P. Mocke, Eva Mocke-Kanaki, Sophie Naime, Barney LingПеревод: Дублированный (Кипарис)Язык озвучки: Русский, АнглийскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCF021D9F2B7A5FDB989D091932CA0CB2F3CB4F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

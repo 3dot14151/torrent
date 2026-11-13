@@ -1,0 +1,729 @@
+###  Публикация: 1038629   (604839) от 29.07.2016
+
+Журнал | Делаем сами №14 (июль 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный журнал о декоре ручной работы. Понятные и простые пошаговые проекты по украшению интерьера, мебели, аксессуаров. Интересные мастер-классы от ведущих дизайнеров России и Европы, полезные советы, новости мира хобби.Жанр: домоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CA42275BFA88311347A508A71EEAEF0416BF8F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038755   (604838) от 29.07.2016
+
+Vermillion Watch: Moorgate Accord (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604838.jpg" />
+</div>
+
+
+###  Подробнее
+
+То, что началось как обычная встреча с вашим дядей и его другом, быстро принимает кошмарный оборот, когда, невесть откуда появившееся крупное существо, человекообразного вида, нападает! Вам придется изрядно покопаться в своей семейной истории, чтобы раскрыть секретное соглашение между силами добра и зла.Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA7C02EDF5C819752A155686EAB123143CDA6B0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038493   (604837) от 29.07.2016
+
+The Human Instinct - The Hustler (1974) Remastered, 2010, Zodiac Records L.t.d.[MP3|320 Kbps] <Hard Rock, Psych-Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604837.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Hustler
+2. Mae West & My Gangster
+3. Funky Monkey
+4. Johnny Blade(   Читать дальше...   )Жанр: Hard Rock, Psych-Prog RockПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E4C350863F4323F0B796B1FAC8E3A30DA665B1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038680   (604836) от 29.07.2016
+
+VA - Chicane - Twenty (2016) [MP3|320 Kbps] <House, Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane -  Offshore (Thomas Datt Remix) 7:32
+02. Chicane & Bryan Adams -  Don't Give Up 3:31
+03. Chicane & Ferry Corsten feat. Lisa Gerrard -  38 Weeks (KOKO Version) 6:08
+04. Chicane & Steve Edwards -  Carry Me Home (Twenty Rave Remix) 5:28(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 03:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573C51DA09B6CDA2EFBAEE7D4DD8DD10518D065A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297243   (604835) от 21.04.2019
+
+Ruby Braff & Dick Hyman - America, The Beautiful (2002) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When It's Sleepy Time Down South [4:32]
+02. When My Sugar Walks Down The Street [3:18]
+03. When I Fall In Love [3:45]
+04. As Long As I Live [5:36](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED693E98DF730CE10120EFF4F8FDD5AC6B9E55C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297314   (604834) от 21.04.2019
+
+Валерий Табах | Волшебная карточка. Рассказы. Басни. Стихи (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге 14 рассказов, 5 басен и 18 стихотворений, которые пригодятся ученикам дома и в школе, помогут расширить детский кругозор и воспитать из ребенка настоящего гражданина. Книга дает полезную информацию о нашей победе в Великой Отечественной войне и о том, как ищут нефть и алмазы, для чего нужна банковская карточка и как работают полицейские, что такое "морской (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A3F81FF8B075082EBE13D99A7EAB1FCA7A2801
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297231   (604833) от 21.04.2019
+
+VA - Digital Dream: Techno Set (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604833.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mike Nero - Messed Up My Mind (Original Mix)
+002. Boryana - Simulation
+003. Santiago Garcia - Apes On Mars (Original Mix)
+004. T78 - Stinkor (Original Mix)(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBCF7F0DAAE1C3350BD94943CA55AC63A361BE9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297067   (604832) от 21.04.2019
+
+Дарси Блейк | Из плена прошлого (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хелен Тенби встретила Бена Конгрива на Карибах, куда она отправилась после окончания университета. Эти две недели полностью перевернули ее жизнь. Их любовь была страстной и яркой, но очень скоро пришло время расставаться. Вскоре Хелен поняла, что беременна. Она пыталась разыскать Бена, но тот как в воду канул. Пришлось преодолевать все жизненные трудности в одиночку. (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 04:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2E72FB66A2D5FEC4C36A15318B533A09B9534C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297306   (604831) от 21.04.2019
+
+Captain Torkive - Flying Saucers (1979) 7'' [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying Saucers (4:11)
+02. Krypton (3:22)Жанр: Electronic, DiscoПродолжительность: 00:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55EA9946DE7662E6F6459F809F9B0A4F280E8ED0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297281   (604830) от 21.04.2019
+
+VA - Spring Lounge Vol.1 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Diaz & Karl Frierson - Say A Little Prayer (Unplugged Edit) 3:00
+02. Schwarz & Funk - Sheela & Luna (Original Mix) 4:59
+03. Key Of Dreams - You Don't Know (Original Mix) 5:04
+04. Peter Pearson - Message In A Dream (Original Mix) 5:22(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A740F29EC694C44FD30865152E635C30DAD0ED3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297190   (604829) от 21.04.2019
+
+Roger Gerressen - Monoaware (2017) Sushitech Records [FLAC|Lossless|Vinyl-24Bit|tracks] <Techno, Deep Techno, Dub Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled 1 (06:06)
+ 02. Untitled 2 (07:10)
+ 03. Untitled 3 (06:04)
+ 04. Untitled 4 (08:10)(   Читать дальше...   )Жанр: Techno, Deep Techno, Dub Techno, Tech HouseПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FB668F049F17CA0450E4B9AED04B234D11C689
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297195   (604828) от 21.04.2019
+
+VA - 100 % Pure Bounce (2019) [MP3|320 Kbps] <Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klubb Eff3kt - Move It
+02. Poomstyles - Hold Up
+03. Tom Damage - Dreams
+04. Mr Mister &Tasered In Tesco(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA560A0C56D3CB3B8CCB9C22150DDF4118D32BE1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297263   (604827) от 21.04.2019
+
+VA - April Bassline Mastermix (2019) [MP3|320 Kbps] <D&B, Dubstep, Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604827.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dope Ammo Feat. Rio Hellyer - Wishin' On A Star
+002. Degwood - Re-Entering (Original Mix)
+003. Oliver Ferrer - Two Of Us
+004. Asok - Hyperspace(   Читать дальше...   )Жанр: D&B, Dubstep, BassПродолжительность: 10:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E3B096D0F02450687D545B1F7AD972240FC5BD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297275   (604826) от 21.04.2019
+
+VA - Spring Lounge 2019: Sounds Like Sunshine (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Borell - Butterflys Stay with Me (The Green Cut)
+02. Groove Gauchos - Costa Nova (Springtime Mix)
+03. Airstream - Pulsar (Blue Flyover Mix)
+04. DJ Maretimo - In Your Smile (Step Forward Mix) (feat. Vladi Strecker)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4747D63F3EBB0804AAF56D887B63357F0EDADF58
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297296   (604825) от 21.04.2019
+
+VA - Special Electro House Mix For Ladies (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604825.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Elements - Feel Good
+002. Alok Jetlag Music - Bella Ciao
+003. ZB - OIO
+004. Aryozo - Franz Kafka(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8A3639FB458DFA14537CE77FFAA3955A96E620
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297157   (604824) от 21.04.2019
+
+Mr. Lif & Brass Menažeri (Mr. Lif & Brass Menazeri) - Resilient (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, Conscious Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebirth (3:35)
+02. Crypt Of Lost Styles (3:18)
+03. Aftermath (3:35)
+04. The Wanderer (feat. DJ Mr. Sonny James) (5:51)(   Читать дальше...   )Производство: Waxsimile ProductionsЖанр: Hip-Hop, Jazz Hop, Conscious Hip-HopПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CFE4D6398C6C5971CD48B1D04F01B1EC01454B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297177   (604823) от 21.04.2019
+
+Владимир Сердюков и др. | Эпоха перемен 1996-2005 (2019) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Статьи, содержащиеся в данном сборнике, были опубликованы в Газете «Новая Копейка». Газета эта появилась в конце 1996 года и выходила почти десять лет. Но каких лет! Теперь этот период — история, заложившая основы (чаще более похожие на мины замедленного действия) для дальнейшего развития страны, в том числе и того времени, в которое все мы живем. Пройден путь от (   Читать дальше...   )Жанр: История, Политика, ПублицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332258423BE701D27DB6B1D73FB88F314FFD1BEB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297311   (604822) от 21.04.2019
+
+Alex Hepburn - Things I've Seen (2019) Explicit [MP3|320 Kbps] <Pop-Rock, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Things I've Seen (03:24)
+02. When I'm Old (03:34)
+03. Take Home To Mama (03:18)
+04. Chasing Paradise (03:15)(   Читать дальше...   )Жанр: Pop-Rock, SoulПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3B514CD69166C52034B5BF09C0CB50E5A6E019
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297218   (604821) от 21.04.2019
+
+Первая передача на НТВ. Автомобильная передача (21.04.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кого винить в гибели пешехода, если водителей на дороге было двое, и какие преимущества есть у авто на обочине?
+«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318017FA998ACFD480B4A220AA9561F5CFB0DB14
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297191   (604820) от 21.04.2019
+
+Exponential Audio - PhoenixVerb 6.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин реверберации PhoenixVerb привносит в ваши миксы четкое, реалистичное измерение. Создавая пространство с нуля или используя более 900 предустановок, никогда не было так просто создать естественную, аутентичную глубину для вашей музыки.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9310CFBFC015BFED102E1BA5A450F3CB0C7C77FA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297274   (604819) от 21.04.2019
+
+Журнал | Bahar tazeliği / Весенняя свежесть (2019) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Baharin ahengi
+Bu günlerde kipir kipir bir bahar kendini müjdeliyor! Yeniden uyanan toprak, tomurcuklanan ağaçlar renk renk çiçekler mavileşen gökyüzü gülümseyen bulutlar. çeşit çeişt kokular ve keşfedilmey bekleyen yepyeni tatlar ile bahar mevsimi bir kez daha kapimizi çaliyor. (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA08458A3DC25C882DE7CAEDA0BECBFC78CDFF4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297192   (604818) от 21.04.2019
+
+Exponential Audio - R2 6.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604818.jpg" />
+</div>
+
+
+###  Подробнее
+
+R2 представляет пышный, красочный алгоритм реверберации стерео в привычном дизайне Exponential Audio. Используйте эффекты хоруса и гейта, чтобы окрашивать и формировать сигнал реверберации в соответствии с любым музыкальным проектом. От вращающихся оркестровых камер до минимальных, чистых отражений комнаты, R2 - ваш плагин для создания совершенно уникальных музыкальных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9F09800CFDAF73E32D1A6C1040D34EDEBCCEB6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297220   (604817) от 21.04.2019
+
+Чудо техники с Сергеем Малозёмовым (21.04.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604817.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Что нам стоит дом построить?" - в новом выпуске программы "Чудо техники" выяснят, насколько прочными получаются каркасные и модульные дома, построенные всего за несколько недель. Из рубрики "За что такие деньги?" зрители узнают жареные факты об электрогрилях: о покупке каких моделей даже не стоит задумываться и правда ли, что дорогие (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C02669F3E48E68AF5DAB6D3CE6C86ABFAD1676
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297140   (604816) от 21.04.2019
+
+Kool Keith - Total Orgasm 5 (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_604816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Types Of Orgasms (0:58)
+02. Talk Sex Ft. KidMiddi & Rouge (4:25)
+03. Star Studded Ft. KidMiddi (3:19)
+04. Vicious Advertisement (3:26)(   Читать дальше...   )Производство: JunkadelicЖанр: Hip-HopПродолжительность: 01:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F58CD4EF41EB1F39EAD27B8EF588E8E4AD5CCF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805987   (604815) от 18.07.2014
+
+Архиепископ Ташкентский и Среднеазиатский Владимир | ...А друзей искать на Востоке. Православие и Ислам: противостояние или содружество? (2001) [DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«Ты несомненно найдешь, что самые близкие по любви к мусульманам те, которые говорят: «Мы – христиане!» (Коран. Сура 5 «Трапеза», аят 85/82)
+
+«Здесь нет различия между Иудеем и Еллином, потому что один Господь у всех, богатый для всех, призывающих Его». (Рим. 10:12)
+
+Книга Архиепископа Ташкентского и Среднеазиатского Владимира (Икима) уникальна потому, что впервые столь высокопоставленный иерарх Православной Церкви дает свое видение проблем мусульманских народов, размышляя о сути и роли Ислама в современном (   Читать дальше...   )Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCD28101E10F901516326518916588DE778CF61
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805848   (604814) от 18.07.2014
+
+VA - Summer Clinique (2014) [MP3|320 кб/с]<House, Progressive House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+001. Adriano Mattioli and Elias Funes - Girl Get Up (Original Mix)
+002. Ale Miguez - Atoms (Original Mix)
+003. Ankit and Mustafa - Groove My Cunt (Original Mix)
+004. Janno Kekkonen - Deep Blue Plant (Original Mix)
+005. Julian Dep - Returning of the Past (Original Mix)
+006. Luis M - Nightfall (Original Mix)
+007. Matias Carafa - Monotrome (Original Mix)
+008. Platunoff - Just Be (Original Mix)Жанр: House, Progressive House, TechnoПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6F3F6E519D6E57A014C7584A864DE9195B8E13
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

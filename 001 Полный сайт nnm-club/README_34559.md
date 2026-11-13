@@ -1,0 +1,721 @@
+###  Публикация: 1659138   (190630) от 10.09.2023
+
+Street Fighter - Second Hand Hero (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fall Of The Ash [00:05:12]
+02. Deadend City [00:05:29]
+03. Black Potion [00:05:17]
+04. Queen Of The Night [00:04:10](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5027173AC9279C3B78EFDCC4043022955BB3E97C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589180   (190629) от 08.11.2022
+
+Signum Audio - SKYE Dynamics 1.0.2 VST, VST 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190629.jpg" />
+</div>
+
+
+###  Подробнее
+
+SKYE Dynamics - это многоступенчатый динамический процессор "три в одном" для создания музыки. Он состоит из Expander, Compressor и Limiter, обеспечивающих сверхпрозрачную обработку. Поддержка до Dolby Atmos 7.1.4 в версии объемного звучания.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6F413A5A58351BF7EF374AB16D59365C004356
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658970   (190628) от 10.09.2023
+
+Sarayasign - The Lion's Road (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. When All Lights Go Out (5:34)
+02. Blood From Stone (5:22)
+03. A Way Back (6:25)
+04. The Beginning Of The End (5:07)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56090D72C60747CEAA0AE63D2337F2439011F35
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589253   (190627) от 08.11.2022
+
+Зоя Ященко и группа Белая Гвардия - Другие острова (2022) [MP3|320 Kbps] <Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190627.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Танцы с волками
+2. Абсолютная ночь
+3. Всего лишь смерть
+4. Между этим миром и тем(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94249C6761F4B844A604C7D2CD78851CB35DFC8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658026   (190626) от 10.09.2023
+
+The Staehely Brothers - Sta-Hay-Lee (1973) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Future Shock [00:04:00]
+02 - Concrete and Steel [00:04:27]
+03 - Woman in Love [00:02:51]
+04 - Woe Is Me [00:04:59](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E72142F26243D1521F63B4CFC9C7E7C4A799F2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589244   (190625) от 08.11.2022
+
+Энни / Annie (1982) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190625.jpg" />
+</div>
+
+
+###  Подробнее
+
+1930-е годы. Огненно-рыжая сиротка Энни вынуждена жить в ужасном приюте, которым управляет властная Агата Хэнниган. Однажды её кажущееся безвыходным положение резко меняется, когда она получает возможность провести некоторое время в особняке богатого военного промышленника Оливера Уорбукса. Энни моментально очаровывает всех обитателей имения и даже на первый взгляд (   Читать дальше...   )Производство: США / Columbia Pictures, Rastar PicturesЖанр: мюзикл, драма, комедия, семейныйРежиссер: Джон ХьюстонАктеры: Альберт Финни, Кэрол Бёрнетт, Энн Райнкинг, Тим Карри, Бернадетт Питерс, Эйлин Куинн, Джеффри Холдер, Роджер Минами, Тони Энн Джисонди, Розанн СоррентиноПеревод: Многоголосый профессиональный (СВ-Дубль)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 02:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13368BD14E45F1E77B802F754EFD422BA0053CB9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658162   (190624) от 10.09.2023
+
+King Gizzard & The Lizard Wizard - Live in Chicago '23 (2023) [MP3|320 Kbps] <Psychedelic, Garage Rock, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pleura (Live in Chicago '23) [00:04:45]
+02 - O.N.E. (Live in Chicago '23) [00:04:21]
+03 - Nuclear Fusion (Live in Chicago '23) [00:04:57]
+04 - Minimum Brain Size (Live in Chicago '23) [00:05:33](   Читать дальше...   )Жанр: Psychedelic, Garage Rock, DoomПродолжительность: 05:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC00D770695654316765C147052B911BA621E9F4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589117   (190623) от 08.11.2022
+
+Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Ascendance of a Bookworm (2022) | Власть книжного червя [ТВ-3] [2022, TV, 10 из 10] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромная демонстрация маны перед Рыцарским Орденом привлекла внимание знати Майн. Результат? Все больше людей, кажется, надеются использовать ценность молодой ученицы жрицы. И поэтому Первосвященник решает укрыть Майн в храме, чтобы уберечь ее от надвигающейся опасности, которую он предвидит. Но главной заботой Майн по-прежнему являются книги, и она работает над (   Читать дальше...   )Производство: Ajia-do Animation WorksЖанр: фэнтези, повседневность, исекайРежиссер: Хонго МицуруСубтитры: РусскиеПродолжительность: 10 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E589E601134F143C6CE62548D0733405DBF8F3D8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589249   (190622) от 08.11.2022
+
+TattooIN (Татуин) - Асимметрия (2022) [MP3|320 Kbps] <Alternative Rock, Space Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По спирали
+02. 100 дорог
+03. Драконы
+04. Астрономия(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, Pop RockПродолжительность: 00:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:909087F995E05C33CDEF9BB31F329507A9234A4F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658943   (190621) от 10.09.2023
+
+VA - Metal Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - Fighting Myself (3:21)
+02. Halestorm - Wicked Ways (3:26)
+03. Avenged Sevenfold - Game Over (3:46)
+04. Korn - Can You Hear Me (2:52)(   Читать дальше...   )Жанр: MetalПродолжительность: 01:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DEE7C12072D0574E2458D6FC4B12841E69E0FB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589223   (190620) от 08.11.2022
+
+Барбара Блэтчли | Поймай удачу за хвост. Почему у вас больше шансов выжить в авиакатастрофе, чем выиграть в лотерею (2022) [MP3, Алексей Кизуб]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое удача? Тяжкий труд или случайность, которая подкарауливает за углом, чтобы в нужный момент вам помочь? Барбара Блэтчли обращается к психологии и неврологии, чтобы исследовать, как мы реагируем на случайные события в различных обстоятельствах и каким образом вера в удачу помогает нам справляться с бесконтрольным миром.
+Она рассказывает о случайных открытиях, (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростПродолжительность: 05:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4FE667F52618D316626D38A2606C5980D4C656
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659197   (190619) от 10.09.2023
+
+BuhoCleaner for Mac 1.9.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190619.jpg" />
+</div>
+
+
+###  Подробнее
+
+BuhoCleaner — это незаменимое приложение для очистки Mac, созданное для освобождения дискового пространства и максимального повышения производительности вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 06.09.2023Разработчик: © 2023 Dr.Buho Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E434FF55027501DCD31C1987EFAF3F15CB3B744A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589141   (190618) от 08.11.2022
+
+Смерть человека на Балканах / Smrt coveka na Balkanu (2012) DVDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкант-интроверт, живущий в одиночестве в своей квартире в Белграде, совершает самоубийство перед включённой веб-камерой. Привлеченные звуком стрельбы в квартире, его соседи Аца и Веско поднимаются в квартиру мертвеца. Коротая время до приезда скорой помощи и полиции, они играют в шахматы, пьют, едят и хвалят музыку покойного (при этом не могут вспомнить как его (   Читать дальше...   )Производство: Сербия / 3D Video System, Brigada, Living PicturesЖанр: драма, комедияРежиссер: Мирослав МомчиловичАктеры: Никола Койо, Эмир Хаджихафизбегович, Радослав Миленкович, Наташа Нинкович, Любомир Бандович, Бранислав Трифунович, Милица Михайлович, Никола Джуричко, Боян Лазаров, Анита МанчичПеревод: Многоголосый любительский (Творческое объединение «Храм тысячи струн»)Язык озвучки: русский, сербскийСубтитры: русские (отдельно)Продолжительность: 01:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C61A3896444D14B5505ED9E1D01EF683CAC867
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659063   (190617) от 10.09.2023
+
+Ed Rush & Optical - Classic Essential Mix 1999 (Rebroadcast 03.09.2023) [MP3|287 Kbps (VBR V0)] <Drumnbass>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Classic Essential Mix - это еженедельное радиошоу, где в эфир возвращаются выпуски оригинального шоу01. Optical & Ryme Tyme - HeadhuntersЖанр: DrumnbassПродолжительность: 02:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96F339776E2354E569EC0EC13B4FF3641ACF579
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589143   (190616) от 08.11.2022
+
+Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren`ai Zunousen | Kaguya-sama: Love is War OVA | Кагуя: В любви как на войне OVA [2021, OVA, 1 из 1] WEBRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бонусный эпизод, вышедший вместе с 22 томом одноимённой манги.Производство: A-1 PicturesЖанр: Романтика, комедия, школаРежиссер: Омата СинъитиСубтитры: РусскиеПродолжительность: 1 серия по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A416FF20F9D2FA56FED8EE9D7F39BFF42A88D0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658861   (190615) от 10.09.2023
+
+Stream Of Passion - Beautiful Warrior (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symphonic Metal, Gothic Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hunter [00:04:53]
+02. Tonight [00:04:28]
+03. Chasing a Ghost [00:05:34]
+04. The End is the Beginning [00:04:56](   Читать дальше...   )Жанр: Progressive Metal, Symphonic Metal, Gothic Metal, Female VocalsПродолжительность: 00:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532ED7902DD5F65F17FE69CB1DAD94E8D51B00D8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657929   (190614) от 10.09.2023
+
+Steely Dan - Memphis 1974 (Live) (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bodhisattva (Live) [00:05:19]
+02 - The Boston Rag (Live) [00:07:02]
+03 - Do It Again (Live) [00:08:21]
+04 - Brooklyn (Owes the Charmer Under Me) (Live) [00:04:14](   Читать дальше...   )Жанр: RockПродолжительность: 01:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7955E64DFF74DE1DC79731EE4E7442C6B547FE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589264   (190613) от 08.11.2022
+
+Журнал | Electronics For You №11 (2022) [PDF][En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это журнал для читателей, интересующихся электроникой и техникой. Впервые был издан в 1969 году. В нем широко представлены обзоры лучших образцов электронной продукции, сравнения аппаратного и программного обеспечения, новости электронной техники, компьютерного оборудования, источников питания, радиоэлектронных компонентов, цифровых устройствЖанр: ЭлектроникаЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D852ABF9FBABB5B2B2DFC7FB915AAB035F92C2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589225   (190612) от 08.11.2022
+
+Н. Елисеева | Вино и дегустация. Знания, которые не займут много места (2022) [MP3, Денис Белых]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга для тех, кто когда-либо безучастно смотрел на винную карту ресторана и внутренне паниковал из-за того, что выглядел неуверенно перед официантом и соседями по столу. Или любого, кто безучастно кивал, когда кто-то говорил слова «танины» и «минеральность», обсуждая бутылку прекрасного вина.
+Боязнь вина реальна, но вам не нужно становиться ее жертвой. Эта короткая (   Читать дальше...   )Жанр: КулинарияПродолжительность: 02:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1150A8E886443C090C9F9B5568C00F02A979A853
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658887   (190611) от 10.09.2023
+
+Fire Rose - Blood On Your Hands (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heroes [00:05:05]
+02. Touchdown [00:04:46]
+03. Blood on Your Hands [00:04:56]
+04. Rise Like the Sun [00:03:40](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6DE1FD2558DC626DBB4008D233212DECC6E146
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589255   (190610) от 08.11.2022
+
+Megadeth - The Sick, The Dying... And The Dead! (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal, Speed Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sick, The Dying... and The Dead!
+02. Life In Hell
+03. Night Stalkers
+04. Dogs Of Chernobyl(   Читать дальше...   )Жанр: Thrash Metal, Speed Metal, Heavy MetalПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB8B3DDBE419CB892903CB0F7CBFFEF02D4E3E5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658837   (190609) от 10.09.2023
+
+Thunder Volt - 4 Releases (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Bear's Rythm) [00:02:30]
+02. To Let This Go [00:04:40]
+03. Don't Need Your Love [00:05:07]
+04. Keep Complain [00:03:38](   Читать дальше...   )Жанр: Grunge, Stoner, Doom MetalПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33B31E661FA93A404F3B12929A7A2F33833094A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589163   (190608) от 08.11.2022
+
+Сергей Дегтярев | Франшиза на миллиард. 20 шагов для масштабирования вашего бизнеса (2021) [MP3, Александр Шаронов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_190608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задумываетесь о запуске франшизы или хотите масштабировать уже существующую франчайзинговую сеть? Сергей Дегтярев, эксперт №1 по франчайзингу в России, дает инструкцию из 20 шагов, которая поможет вашему бизнесу кратно вырасти в течение одного года. Он проведет вас по всем этапам развития франшизы и на простых примерах объяснит, как подготовить бизнес к масштабированию, (   Читать дальше...   )Жанр: Бизнес-стратегии, эффективность бизнесаПродолжительность: 08:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992086327F586EAD598A90F5BF9B3037E80252E7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659131   (190607) от 10.09.2023
+
+The Flower Kings - Look At You Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginner's Eyes [00:04:30]
+02. The Dream  [00:04:31]
+03. Hollow Man  [00:04:51]
+04. Dr. Ribedeaux  [00:03:02](   Читать дальше...   )Жанр: Symphonic ProgПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9EDC7155BF57770F18E025515DFDFD21878FF6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589161   (190606) от 08.11.2022
+
+Дафна Джоэл, Люба Виханская | Гендерная мозаика. Разоблачение мифа о мужском и женском мозге (2022) [MP3, Дина Пятро Дабришюте]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует ли мужской и женский мозг? А исключительно «мужские» и «женские» черты? Какую роли играет гендер в нашей жизни и почему мы ведем себя именно так, а не иначе? Каким образом стереотипы ограничивают нас и наших детей в развитии, а также навязывают роли?
+Дафна Джоэл, нейробиолог из Израиля, последовательница нейрофиминизма, дает ответы на эти вопросы. За годы (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 04:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6062DB9295CB1596EE88C60432967EFA376B89E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658447   (190605) от 10.09.2023
+
+Butchamana And The Big Bang Brothers Band - Indian Dream (1981) [MP3|320 Kbps] <Folk Rock, Country Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Border Land [04:15]
+02. He Needs A Little More Than I [04:35]
+03. Crazy World [04:53]
+04. We All Need Reminding [03:16](   Читать дальше...   )Жанр: Folk Rock, Country Rock, Classic RockПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85501CF302FD46A17D1B194A00BE2D9BE3260023
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

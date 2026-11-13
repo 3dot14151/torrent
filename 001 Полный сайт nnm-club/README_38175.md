@@ -1,0 +1,773 @@
+###  Публикация: 450562   (93019) от 11.02.2012
+
+"Умное" нанопокрытие обнаруживает мельчайшие повреждения в строениях и конструкциях.
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Ученые из университета Стратклайд (Strathclyde University) разработали состав нового "умного" нанопокрытия, которое может использоваться для обнаружения микротрещин и крошечных повреждений различных конструкций и строений, таких как мосты, шахты, башни и лопасти ветрогенераторов. Это покрытие, своего рода краска, состоит из зольной пыли в которой "замешаны" углеродные нанотрубки, упорядоченные особым образом, благодаря чему состав может проводить электрический ток.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447480   (93018) от 11.02.2012
+
+Sir Charles Thompson - Hey There: The Definitive Black & Blue Sessions (1999) [APE|Lossless]<Bop, Swing>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Hour
+02. Bernie's Tune
+03. Bop This
+04. Everybody Blues (take 2)
+05. Hey There
+06. Gee Baby, Ain't I Good to You
+07. Stolen Sweets
+08. It's Almost Like Being in Love
+09. Everybody Blues (take 3)
+10. Russian Lullaby(   Читать дальше...   )1999Жанр: Bop, SwingПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450857   (93017) от 11.02.2012
+
+VA - Лучшая 100ка хитов радиостанций Зарубежный (2012) [MP3|256 kbps]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01 Dan Balan - Freedom
+02 Mr Kingsize feat Dr Yugo - Le Papapa Style (Dj Ozeroff & Dj Sky Radio Edit)
+03 Chapel Club - Surfacing
+04 Shahzoda feat. Akcent - All Alone
+05 Chris Parker - Space
+06 Alexis Jordan - Good Girl
+07 David May & Kelvin Scott - I ll Be Watching You
+08 Enrique Iglesias & Jennifer Lopez - Mouth 2 Mouth
+09 Kelly Clarkson - Hello
+10 Randi - Anybody(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:58:01
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450679   (93016) от 11.02.2012
+
+Журнал | Любимые цветы №1 [январь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Журнал, который пишет о цветущих растениях дома и сада, а также рассказывает о ландшафтном дизайне, фитодизайне, искусстве бонсаи. Читатели делятся опытом, профессионалы советуют.январь 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8B5D0AA343961621DAA67977AC2BB4E6491D72
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450935   (93015) от 11.02.2012
+
+VA - Русский Club (2012) [MP3|224 kbps]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Steel Deluxe - Сердце Открой (Johan K Remix)
+02. Макsим - Как Летать (Dj Shevtsov & Alex Menco Remix)
+03. Иракли Vs. Бьянка - Белый Пляж (For People Remix)
+04. Дискотека Авария - The Диско 10-Х (The Disco Of 10th)
+05. Рома Жуков И Паола - Переливы (Dj Vengerov Club Remix)
+06. Время И Стекло - Серебряное Море (Valentin Rich Remix)
+07. Доминик Джокер - Если Ты Со Мной (Paul Vine Remix)
+08. Света - Супер Спортсмен (Dj Jump Radio Version)
+09. Юлия Савичева - Сердцебиение (Gennady Adamenko Remix)
+10. Dj Vengerov Feat. Слава И Стас Пьеха - Я И Ты (Extended Remix)2012Жанр: Dance, ClubПродолжительность: 07:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1294386AF5B5F38D19B5710A07590AE8C907612C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450818   (93014) от 11.02.2012
+
+Красная стена (2007) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_93014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм "Красная стена" рассказывает о трагическом периоде в истории Русской Православной Церкви, начавшемся сразу после Октября семнадцатого года. На основании архивных документов показана хроника массовых репрессий священнослужителей в России и на территориях Липецкого края. В скорбном списке - правящий архиерей, первый епископ Липецкий Уар, простые приходские священники, иноки мужских и сестры женских монастырей, юродивые и блаженные.
+
+В девятнадцатом году были осквернены мощи святителя Тихона Задонского, одного из самых почитаемых отцов Церкви. По личному указанию Ленина в Задонск приезжал кинооператор, который организовал инсценировку вскрытия святыни, подлог. Это была первая советская агитка, которой долгие годы пользовались атеисты.
+
+Красная стена далеко протянулась в Липецком крае. В областном архиве хранятся данные о репрессированных священнослужителях только за десять лет. 818 дел - приговоров, человеческих жизней, загубленных судеб. Но это не вся правда. Большинство дел утеряно (   Читать дальше...   )Жанр: ДокументальныйРежиссер: В. СтепаненкоПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CA3DB0AFDAE611C463357BDC9D920B241BE553
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450487   (93013) от 11.02.2012
+
+VA - Drum Time 3 (2012) [MP3|320 kbps]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Zion - Midnight Panic (Safra Remix)
+02. Cooh - Moscow (Original Mix)
+03. High Contrast feat Tiesto & Underworld - The First Note Is Silent (Original Mix)
+04. L Plus – Sound Of Noise (Original Mix)
+05. Mustard Pimp - Catch Me (Feat. Alec Empire - Counterstrike Remix)
+06. Optiv - Stereotype (Original Mix)
+07. Paimon & Place 2B - Incidious (Original Mix)2012Жанр: Drum & BassПродолжительность: 01:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC7321BB411FC1751B11B4886B637E831493884
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450664   (93012) от 11.02.2012
+
+Sensogram - Parallel Minds (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_93012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:40
+ 02. Flashing Lights 07:06
+ 03. Vivid Vision 08:01
+ 04. The Process Starts 06:52
+ 05. Everlasting 07:58
+ 06. Parallel Minds 08:19
+ 07. Not A Dream 06:58
+ 08. Imagination 07:31
+ 09. Changes 07:11
+ 10. The Healer 06:242012Жанр: Psychedelic / ProgressiveПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6650716112DFC8A6E15C8E24D959FAF402ECEB0D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450953   (93011) от 11.02.2012
+
+Журнал | Автоцентр №7 [февраль 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+"Автоцентр" - еженедельный журнал полностью посвящен миру автомобилей. Основные рубрики: Автосалон, Автополигон, Концепции, Авторынок, Автобизнес, События и выставки, Практические технические и юридические советы, Спорт и другое.февраль 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20EEF81481AC8B3E9F6D8ED7F71E14A77E92612
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450267   (93010) от 11.02.2012
+
+VA - Лучшая дискотека страны #14 Русский (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+2011Жанр: PopПродолжительность: 11:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D64B473E3EB5DF1328FFA77BB99304ECEBD70B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450621   (93009) от 11.02.2012
+
+[Wallpapers] Обои для Рабочего стола. Архитектура 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Архитектура
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE3D70C5FB67DDB286B066502EC3FC3A3401F82
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450639   (93008) от 11.02.2012
+
+[Wallpapers] Городские пейзажи.
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Городские пейзажи для Рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CF33092AB1C1E6203B6CE5D9F1F8AB246BE1B0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450650   (93007) от 11.02.2012
+
+[Wallpapers] Обои для Рабочего стола. Автомобили 8
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Автомобили в фармате Full HD.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1196742CAB429BABCDCC857BCAA9ACA5FF0A327
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450630   (93006) от 11.02.2012
+
+[Wallpapers] Обои для Рабочего стола. Архитектура 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Архитектура.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65E805A0506EE5961D522679D6CD5FA50EFD1B4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450844   (93005) от 11.02.2012
+
+Ричард Пратер | Распятая плоть [2012] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Страстные женщины, холодный расчет, гипноз и в центре всего этого крутой детектив Марк Логан — предтеча знаменитого Шелла Скотта (главного героя последующих романов Пратера). Все последующие события Вы узнаете прослушав аудиокнигу до конца, ведь только так вы сможете насладиться, в полной мере, книгой детективного жанра.Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB8C3DF2F531021F47FB86628E222F8E2E3ED12
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450628   (93004) от 11.02.2012
+
+Interactive Noise - All Ears On (2012) [MP3|320 kbps]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_93004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interactive Noise - Vienna (original mix) 06:51
+02. Interactive Noise - Rewire (original mix) 07:55
+03. Interactive Noise - Play (original mix) 06:35
+04. Neelix - Adaption (Interactive Noise remix) 07:31
+05. Interactive Noise - Vice (original mix) 07:45
+06. Interactive Noise - Born To Break (original mix) 08:222012Жанр: Psychedelic / ProgressiveПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3157EDB3F190C2698EBBAD4FA165E3589B346B76
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450644   (93003) от 11.02.2012
+
+[Wallpapers] Обои для Рабочего стола. Автомобили 6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Автомобили в фармате HD.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174C5FC083D7099419690253AD8C2F862C3FD913
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450928   (93002) от 11.02.2012
+
+[Wallpapers] Desktop Wallpapers Pack 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 3
+Название: Desktop Wallpapers Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9470491AA04BF11713ADBA7411D39E29BC9F661
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450735   (93001) от 11.02.2012
+
+VNP - Trance Traveling 22 (2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Heikki L & Tom Fall - Ordinary World (Original Mix)
+02. Javah feat. Mimi Boheme - Waiting (Dub Mix)
+03. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
+04. Neev Kennedy - The Unknown (DNS Project Extended)
+05. Hannah - Falling Away (Protoculture Remix)
+06. Bobina - Diamond Hell (Original Mix)
+07. Alexander Popov - Elegia (Original Mix)
+08. Wiegel Meirmans Snitker - Nova Zembla (Armin van Buuren Remix)
+09. Ralphie B. - Massive (Airtight Remix)
+10. Conrad Winged & Ascania - Lighthouse (Martin Libsen Remix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B935CB500EE7AAE612D1DA777797AB192C37F5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450624   (93000) от 11.02.2012
+
+[Wallpapers] Обои для Рабочего стола. Автомобили Jaguar
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Автомобили Jaguar
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130165D14A7A29E123CA4E9D0FF6B4E83DCF4CC1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450574   (92999) от 11.02.2012
+
+Пусть говорят - Рана ветерана (09.02.2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«Пусть говорят» - ток-шоу Андрея Малахова - корифея яркого и феерического вечернего эфира. Гости программы «Пусть говорят» интересны и знамениты, обсуждаемые темы - актуальны и оригинальны. Участники шоу оставляют скучные фразы вне съемочной площадки и вступают в азартные дебаты.
+
+Программа претендует на звание информационно - аналитической, потому дискуссии не менее содержательны, нежели эмоциональны. «Пусть говорят» - место совершения настоящих метаморфоз - политики превращаются в простых людей, а простые люди - в политиков. О чем бы ни шел разговор, право голоса имеет каждый.Жанр: ТВ-ШоуТелекомпания: Россия, Первый каналПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500DB339B3BE3A68E274648EA52710EC8E32E070
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450733   (92998) от 11.02.2012
+
+VA - Премьера новых хитов (2012) [MP3|256-320 kbps]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Kelly Clarkson - What Doesn'T Kill You (Stronger)
+02. Aura Dione - Geronimo
+03. Dj Sebastien - Moonlight (Dfm Edit Id)
+04. Maison & Dragen - Rio De Janeiro (Radio Edit)
+05. Mike Posner - Looks Like Sex
+06. Проект 23 - Не Враг И Не Любимый
+07. Nickelback - When We Stand Together
+08. Shogun - Lotus (Original Mix Edit)
+09. Aura Dione - Geronimo (The Disco Boys Rmx Edit)
+10. Nikita - 2012 (Dj Sergey Fisun Rmx)2012Жанр: Pop, DanceПродолжительность: 05:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A84215CB810EAA5DA1A58B1DFF7C49AD6C48251
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450572   (92997) от 11.02.2012
+
+"Говорим и показываем" с Леонидом Закошанским - Смерть на двоих (09.02.2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Есть проекты, в которых много говорят. Ну и пусть говорят. А в ток-шоу на НТВ - говорят и показывают. В прямом эфире, на глазах у всей страны! Только актуальные и провокационные темы. Только злободневные события и их участники. Правда и только правда. "Говорим и показываем" с Леонидом Закошанским - это ежедневное информационное ток-шоу с элементами специального расследования. Темой программы всегда становится самая обсуждаемая новость страны.Жанр: ТелепередачаТелекомпания: НТВПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2096BF30981C528D1D535FC2CF22B4683390FBF0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448607   (92996) от 11.02.2012
+
+Twilight Ophera - 4 альбома (1997 - 2006) Дискография [MP3|320 kbps]<Sympho Black/Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01-Crown of Thorns
+02-Blessed to Forget
+03-The Moon is Your Lover (Darkness is Thy Kingdom Part I)
+04-Queen of the Night (Darkness is Thy Kingdom Part II)
+05-Shadowdancer
+06-Opera 666: The Whore
+07-Wasted
+08-Storms of Silence1997 - 2006Жанр: Sympho Black/Death MetalПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72FE419B753C5C2D07164D1D268507B582AEAAC6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450924   (92995) от 11.02.2012
+
+[Wallpapers] Desktop Wallpapers Pack 1
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 1
+Название: Desktop Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDBA2B38738E88B3EFF23FBE50399E61B92F015
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450569   (92994) от 11.02.2012
+
+VA - Хитовая дискотека по-русски (2012) [MP3|256 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. DJ Nu - Sky feat. Валерия Фоменко - Прочитай Любовь (Radio Mix) (3:21)
+2. MainstreaM One - Друг Друга Любить (4:05)
+3. DJ Настя Крайнова - Беги За Мной (3:46)
+4. Лора Line - Луч Света (2:46)
+5. Пропаганда - До Луны На Метро (4:05)
+6. Марина Девятова - Только Б Не Влюбиться (3:13)
+7. Денис Майданов - Вечная любовь (3:22)
+8. Женя Юдина - Ты Нужен Мне (Evgeny S Remix) (4:39)
+9. Seventeen - Танцуй, Даже Если Это Конец Света (Volta Remix) (3:47)
+10. Ugo feat. Talila & Снейки - Вечерний Киев (4:06)2012Жанр: PopПродолжительность: 06:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDBC901308E2CA3E16F0688BBD06C5B78882B57C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,0 +1,723 @@
+###  Публикация: 1416697   (365405) от 17.10.2020
+
+Moloko - I Am Not a Doctor (1998) [AAC|~288 Kbps] <Downtempo, Dance-pop, Electro>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Flipside (4:12)
+02. Knee Deepen (5:40)
+03. Blink (4:24)
+04. Stylophone Pet (1:07)(   Читать дальше...   )Жанр: Downtempo, Dance-pop, ElectroПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962DF2CC7948C1E49D0845489A30543D2F8F99DA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255173   (365404) от 17.10.2018
+
+Затерянные в стране Оз / Lost in Oz (2016) WEB-DL [H.264/1080p] (Сезон 1, Серии 13 из 13)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал начинается с того, что двенадцатилетняя Дороти Гейл и ее верный пес Тото отправляются на поиски Доброй Глинды, в надежде, что она сможет дать им магию, необходимую для возвращения домой. По пути они встречают удивительных друзей и вместе отправляются за приключениям, которые они и не могли представить.Производство: США, AMAZONЖанр: Детский, Фентези, Приключения, Компьютерная анимацияРежиссер: Джа Хонг КимВ ролях: Эшли Боттчер, Ника Футтерман, Хорхе Диас, Крис Кокс, Кит Фергюсон, Стефен Стэнтон, Фред Татаскьо, Кэт Суси, Дженнифер Хейл, Грэй ДеЛислПеревод: Дублированный (Selena International)Субтитры: Русский, Арабский, Китайский (упрощенный), Китайский (традиционный), Немецкий, Испанский, Испанский, Французский, Хинди, Индонезийский, Итальянский, Корейский, Голландский, Польский, Португальский, Турецкий - (Full); Английский (SDH)Продолжительность: 13 x 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:620E9B3355EC35A79F31083A3CBC1853ADDBDB8B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416647   (365403) от 17.10.2020
+
+Everything In Slow Motion - Influence (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apollo [00:04:21]
+02. Influence (feat. Aaron Stone) [00:03:33]
+03. Satellite [00:03:46]
+04. Choke [00:04:29](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63729B17B0AE9A4FC9431F80308CDDF59715ACD6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255385   (365402) от 17.10.2018
+
+RESONANCE OF FATE / END OF ETERNITY (2018) [Multi] (1.0) License CODEX [4K / HD EDITION]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта симфоническая RPG, в которой вы можете изменить судьбу мира, была переиздана в 4K / HD EDITION. Летите по воздуху и наслаждайтесь пылающими пушечными битвами в этой роковой сказке, на разрушенной планете.Тип издания: LicenseРазработчик: tri-AceЖанр: Action, RPG,  3rd Person, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английски, Немецкий и другиеЯзык интерфейса: Английски, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C86D2BE58D5109F4F54F209EAB0FE506A1F64CA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416826   (365401) от 17.10.2020
+
+Algoriddim djay Pro (Complete FX Pack) 2 v2.2.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Algoriddim djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2020Разработчик: algoriddim GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D380E0A91DFE28CAEEA7E4425EF87F6D2F575E04
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254899   (365400) от 17.10.2018
+
+В Windows 10 теперь можно использовать приложения с Android
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_365400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Microsoft анонсировала тесную интеграцию операционной системы Windows 10 с Android-устройствами. Как было объявлено на презентации в Нью-Йорке, теперь на "десятке" можно запускать и использовать любые приложения, изначально созданные под Android. Такая возможность была добавлена в обновление Windows 10 October 2018, вышедшее сегодня.Android-приложения (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416686   (365399) от 17.10.2020
+
+Donald Byrd - Slow Drag (1967) 1993, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Drag [9:47]
+02. Secret Love [3:59]
+03. Book's Bossa [6:53]
+04. Jelly Roll [5:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218AD2575CB7B5AE294471A03E5AE3D3414E92C0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255231   (365398) от 17.10.2018
+
+FL Studio Producer Edition 20.0.5.681 [En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365398.jpg" />
+</div>
+
+
+###  Подробнее
+
+FL Studio Producer Edition 20 - это новая версия одной из лучших программ для создания собственной музыки, с её помощью вы можете создавать собственные треки любого стиля. Программа имеет все необходимые функции для работы со звуком : запись, сведение, мастеринг а также имеет большое количество синтезаторов и виртуальных плагинов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE436FD8AFB01DBF8E0A8507D044C65A060573F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416721   (365397) от 17.10.2020
+
+Moloko - Sing It Back (1999) [AAC|~288 Kbps] <Deep House, Electro>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sing It Back (Tee's radio mix) (3:29)
+02. Sing It Back (Boris Musical mix edit) (4:40)
+03. Sing It Back (Tee's Freeze mix) (9:05)
+04. Sing It Back (B.M.R. Clubcut mix) (7:15)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6876358CC6A88F46C5D61EE55A5CD1FB78BF40
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 130283   (365396) от 17.10.2018
+
+Зак и Мири снимают порно / Zack and Miri Make a Porno (2008)  BDRip [H.264/720p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зак и Мири — два лучших друга, которые занялись созданием порнографического кино для того, чтобы срубить наличных. По ходу сьёмок, Зак и Мири понимают, что они испытывают большие и сильные чувства друг к другу, чего они даже не могли представить.Производство: США / Blue Askew, The Weinstein Company LLC, View Askew ProductionsЖанр: Комедия, МелодрамаРежиссер: Кевин СмитАктеры: Элизабет Бэнкс, Сет Роген, Крэйг Робинсон, Джейсон Мьюз, Трейси Лордс, Дженнифер Швалбах Смит, Джефф Андерсон, Кэти Морган, Брэндон Рут, Джастин ЛонгПеревод: Дублированный, Одноголосый закадровый (Немахов, LexiKC)Продолжительность: 01:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9857892748312D6306792B13A38B289B9995F23
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255036   (365395) от 17.10.2018
+
+Безумный мир / Mad World (2018) WEB-DLRip [MVO] [AD]
+
+>>След.
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365395.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ближайшем будущем человечество вымирает от вируса бесплодия, распространившегося вместе с метрическими чипами корпорации Био-корп, захватившей власть в США и назначившей на пост президента Майкла Мэдсена. Группа ученых, пытаясь сбежать из тоталитарного режима, случайно вместо телепортации изобретает машину времени, которая возможно является ключом к спасению всего (   Читать дальше...   )Производство: Великобритания / Runaway FeaturesЖанр: Фантастика, боевикРежиссер: Пол ТантерАктеры: Майкл Копон, Саймон Филлипс, Шина Колетт, Лео Гудман, Рич Пол, Шале Лизетт Брэннан, Дэйв Хоббс, Шери Ларис, Роберт Шеперд, Питер ВудвордПеревод: Многоголосый закадровый, любительский (КОЛОБОК)Субтитры: ОтсутствуютПродолжительность: 01:25:33Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639BF966579CE5831FEAACD04679A7F0000146F1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248378   (365394) от 17.10.2018
+
+The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-103895/dlc) Repack xatab
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте The Bard's Tale IV: Barrows Deep — продолжение одной из самых известных классических игр в жанре RPG. Проявляйте креативность, осваивая разнообразные тактики боя, решайте головоломки, ищите сокровища, получайте различные бонусы и наслаждайтесь игрой.Тип издания: RepackРазработчик: inXile EntertainmentЖанр: RPG, 1st and 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917CC66A1CCCBF5E585269933017EC128ECFDDCD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255287   (365393) от 17.10.2018
+
+Windows 7 Pro VL SP1 Lite v.8.18 by naifle (x86-x64) (2018) [Ru]
+
+>>3
+>>22
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Облегчённая сборка объединённых разрядностей сделана на основе оригинальных образов:
+ru_windows_7_professional_with_sp1_vl_build_x86_dvd_623503,
+ru_windows_7_professional_with_sp1_vl_build_x64_dvd_622441,
+с автоматической активацией и полуавтоматической установкой.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530C894609721477DC41A2E19C2BC5B11A213603
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416676   (365392) от 17.10.2020
+
+Moloko - Do You Like My Tight Sweater? (1995) [AAC|~292 Kbps] <Downtempo, Dance-pop, Electro>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fun for Me (5:08)
+02. Tight Sweater (0:16)
+03. Day for Night (5:23)
+04. I Can't Help Myself (5:45)(   Читать дальше...   )Жанр: Downtempo, Dance-pop, ElectroПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937933E53E22DA8D9EBE49D281C9C7106747273B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416681   (365391) от 17.10.2020
+
+Róisín Murphy - Take Her Up to Monto (2016) [AAC|~286 Kbps] <Downtempo, Funk / Soul, Electro>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mastermind (6:36)
+02. Pretty Gardens (5:07)
+03. Thoughts Wasted (5:22)
+04. Lip Service (4:27)(   Читать дальше...   )Жанр: Downtempo, Funk / Soul, ElectroПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF800A79F7B0C6CA47630C881021CB627C4B68C2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416648   (365390) от 17.10.2020
+
+Chaos Divine - Legacies (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instincts [00:04:04]
+02. No Saviour (Rise & Fall) [00:04:19]
+03. Unspoken [00:04:57]
+04. Only Son [00:03:40](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568750EDC130F5246416207C771574C29424632F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416548   (365389) от 17.10.2020
+
+Spaza - 3 Albums (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bantu Education (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:02:28]
+02. Sizwile (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:08:28]
+03. Mangaliso Sobukwe (feat. Nonku Phiri, Malcolm Jiyane, Gontse Makhene & Ariel Zamonsky) [00:01:32]
+04. Solomon, Tsietsi & Khotso (feat. Nonku Phiri, Malcolm (   Читать дальше...   )Жанр: Jazz, ExperimentalПродолжительность: 3 CD, 02:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7441526EA750618A06968DCD1B4AEB896EEC58BE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416536   (365388) от 17.10.2020
+
+TIRDUS - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disconnection [00:03:58]
+02. Sinner [00:04:21]
+03. Tom Cruise [00:03:07]
+04. Autumn Spirit [00:03:17](   Читать дальше...   )Жанр: Alternative, Progressive MetalПродолжительность: 2 CD, 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88373A8BB88E7033ADE2F14C9CD12684DA539525
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416682   (365387) от 17.10.2020
+
+Tito Puente And His Orchestra - Mambo Macoco (1949 - 1951) 1992, Tumbao Cuban Classics [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mambo, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mambo la Roca [2:37]
+02. Lo Dicen Todos [3:19]
+03. Babaratiri [3:04]
+04. A Burujon Punao [3:14](   Читать дальше...   )Жанр: Latin Jazz, Mambo, Big BandПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B84FB137CB54287BFB052FA5481BB8AEAA7DE2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416714   (365386) от 17.10.2020
+
+MediaHuman YouTube Downloader 3.9.9.47 (1510) RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365386.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaHuman YouTube Downloader - удобное приложение с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер с YouTube, и сохранить его на ПК в любом доступном формате. Достаточно добавить ссылку на ролик, выбрать качество скачиваемого видео, указать необходимый формат и начать загрузку. Кроме того программа может отслеживать буфер обмена, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C468FFF50BAFB1E3710BD4B4157C97F028695C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416713   (365385) от 17.10.2020
+
+Music Magic - One Man Lady (1981) 2005, Cool Sound [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Jam (3:33)
+02. One Man Lady (4:07)
+03. Let's Get It Together (3:09)
+04. I Wonder (4:40)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B774970E3673B73A4F8B92DCC349C233AA5DFD7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416516   (365384) от 17.10.2020
+
+Gone are the Days - There (2019) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here or There? [00:01:03]
+02. Gone Are the Days [00:03:36]
+03. Breakthrough [00:03:22]
+04. Involved [00:03:41](   Читать дальше...   )Жанр: Metalcore, Alternative MetalПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C4E8F232FC412FADB0667ADFCC73F2D3B50C9D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416521   (365383) от 17.10.2020
+
+Cristoph - The Anjunadeep Edition 324 (2020-10-15) [MP3|320 Kbps] <Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365383.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cristoph & ADZ ft. Artche - Strangers
+2. Cristoph - ID
+3. Cristoph - Twilight
+4. Cristoph - Hypnotising(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42CF539D5B2F9B5D6D1B12560BEDFC7BF1915DA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416506   (365382) от 17.10.2020
+
+Pav - Behind The Black Stripe (2020) [FLAC|Lossless|WEB-DL] <Alternative Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Cold City [00:04:00]
+02. You Are Not Around [00:03:08]
+03. New Reality [00:06:14]
+04. 1995 [00:05:15](   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1001478853951C16F1DA7D512FF76C22BCA02B9C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416771   (365381) от 17.10.2020
+
+Валентин Постников | Удивительные похождения Нечистой Силы (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365381.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аудиокниге «Удивительные похождения нечистой силы» студии АРДИС вас ждут веселые и смешные приключения лесных жителей – Бабы-Яги, Кикиморы Болотной, Водяного и Лешего, впервые за последние сто лет отправившихся в город в гости к Домовому. Оказывается, вместо телег там ездят машины, а на месте деревянных домов стоят высотные здания. Страшно и непривычно им в современном (   Читать дальше...   )Жанр: Детская литература/Сказка/ПриключенияПродолжительность: 03:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D754BA14A60F5D801BF32D059C65DFC5A419208E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416848   (365380) от 17.10.2020
+
+AnyTrans for iOS 8.8.0.202010012 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_365380.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
+
+AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2020Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFFE803A68F5B6061A8D82AA737D4DCBB4B31FC4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

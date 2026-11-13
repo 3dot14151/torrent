@@ -1,0 +1,718 @@
+###  Публикация: 1856046   (1058565) от 26.02.2026
+
+Возвращение в Сайлент Хилл / Return to Silent Hill (2026) WEB-DL [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Сандерленд тяжело переживает разлуку со своей возлюбленной и получает таинственное письмо, которое приводит его в город Сайлент Хилл. Джеймс надеется найти её там, однако город сильно изменился под влиянием некой зловещей силы. Джеймс исследует Сайлент Хилл и сталкивается с пугающими существами и образами — как знакомыми, так и незнакомыми. Сомневаясь в своём (   Читать дальше...   )Производство: Франция, США, Великобритания, Германия, Сербия, Япония / Ashland Hill Media Finance, Bloody Disgusting, Davis-Films, Electric Shadow Company, The, Hassell Free Production, Konami, Maze Pictures, Supernix, Work in ProgressЖанр: ужасы, драмаРежиссер: Кристоф ГанАктеры: Джереми Ирвин, Ханна Эмили Андерсон, Иви Темплтон, Пирс Иган, Роберт Нэйрн, Никола Алексис, Ив Маклин, Эмили Кардинг, Мартин Ричардс, Ховард СаддлерПеревод: Дублированный (Flarrow Films)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4EA6EE9474EF248DD820B957126DAE93A223A7F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855997   (1058564) от 26.02.2026
+
+FlatOut: Ultimate Carnage (2008) [Multi] (1.0) License RELOADED
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058564.jpg" />
+</div>
+
+
+###  Подробнее
+
+FlatOut: Ultimate Carnage поднимает разрушительные гонки на новый уровень костоломной бойни. FlatOut: Ultimate Carnage - аркадные разрушительные гонки в лучшем виде, наиболее экстремальные с физической моделью, приближенной к реальности, тремя различными игровыми режимами, которые предлагают игрокам широкое разнообразие многопользовательских и одиночных возможностей.Тип издания: LicenseРазработчик: Bugbear EntertainmentЖанр: ГонкиЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5B3725BCBA69476378304557DF50C959838063
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856023   (1058563) от 26.02.2026
+
+Need for Speed: Underground (2003) [Multi] (1.4.0) Scene Spirity
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир нелегальных гонок по ночным улицам. Мир ярких автомобилей. Мир неординарных личностей. Мир колоссальных призовых сумм для победителей… На что тратятся эти деньги? Конечно же, на свою любимую машину, на нее и только на нее!Тип издания: SceneРазработчик: EA Black BoxЖанр: ГонкиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, ИтальянскийЯзык интерфейса: Английский, Немецкий, Французский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B52AC7F1459CAFB275786B5E1DD002E3249A42B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856055   (1058562) от 26.02.2026
+
+B.B. & The Blues Shacks - Blues Is A Stew (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  That Kind Of Woman (2:13)
+02.  Till The Break Of Dawn (3:07)
+03.  Dead Love (3:42)
+04.  Blues Is A Stew (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C557251ACE9212F11558C6D78F58F034F77FB6A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856056   (1058561) от 26.02.2026
+
+Duke Robillard feat. his All Star Band - Blast Off! (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When I Get Lucky (2:51)
+02.  I'll Be Glad When You're Dead (You Rascal You) (5:49)
+03.  Feel My Cares (4:44)
+04.  Lowdown (4:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A388076112CC35A53BBF026C03CED44E74A3AA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856057   (1058560) от 26.02.2026
+
+Ed Alstrom - This Idea of Humanity (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Put You First (3:28)
+02.  All I'm Gonna Do (3:43)
+03.  Humans (3:39)
+04.  Nothing Good to Say (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12131B8A3C63910D4AC6483247A77068A8D6B1D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856058   (1058559) от 26.02.2026
+
+Лепила (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-16 из 16)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058559.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прошлом Сергей Рашидов — успешный хирург, которому по стечению обстоятельств пришлось кардинально сменить профессию и даже имя. Теперь он — дворник Джура, вынужденный жить по поддельным документам. Во время утренней уборки он находит раненого бандита по кличке Конрад. Преисполненный врачебным долгом, Рашидов оказывает ему первую помощь, а после тайно лечит в своей (   Читать дальше...   )Производство: Россия | Всемирные русские студииЖанр: детектив, криминалРежиссер: Денис КарроАктеры: Никита Панфилов, Сергей Борисов, Роман Грибков, Иван Моховиков, Анастасия Сапожникова, Станислав Беляев, Самад Мансуров, Даниил Толстых, Евгения Синицкая, Джалил Асретов и др.Субтитры: РусскиеПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11980F3902FB906FE40AE6D1436B365AFC5AC3F7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856061   (1058558) от 26.02.2026
+
+VA - Jazz Bar Vibes – Smooth Jazz for Relaxing Evenings (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Massimo Faraò - Your Song (2:37)
+02.  Massimo Faraò Trio - Endless Love (3:25)
+03.  Massimo Faraò Trio - Candle in the Wind (2:22)
+04.  Massimo Faraò Trio - The Entertainer (1:59)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21733D8D38EDE15DC3921160E5B200369F4E1625
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855985   (1058557) от 26.02.2026
+
+Juiced 2: Hot Import Nights (2007) [Multi] (1.0) License DETONATiON
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Являясь продолжением Juiced, эта версия добавляет больше к оригиналу, давая игроку углубленный взгляд на культуру тюнинга автомобилей и дрифтинга, погружая его в аутентичную музыку, используемую на мероприятиях, а также в женщин-моделей, которые демонстрируются рядом с автомобилями.Тип издания: LicenseРазработчик: Juice GamesЖанр: ГонкиЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282BB8C7FC95B6166BE682057A9CAE0AED2BC684
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856063   (1058556) от 26.02.2026
+
+VA - Cafe Deluxe Chill Out - Nu Jazz / Lounge, Vol. 12 (2025) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Nu Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soundset City - Dancing In My Dreams (3:35)
+02.  Nightview - Play Games (2:37)
+03.  Jean Mare - Playground (2:56)
+04.  Soundset City - Taxi Driver (2:58)(   Читать дальше...   )Жанр: Chill Out, Nu Jazz, LoungeПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBED336AB97FED8E393A7DA2D93B5AEE2A6D0EDB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856065   (1058555) от 26.02.2026
+
+Проекты - VideoHive - Rhythmic Opener - 61798162 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rhythmic Opener — это смелый и стильный интро, призванный привлечь внимание динамичными движениями, эффектной типографикой и элегантной городской атмосферой. Идеально синхронизированный с музыкой, этот интро создает стремительный визуальный эффект с помощью больших кинетических заголовков, красных монохромных наложений и плавной анимации появления букв.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D43282153828CD6CA6C059CF3BBA48592FE6B2F2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856066   (1058554) от 26.02.2026
+
+Evyatar Kirsh - Comfort or Solution (2026) [FLAC|Lossless|WEB-DL|tracks] <Rhythm and Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  McGroove (5:40)
+02.  Save Me (5:19)
+03.  That Machine (4:22)
+04.  No Pressure (5:38)(   Читать дальше...   )Жанр: Rhythm and BluesПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E042E40CB8E36BE114E3880868072333640BD87B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856067   (1058553) от 26.02.2026
+
+Растровый клипарт - Adobe Stock - Valentine Concept Hearts #2 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Стоковые изображения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добавьте каплю романтики и высокого стиля в свои проекты с эксклюзивной коллекцией Valentine Concept Hearts. Этот набор объединяет классическую эстетику, уютные образы и современный глянцевый дизайн, идеально подходящий для создания контента ко дню святого Валентина и не только.Формат: PNGРазрешение файлов: 2048x2048 - 16000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A9F2ABEC90E312F3965C9190DECF9911166094
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856068   (1058552) от 26.02.2026
+
+Izzo Blues Coalition - Rise Again (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Go Cat Go (4:44)
+02.  Tickle Me Pink (3:28)
+03.  Mea Culpa (4:19)
+04.  Rise Again (6:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D78FE329D1ECC503877FB96A9E6C1B0C7FF139
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856069   (1058551) от 26.02.2026
+
+J Lee and the Hoodoo Skulls - Bad Love (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bad Love (3:39)
+02.  Lonely Man (3:10)
+03.  Big Desire (3:25)
+04.  You Got Me Hooked (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0816D5C28A6471DB06DAB212EFB9E5359A371836
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856070   (1058550) от 26.02.2026
+
+JB - My Mississippi Roots (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Get up and Go Blues (4:29)
+02.  Gotta Make a Change (4:20)
+03.  Brown Eyed Blues Man (4:13)
+04.  When Did Crime Become Legal (2:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FF588BF20896DB14DEB45D02C8CDB143A28DAB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856071   (1058549) от 26.02.2026
+
+Jenna Quill - Neon After Midnight (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cigarette Glow (2:11)
+02.  Faded Polaroid Sky (1:34)
+03.  AM (4:28)
+04.  Midnight Balcony (2:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430EFB423134E0681C12601524DD7008D134A541
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856073   (1058548) от 26.02.2026
+
+Kevyn Smith - BLUESKYES (part 2) (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'll Be There (3:19)
+02.  Twelve String (3:51)
+03.  Call To Dark (4:34)
+04.  Jimmie's Tears (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5DCF41A6DF728A36779AABDC6AB50749F991C9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856074   (1058547) от 26.02.2026
+
+Redfish Blues Band - Together Is Better (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soho Rising (Girls, Girls, Girls) (4:10)
+02.  Something On Your Mind (4:07)
+03.  Together Is Better (4:51)
+04.  Move On (5:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9C2342005E0BD44B21DAA1F30E3250486BC4D5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856076   (1058546) от 26.02.2026
+
+The Record Company - Give It Back To You (Deluxe Edition) (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Off The Ground (4:15)
+02.  Don’t Let Me Get Lonely (2:34)
+03.  Rita Mae Young (4:22)
+04.  On The Move (4:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEB0DAAB4DB0A4DCCF3D64B414BE4AB87FF946A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856072   (1058545) от 26.02.2026
+
+Driftwood (2023) [Ru/Multi] (1.0.6-h1) Repack Let'sРlay
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы думаете, что ленивцы медлительны? Эдди готов доказать вам, что вы ошибаетесь. В Driftwood вы испытаете высокоскоростной спуск на лонгборде в роли аэродинамического ленивца. Дрифтинг - это суть игры, так как он поможет вам найти идеальный баланс между скоростью и контролем. Дрифтуйте по крутым поворотам, чтобы избежать столкновения с машинами и препятствиями, и (   Читать дальше...   )Тип издания: RepackРазработчик: Stoked Sloth InteractiveЖанр: Экшены, Казуальные игры, Инди, Гонки, Симуляторы, СпортЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1731528F7E9BA83D5A20D5F57D74ED39FC840FE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856075   (1058544) от 26.02.2026
+
+Vivaldi 7.8.3925.74 include standalone [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF8A3C6B11773693457AD4D21DE81FF8E294985A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856077   (1058543) от 26.02.2026
+
+Krita 5.2.16 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Krita – профессиональный бесплатный растровый графический редактор как для любителей, так и для профессиональных художников и иллюстраторов, использующих графические планшеты в процессе создания цифровой живописи как в домашних условиях, так и в игровых студиях, в VFX мастерских и дизайн-студиях.
+Программа имеет широкий функционал. Редактор поддерживает многослойную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52877E4C49AB7C16C07AD8C01902EFCB77DF734B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856080   (1058542) от 26.02.2026
+
+QuickMemoryTestOK 5.33 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/015/save_picture_1058542.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickMemoryTestOK - небольшая, но эффективная утилита для быстрой проверки оперативной памяти на наличие ошибок.
+
+По словам разработчика, утилита также может быть использована для изучения поведения ПК при большом использовании памяти и определения того, является ли это причиной системных ошибок. Присутствует возможность выполнять индивидуальные тесты и отслеживать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B27E6E55803C2980FC0DB8A8EF2834E14FCABD9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856081   (1058541) от 26.02.2026
+
+Malwarebytes Windows Firewall Control 6.26.0.0 [Multi/Ru]
+
+>>Безопасность
+>>Firewalls
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malwarebytes Windows Firewall Control - утилита, с помощью которой, вы получите доступ к наиболее часто используемым опциям встроенного брандмауэра операционных систем Windows. После инсталляции программа располагается в системном трее и дает возможность эффективно управлять различными параметрами при помощи контекстного меню, например можно быстро разрешить/запретить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1DCFF188F8F0BFA5DA122F6B685090C8B1C18A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856084   (1058540) от 26.02.2026
+
+Outbreak Island (2025) [Ru/Multi] (Update 9/dlc) Repack Let'sРlay [Supporter Edition] [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1058540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочное излучение свело с ума население острова Эрлсен. Власти изолировали регион от внешнего мира и засекретили «инцидент». В роли детектива Говарда Чапмана вы тайно прибываете на остров, чтобы расследовать причины катастрофы. Пути назад нет. Всё, что остаётся – это выживать и исследовать.Тип издания: RepackРазработчик: Tiny MagiciansЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00758C68D7AB90F7843CFEBA0702B2280D940F01
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

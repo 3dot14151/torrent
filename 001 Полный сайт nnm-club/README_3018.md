@@ -1,0 +1,738 @@
+###  Публикация: 1478063   (1010699) от 17.06.2021
+
+Diesel Theory - Hidden from the Sun (2021) [MP3|320 Kbps] <Modern Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Fall Away [00:04:27]
+02. Furthest from God [00:04:15]
+03. Key Is Pain [00:02:30]
+04. Make Me Wise [00:04:33](   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478056   (1010698) от 17.06.2021
+
+Hacktivist - Hyperdialect (2021) [MP3|320 Kbps] <Rap-Metal, Progressive Metal. Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anti Emcees [00:04:56]
+02. Luminosity [00:03:16]
+03. Lifeform [00:04:43]
+04. Armoured Core (feat. Kid Bookie) [00:04:07](   Читать дальше...   )Жанр: Rap-Metal, Progressive Metal. DjentПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073CFBD9F15FB2AAB290297765F08EF4E78F1AC9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477968   (1010697) от 17.06.2021
+
+Son of Sam - And the Monster Awoke​... (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Son of Sam (03:30)
+02. I Am (05:35)
+03. Mr. Sinister - Evil Minister (06:12)
+04. Depravity (03:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2598D2F0BB071810A0172596B4AABD4EFAB7D0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478015   (1010696) от 17.06.2021
+
+Repeat Eater - Deep Desert Dweller (2021) Touched Music [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Wildlife At Night (01:07)
+ 02. Muad'dib (05:18)
+ 03. Chakobsa (05:04)
+ 04. Riding Shai-Hulud (04:52)(   Читать дальше...   )Жанр: Electro, IDM, Acid, AmbientПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57937CE71ABED9143E3EE676FF61EDD0DB13BA14
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478067   (1010695) от 17.06.2021
+
+Warrel Dane - Praises To The War Machine (2021) Extended Edition [MP3|320 Kbps] <Progressive, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obey (feat. Jonny Smokes) (unplugged & live version) [00:03:17]
+02. Brother (feat. Jonny Smokes) (unplugged & live version) [00:03:22]
+03. Let You Down (feat. Jonny Smokes) (unplugged & live version) [00:03:52]
+04. A Very Good Year (feat. Jonny Smokes) (unplugged & live version) [00:03:18]Жанр: Progressive, Groove MetalПродолжительность: 2CD, 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D1E5935C66002C0E87E4672FA04458222C98F7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477825   (1010694) от 17.06.2021
+
+Golgotha - Locked Down but Alive in 2021 (Live) (2021) [MP3|320 Kbps] <Doom Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prelude - Caves of Mind (Intro) (Live) [00:01:17]
+02 - The Way to Your Soul (Live) [00:07:55]
+03 - Distorted Tears (Live) [00:04:25]
+04 - Enveloped in Fog (Live) [00:04:28](   Читать дальше...   )Жанр: Doom Metal, Melodic Death MetalПродолжительность: 01:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE84BA75D97F6C0F9D396E8523AA33E2360E7789
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478043   (1010693) от 17.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа A. 2-й тур. Турция — Уэльс (2021) HDTV [H.264/1080i-LQ]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года.
+16 июня 2021, среда. 19:00 МСК
+Группа A. 2-й тур.
+Турция — Уэльс(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: Русские (отключаемые)Продолжительность: 02:39:43
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477829   (1010692) от 17.06.2021
+
+Bengal - From Outer Space (2021) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - We're All Stardust [00:04:03]
+02 - They're Not Our Friends [00:03:35]
+03 - The Day the Earth Stood Still [00:04:49]
+04 - Planet of Fun [00:04:09](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E34E9D441557850102F8A6AF7C18FD5F436EBB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478038   (1010691) от 17.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа B. 2-й тур. Финляндия — Россия (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года.
+16 июня 2021, среда. 16:00 МСК
+Группа B. 2-й тур. Финляндия — Россия
+Стадион: Арена Санкт-Петербург (Санкт-Петербург, Россия), 24540 зрителей (36% при вместимости 68134)(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:58:02
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477892   (1010690) от 17.06.2021
+
+Minas - Rigid Adherence (2021) [MP3|320 Kbps] <Progressive Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Abomination Lead the Way [00:04:13]
+02 - Venereal [00:03:54]
+03 - Alleyways [00:03:45]
+04 - Rust in Your Veins [00:05:15](   Читать дальше...   )Жанр: Progressive Heavy Metal, Hard RockПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B41E34C1FC5BB6734C075639CEBBF478DC9582E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477905   (1010689) от 17.06.2021
+
+Heldmaschine - Lügen (2015) [FLAC|Lossless|image + .cue] <Neue Deutsche Härte, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Collateral (4:33)
+02. Schwerelos (6:12)
+03. Wir Danken Euch (4:22)
+04. Wer Einmal Lugt (4:03)(   Читать дальше...   )Жанр: Neue Deutsche Härte, Industrial MetalПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4208A787CD36CA7F7BCC61983E0D5049D2CFB42D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478080   (1010688) от 17.06.2021
+
+Tune-O-Matic (Тюноматик) - 3 Albums (2012-2021) [MP3|320 Kbps] <Russian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Часы (Колыбельная) [00:03:09]
+02. Предварительный анализ [00:06:40]
+03. Кинозал тюрьмы [00:05:23]
+04. Иди по воде! [00:04:40](   Читать дальше...   )Жанр: Russian RockПродолжительность: 3CD, 02:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E885DE8BFAFF6C40EC554F03490585083432B326
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477902   (1010687) от 17.06.2021
+
+Heldmaschine - Propaganda (2014) [FLAC|Lossless|image + .cue] <Neue Deutsche Härte, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chefsache (4:25)
+02. Menschenfresser (4:29)
+03. Todesspiel (3:11)
+04. Es Brennt (4:17)(   Читать дальше...   )Жанр: Neue Deutsche Härte, Industrial MetalПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B712425CF6DF50BD291116D2DE2CA1E524228F1C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478078   (1010686) от 17.06.2021
+
+Madeline Bell & The Swingmates - Girl Talk (1995) [FLAC|Lossless|image + .cue] <Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After You've Gone (5:09)
+02. Blue Monday (3:14)
+03. The Man I Love (3:14)
+04. Choo Choo'cha Boogie (2:20)(   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D988776FA554C7629AAC6AFB485D1108427318F4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478070   (1010685) от 17.06.2021
+
+Я.В. Вареньева | Обществознание. Мини-сочинение на ЕГЭ: интенсивная подготовка (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010685.jpg" />
+</div>
+
+
+###  Подробнее
+
+﻿Пособие поможет учащимся эффективно и в краткие сроки подготовиться к написанию мини-сочинения на ЕГЭ по обществознанию. В книге приводятся обзор критериев оценивания работы с пояснениями и рекомендациями, схема написания работы и модели готовых сочинений с подробным разбором. Кроме того, издание содержит обширный справочный материал, который будет полезен (   Читать дальше...   )Жанр: ЕГЭ/ОбществознаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FCE272B1CAF41E750E33CF0EC9F8922E44E2BB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478086   (1010684) от 17.06.2021
+
+FBackup 9.0.323 [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010684.jpg" />
+</div>
+
+
+###  Подробнее
+
+FBackup — это свободно распространяемое программное обеспечение для резервного копирования. Предназначена программа и для личного и для коммерческого использования. Она защищает важные данные, сохраняя их автоматически на любой USB / Firewire накопитель, локальную или сетевую папку. Резервное копирование данных может быть сжатым, при этом, используется стандарт сжатия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478047   (1010683) от 17.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа A. 2-й тур. Италия — Швейцария (2021) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года.
+16 июня 2021, среда. 22:00 МСК
+Группа A. 2-й тур.
+Италия — Швейцария(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356B3F1DAE92CFEE77D3120111E5B7E7A4142380
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477741   (1010682) от 17.06.2021
+
+Kevin Shields and The Creations - East of Olmsted (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Prayer for All (3:46)
+02. Burnin' (4:58)
+03. Buzz Me (3:50)
+04. Dealer Dies (5:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA894AB87515A5EC47ECCDB254C2E4DE3DDBBEC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477837   (1010681) от 17.06.2021
+
+Metalwings - A Whole New Land (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Whole New Land (08:24)
+02. Monster In The Mirror (05:56)
+03. Like A Willow Without Tears (05:39)
+04. I See Your Power (07:02)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A071153564BDF8F5FAA9FBF134AFDA9511FB20
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477738   (1010680) от 17.06.2021
+
+Colin Alvarez - Long Time Coming (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (3:11)
+02. Red (4:47)
+03. Got a Way (4:06)
+04. Im Running Away (3:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20ECF23FF002526F5F6662AF5B6C9B7211F7627
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477739   (1010679) от 17.06.2021
+
+Dirk Minzer's 3 Hombres - Modern Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Don't Have No Mercy (4:43)
+02. Heard It All Before (5:29)
+03. Home to You (3:41)
+04. I Saw You (4:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EAB25363E71F8930AF31B992D84693BFDAA1EA2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478057   (1010678) от 17.06.2021
+
+Леонс Перре. Оскар в ванне / Oscar au bain (1913) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение любовных похождений Оскара. На сей раз его дама сердца вздумала с ним шутить... Оказывается, что и во французском языке есть выражение "Иди ты в баню!" Только слово "bain" - это и баня, и ванна, и ванная... Вот эта двусмысленность и обыгрывается в фильме. ...В финале появляется сам Леонс Перре с добродушной улыбкой - само воплощение (   Читать дальше...   )Производство: Франция, GaumontЖанр: Комедия, короткометражный, немое киноРежиссер: Леонс ПерреАктеры: Леон Лоран,Анжела ЛеридаПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719624BAB06C650830C4D663D0A7D3D2B2B59A88
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478087   (1010677) от 17.06.2021
+
+Марьяна Романова (сост.) | Солнечная система в вопросах и ответах. Марс (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марс — это самая изученная планета Солнечной системы. Люди всерьёз рассматривают эту планету в качестве объекта для возможной колонизации. Почему Марс называют «красной планетой», можно ли вырастить цветы в марсианском грунте, с какими трудностями столкнутся люди, которым доведётся однажды полететь на Марс, какие космические станции занимались изучением этой планеты (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FE609EB5AC54A248C94FE1371A28A599AC76E9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477701   (1010676) от 17.06.2021
+
+Ella Fitzgerald & Louis Armstrong - Cheek to Cheek: The Complete Duet Recordings (1951 - 1957) 4CD, 2017, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010676.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. You Won't Be Satisfied (Until You Break My Heart) [2:55]
+02. The Frim Fram Sauce [3:14]
+03. Dream a Little Dream of Me [3:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 05:11:15
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478081   (1010675) от 17.06.2021
+
+K-Lite Codec Pack Update 16.2.7 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010675.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478044   (1010674) от 17.06.2021
+
+Pop Team Epic | Попсовый эпос [2018, TV, 12 эп.] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1010674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о двух четырнадцатилетних девочках — низкой Попуко и высокой Пипими, а его содержание полностью игнорирует логику и здравый смысл. Сайт аниме в качестве описания приводит цитату из «Двенадцатой ночи» Уильяма Шекспира: «Безумец, ты заблуждаешься; я говорю, нет тьмы, кроме невежества — в каковом ты ещё пуще теряешься...»
+
+"Данное видео содержит (   Читать дальше...   )Производство: Студия Kamikaze Douga / 神風動画Жанр: комедияРежиссер: Аоки ДзюнПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F29BF9FFDF67D28BB0766C54C06DFC40F38B7B5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

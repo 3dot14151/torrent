@@ -1,0 +1,719 @@
+###  Публикация: 1621950   (244242) от 27.03.2023
+
+Sufyan bin Uzayr | Mastering Unity: A Beginner’s Guide (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы абсолютный новичок, эта книга поможет вам понять основы Unity, ее возможности, технические требования, архитектуру и язык сценариев, используемый в Unity. Эта книга также посвящена настройке Unity, которая включает в себя установку, создание проекта и запуск сцены проекта. В книге также рассматривается работа со сценами и игровыми объектами, префабы, хранение (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:674CF7DFEAD1515B3CA0254C798806D590B16E83
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535412   (244241) от 06.03.2022
+
+VA - Viva 2021.3 (2022) [AAC|~329 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bek (DE) - Ara (Bek's Blue Ara Mix) (7:43)
+02. Calo Divinti - Lluvia de Oro (6:30)
+03. Claxy - Enav (6:37)
+04. Dario (DE) - Another Star (6:27)(   Читать дальше...   )Жанр: Melodic House & Techno, Tech House, Afro HouseПродолжительность: 02:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279B8C4A32F3B714ED291182531D034DEBCC7D21
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625972   (244240) от 12.04.2023
+
+Ampacity - IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Stranger Fills My Eye (00:07:47)
+02 - Three, Two, One, Void (00:05:07)
+03 - Some Kind Of Glow (00:08:00)
+04 - Spaghettification (00:07:25)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E293A268CB8CD9F346C56D47F65431698A40161
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622681   (244239) от 29.03.2023
+
+Glary Utilities Pro 5.203.0.232 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8DFE0E2CA3D51D2C1D15A09DFB7E16819C3595
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610860   (244238) от 09.02.2023
+
+Ксения Власова | Проклятье иллюзий (2022) [MP3, Анна Басс]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я – эмпат с даром иллюзий. На таких, как я, орден верховных магов ведет охоту. Я не владею оружием, не умею драться. Все, что я могу – создавать иллюзии, сотканные из потаенных страхов. За моей спиной сожженный дом и запечатанные в памяти тайны. Я обречена на участь изгнанницы, но однажды в моей жизни появляется незнакомец, предложивший заключить с ним альянс. Взамен (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 06:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33971BC5E6C6B6F5EE24FED78D26EB75767CDCC7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454044   (244237) от 13.03.2021
+
+SiteSucker 4.0.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244237.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker. Альтернативный менеджер загрузки сайтов
+SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать сайт (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2021Разработчик: Richard CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A500A6D4D03463A8DEFD6EE7AD2A90554478A6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072450   (244236) от 13.11.2016
+
+Gary Burton - Country Roads & Other Places (1969) 1998, Koch Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Country Roads [05:07]
+ 02.The Green Mountains [03:42]
+ 03.True Or False [01:46]
+ 04.Gone, But Forgotten [03:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C095CEE193FBBA27823B601D3DBA43892DE03167
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632254   (244235) от 09.05.2023
+
+The Differentials - Gary 3:17 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_244235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Orleans (3:05)
+02. Saturday Night (3:41)
+03. Disappear (3:09)
+04. Mineola Swingers Club (3:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF2109911AB38FCE4E6BF0847FA7B8867F603B1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622157   (244234) от 27.03.2023
+
+CyberLink PhotoDirector Ultra 14.1.1514 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberlink PhotoDirector Ultra — многофункциональный редактор изображений и фотографий с функциями менеджера, с помощью которого фотографы разных уровней мастерства добиваются боле высокого качества своих работ и управляют целыми коллекциями изображений. Программа работает с целыми архивами и различными форматами изображений, в том числе RAW. CyberLink PhotoDirector (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F28542B92E2EC173326730EC56E94806E6CCD9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534983   (244233) от 06.03.2022
+
+Marga Sol - I Am Everywhere (Pop Lounge Vibes) (2013) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Enough (4:44)
+02. Marga Sol, Eddie Silverton - Lucky Me (4:23)
+03. No One Who Loves Me (3:49)
+04. Midnight Flight (5:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189E19F8EE46A61AE49470A3E5861E6DCC4A52D2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625863   (244232) от 12.04.2023
+
+Morghash - Cosmogony (2019) EP [MP3|320 Kbps] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Goat For Azazel (04:03)
+02. The Bloody Tongue (04:25)
+03. Conquering and to Conquer (04:43)
+04. Ecstatic Vision (03:34)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE91A67C09C58F49D58D20BF9D0FFC70F9909416
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539787   (244231) от 03.04.2022
+
+Onde (2022) [En] (1.2) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в мир, полный звуков. Позвольте лёгким мелодиям провести вас по умиротворяющим абстрактным ландшафтам. Научитесь создавать едва уловимые тропы из звука и света и проходить по ним. Следуйте за своими причудливыми спутниками по хрупкому миру, созданному из отчётливых линий, чередующихся с завитками цвета, в котором кристальные ноты музыки сменяются умиротворяющими (   Читать дальше...   )Тип издания: LicenseРазработчик: Lance, 3-50Жанр: Приключение, АркадаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC170ABB90B8FF8A99D47DB0A2EF1CCD8723168
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610897   (244230) от 09.02.2023
+
+PrivaZer 4.0.64 Free + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244230.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790F7FD554809246C70527E0CFF327254689A11E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072365   (244229) от 13.11.2016
+
+VA - Ibiza Winter (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcelo Wallace - Samba De Hamburgo (Niels Solberg Remix) 07:20
+02. Felix & Gianx & Notelle - Hot Blooded 04:42
+03. Chixunighted - Sunshine Waltz 08:19
+04. Alex Lotus - My Life 06:28(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B65FCDC6E2682CA614357DC0B0DDA8970A4128
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454102   (244228) от 13.03.2021
+
+Second Story - Thin Twisting Line (2020) 2CDSet [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244228.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. Hidden track [00:04:43]
+01. No One Really Knows [00:05:12]
+02. Empty Dreams [00:03:39]
+03. Wake [00:05:15](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 2 CD, 01:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D0DEF2BAA957B31966C05CF17DCEE2773299BC7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535413   (244227) от 06.03.2022
+
+VA - Viva 2021.4 (2022) [AAC|~331 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airbas - When the Silence Ends (Dario Dea Remix) (7:08)
+02. Albuquerque, Foletto - Oathkeeper (5:49)
+03. Baardman - A Moment in the Sun (Sonic Union Remix) (6:19)
+04. Balad - Existential (Fernando Olaya Remix) (6:57)(   Читать дальше...   )Жанр: Melodic House & Techno, Tech House, Progressive HouseПродолжительность: 02:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABAB768A666513785FCE83391189FFC672D9B44
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632378   (244226) от 09.05.2023
+
+FanControl V156 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_244226.jpg" />
+</div>
+
+
+###  Подробнее
+
+FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BC94C9697578C92DB589BA0A6CE6F35916B365
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622196   (244225) от 27.03.2023
+
+LDPlayer 9.0.41 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244225.jpg" />
+</div>
+
+
+###  Подробнее
+
+LDPlayer 9 — мощный бесплатный эмулятор устройства с операционной системой Android для ПК Windows. Это приложение позволяет запускать на вашем компьютере почти все популярные мобильные игры и приложения созданные для ОС Android. Игры можно устанавливать из магазина LD Store, Google Play или с помощью APK-файла и управлять ими с помощью мыши и клавиатуры.
+Этот эмулятор (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF918345826C8D379C28545C343587DB84A5B94F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617557   (244224) от 29.03.2023
+
+Территория Колорадо / Colorado Territory (1949) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный преступник Вес Маккуин бежит из тюрьмы, где отбывал очередной срок за грабеж. За его голову обещаны десять тысяч долларов. Его подельник, организовавший побег требует, чтобы он вновь встал на тропу преступлений и организовал ограбление почтового вагона. Беглец достигает территории Колорадского ущелья, где спасает от налета бандитов Фреда Уинслоу (   Читать дальше...   )Производство: США, Warner Bros. Pictures CoЖанр: вестернРежиссер: Рауль УолшАктеры: Джоэл МакКри, Вирджиния Майо, Дороти Мэлоун, Генри Халл, Джон Арчер, Джеймс Митчелл, Моррис Анкрум, Бэзил Руисдейл, Фрэнк ПульяПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6E80AE05CB95024CE9A4EEF3B379D3BFADA543
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541278   (244223) от 03.04.2022
+
+Журнал | Maxim [Россия] №4-5 (апрель 2022) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Maxim радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF710C7B0F41AB1921EA2C2830988F111DD17105
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626014   (244222) от 12.04.2023
+
+Little Bob Story – Livin' In The Fast Lane & 6 Inedits (1977) Reissue, 1991, Fnac Music [FLAC|Lossless|tracks + .cue]<Pub Rock, Rock & Roll, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Big Boss
+02. All Or Nothing
+03. I'm Gonna Dress In Black
+04. 'Round The Corner(   Читать дальше...   )Жанр: Pub Rock, Rock & Roll, Punk RockПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD78BDBC6339EBE02F8C2650948276E6D55E36DC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072514   (244221) от 13.11.2016
+
+Место происшествия. О главном (13.11.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежедневная программа «Место происшествия» – это телевизионная инструкция по безопасности, которая научит, как действовать в сложных ситуациях и не стать жертвой обстоятельств. Репортажи с мест чрезвычайных событий, обзор происшествий, журналистские расследования – в арсенале программы все жанры телевизионной журналистики. В воскресенье, в 17.00 смотрите итоговый (   Читать дальше...   )Телекомпания: Пятый каналЖанр: ТелепередачаПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4EDDC953F207ABBDB76F2B1CFF1ACA549AF74C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454040   (244220) от 13.03.2021
+
+Caspar McCloud - Game Changers (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244220.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Kingdom of Darkness (0:04:28)
+02 - Under the Blood (0:04:52)
+03 - We Shall Be Changed (0:04:22)
+04 - Jesus First (0:04:06)(   Читать дальше...   )Жанр: Classic Rock, RockПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA1D59A25E2F9C9B569FF8D62977ECA0B1FADB3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535146   (244219) от 06.03.2022
+
+VA - Chilling in the Bar: Urban Chillout Music (2022) [AAC|~314 Kbps] <Chill Out, Chill Hop, Lo Fi>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Deeper Love (Original MIx) (5:50)
+02. Living Room - A Cup of Jazz (Original Mix) (3:42)
+03. Digby Jones - Heatwave (3:40)
+04. James Butler - Piano Suite De Luxe (Original Mix) (2:07)(   Читать дальше...   )Жанр: Chill Out, Chill Hop, Lo FiПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C350C8E7C809134ADFF4B0B42EACC981FE38521
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632207   (244218) от 09.05.2023
+
+V.A. - Lounge & Coffee, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_244218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Openzone Bar,Ilias Katelanos - On A Summer Drink
+02. Jazzamor - Tomorrow
+03. Schwarz,Funk - Hollywood Affair
+04. Faro - Calypso(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 02:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519C8E4F90173411522A1F9BE0F6599F3C9F50CF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622672   (244217) от 29.03.2023
+
+Гурам Панджикидзе | Спираль (1989) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_244217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грузинский прозаик Гурам Панджикидзе известен читателю по романам «Седьмое небо», «Камень чистой воды», «Год активного солнца».
+Дерзкой идеей пересадки человеческого мозга одержим талантливый хирург Зураб Торадзе — один из главных героев романа-фантасмагории «Спираль». Уникальный мозг одного пациента и совершенное тело другого после периода адаптации должны образовать (   Читать дальше...   )Жанр: Социально-психологическая фантастикаПеревод: Вахтанг Федоров-ЦиклауриФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF173EF15FAD89189C3EEAFA9F9880641AF422A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

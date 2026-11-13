@@ -1,0 +1,732 @@
+###  Публикация: 997433   (873913) от 17.03.2016
+
+Хоккей. КХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Авангард - Салават Юлаев. 5-й матч. (16.03.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873913.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 марта 2016, среда. 16:00 МСК
+1/2 финала - Восток. 5-й матч
+
+Стадион: Арена-Омск (Омск, Россия) , 9 920 зрителей (96 % при вместимости 10 318)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортПродолжительность: 02:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D782AA07432A3D62DB3DA90D010A9D599E5703
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997571   (873912) от 17.03.2016
+
+Футбол. Лига Чемпионов 2015-2016. 1/8 финала. Ответные матчи. Обзор. (16.03.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей за 15 и 16 марта 2016 года.Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 00:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A990338B76521492EA0FC7B9907D3F937DCC029
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997625   (873911) от 17.03.2016
+
+Геннадий Либгардов - Моя ты королева (2006) [MP3|128 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Память уносит меня
+02. Этап-конвой
+03. Поезд на восток
+04. Дорога(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FAC8F90C62BB460349D44092D7FB14B45A61DB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997454   (873910) от 17.03.2016
+
+Augrimmer - Moth and the Moon (2016) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873910.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Yonder
+2. Moth and the Moon
+3. Sultana
+4. The Lament of Gods 2(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5197F5F78DB9BE9B234F3FB7CEAD14A145636535
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997701   (873909) от 17.03.2016
+
+VA - Supersensible: Uplifting Progressive Trance (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873909.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Spherical Bloom - Zion - Misha Deeper Remix
+002. Audien - Eleven Eleven (Tom Fall Remix)
+003. Truenorth - Makin' Waves (Radio Cut)
+004. Sledstorm - Violet Beauty - Original Mix(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 09:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D93D8E1A7237C2696C1D91BD9388F70563EA3A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997649   (873908) от 17.03.2016
+
+Crisix - From Blue To Black (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873908.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Conspiranoia
+2. Journey Through the Fire
+3. G.G.M. (The Gret Metal Motherfucker)
+4. T-Terror Era(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C326F2C7ECBB852E6887F6AC7AD0071318DC19
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997449   (873907) от 17.03.2016
+
+Urgehal - Aeons in Sodom (2016) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dødsrite
+02. The Iron Children
+03. Blood of the Legion
+04. The Sulphur Black Haze(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D643E6C9FDB07BABAABA5AC8809050EB72459D4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997597   (873906) от 17.03.2016
+
+Александр Келеберда - Костёр любви (2016) [MP3|192 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня беспризорника
+02. Венский вальс
+03. Давай
+04. Мой друг(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A33273847F89D49B3F00DF6BB484F97F7FB147B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997437   (873905) от 17.03.2016
+
+VA - Mindfulness Answer Chilltime (Lounge Selection) (2016) [MP3|320 кб/с] <Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady White - Let Me Try (Ripping Mix) (03:32)
+02. Chad - Wall Sitar (Short Melodi Mix) (03:22)
+03. Sangar - Love Again (Radio Version) (03:06)
+04. Mark Down - Right Control (Ibiza Cut Mix) (03:10)(   Читать дальше...   )Производство: CleverlandЖанр: Lounge, Chill OutПродолжительность: 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6016AFB95573968F5FCCEA072202AEC2A181EF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997580   (873904) от 17.03.2016
+
+GAiNA - С Кем Ты Играешь И Поёшь?! (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время (3:24)
+02. Это Твой День (4:03)
+03. С Кем Ты Играешь И Поёшь?! (3:58)
+04. Кануло В Лету (4:40)(   Читать дальше...   )Жанр: Alternative Rock, Heavy MetalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FD6AFD4AF61327C97D0E3F6FA4ED11D5DD1AC0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997669   (873903) от 17.03.2016
+
+Inner Wish - Inner Wish (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873903.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roll the Dice
+2. Broken
+3. Modern Babylon
+4. Machines of Fear(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE85C7D3215F0167EE2E9A88E88EB30AAD141A8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997529   (873902) от 17.03.2016
+
+VA - Tropical Nectar: Original Dance Mix (2016) [MP3|320 кб/с] <Club, Dance, House, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873902.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Basti Grub, Natch & Dothen - Oh Baby Dance (Original Mix)
+002. Abel Moreno - Every Day (Original Mix)
+003. Soma (USA) - Take Control
+004. Alex Greenhouse - Snow (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 08:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB0436CB4A5C5B77E72BAEF1565941BC1B5EF98
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997520   (873901) от 17.03.2016
+
+Футбол. Лига Чемпионов 2015-2016. 1/8 финала. Ответный матч. Барселона (Испания) - Арсенал (Англия). (16.03.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873901.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 марта 2016, среда. 22:45 МСК
+1/8 финала. 2-й матч
+
+Стадион: Камп Ноу (Барселона, Испания) , 76 092 зрителя (77 % при вместимости 99 354)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 01:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4109E3FC51AE574A4278AFD3442E548B555427B9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997674   (873900) от 17.03.2016
+
+Mob Rules - Tales From Beyond (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dykemaster's Tale
+02. Somerled
+03. Signs
+04. On The Edge(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12C8B38B313C4C64DF2162E269C7DBDED973C50
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997381   (873899) от 17.03.2016
+
+А. Вольский | Умственный рабочий (1968) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Махайский Ян Вацлав (1867—1926) — революционер, публицист, автор оригин. теории конфликтности интеллигенции и раб. кл. Род. в семье мелкого польского чиновника. В конце 80-х гг. 19 в. примыкает к молодежной полутеррористич. орг-ции Лиги польской. В 1881 арестован и после непродолжит. заключения вынужден эмигрировать в Цюрих. Во время поездки в Польшу вновь арестован. (   Читать дальше...   )Жанр: История, политология, философия, социологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936D90B7CF8BB982EC2E74A8F016675A1E69BC3B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997572   (873898) от 17.03.2016
+
+Mozilla Firefox 46.0 beta 2 (x86/x64) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4D14FA620BB37E41DA4FCA5D378152A7102080
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997640   (873897) от 17.03.2016
+
+Mystic Prophecy - War Brigade (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow The Blind
+02. Metal Brigade
+03. Burning Out
+04. The Crucifix(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF57F09DF77304FD514F68E0608EE50C11F95BA8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997585   (873896) от 17.03.2016
+
+Н.С. Лесков | Владычный суд. Епархиальный суд (2009) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873896.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник Николая Семеновича Лескова входят рассказы "Владычный суд" и "Епархиальный суд".Жанр: КлассикаИздательство: Вира-МПродолжительность: 03:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57473AD196A03696CC004EE0DA99FEB224BE1B96
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997511   (873895) от 17.03.2016
+
+Sam Apple Pie - East 17 (1972) [MP3|320 кб/с] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Time Music
+02. Louise
+03. Out On The Road
+04. Route 66(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEC17164F65988F6726AE86620F781B464FF432
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997612   (873894) от 17.03.2016
+
+Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Inner Voices
+02. I ll Be Around
+03. Building An Empire
+04. We Got A Break It Out(   Читать дальше...   )Жанр: Synth-Pop, Sophist-PopПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053B5304FA80BA517FBC327CD100DE8CCB365593
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872707   (873893) от 25.02.2015
+
+Журнал| Всё для женщины №10 (458) (февраль 2015) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Всё для женщины» — еженедельный женский журнал. Это своего рода сборник практичных советов в области моды, рукоделия и декора, красоты и здоровья, психологии, воспитания детей и юриспруденции, а также доступные любому кошельку рецепты приготовления пищи и маршруты по России. Плюс реальные истории из жизни с хорошим концом! Наши эксперты - не только лучшие в своей области специалисты, но и читатели, а также звезды! «Всё для женщины» – еженедельный женский журнал практичных советов и идей. Журнал информирует, (   Читать дальше...   )Жанр: женские журналыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436F612F46C9D1E5C2D3D948CDB6DC8B8D52A892
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872359   (873892) от 25.02.2015
+
+The Kenny Wayne Shepherd Band - Goin' Home (Limited Edition) (2014) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Palace of the King (feat. The Rebirth Brass Band)
+02. Everything Gonna Be Alright
+03. I Love the Life I Live (feat. Joe Walsh & Kim Wilson)
+04. The House Is Rockin'
+05. Breaking Up Somebody's Home (feat. Warren Haynes)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56664FC448454CC4F824EA815DCE65CEF2AD7612
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871357   (873891) от 25.02.2015
+
+Hayseed Dixie - Killer Grass (2010) [FLAC|Lossless]<Bluegrass>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Tolerance (2:35)
+02. Bohemian Rhapsody (3:41)
+03. Alien Abduction Probe (3:30)
+04. Omen (3:13)
+05. In The Backyard (4:27)(   Читать дальше...   )Жанр: BluegrassПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B8BAC4C1493C785DF7E0555CD067F46B5340CF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872458   (873890) от 25.02.2015
+
+Любовь с первого взгляда / Two Night Stand (2014) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Девушка застряла дома у парня на целый день из-за ужасного снежного шторма. Благодаря этому несчастному случаю молодые люди получают возможность познакомиться поближе.Производство: США / © 2014, Entertainment One Film USA LLC, All Rights Reserved.Жанр: мелодрама, комедияРежиссер: Макс НиколсАктеры: Анали Типтон, Майлз Теллер, Джессика Зор, Скотт Мескади, Берто Колон, Джош Салатин, Келлин Линдсэй, Майкл Шоуолтер, Ливэн Рамбин, Джои Лорен ЭдамсПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: (R5)Язык субтитров: Русский, АнглийскийПродолжительность: 01:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3186BA31EECA83203C93CEC4943E9BDA16AA716
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872266   (873889) от 25.02.2015
+
+Эффи / Effie Gray (2014) BDRip    [1080p] [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Биографический фильм, повествующий о любовном треугольнике между известным литературным критиком, философом и писателем 19 века Джоном Рёскином, его женой Эффи и протеже Рёскина, Джоном Милле.17-летняя Эффи Грей вышла замуж за Рёскина по своей воле, однако супруги оказались очень разными по характеру. Добавляло сложностей в отношениях и то обстоятельство, что за пять лет брака Джон так не разу не прикоснулся к Эффи, утверждая после, что ее тело вызывало у него отвращение. Попав в ловушку светских условностей (   Читать дальше...   )Производство: Великобритания, Sovereign Films (II)Жанр: ДрамаРежиссер: Ричард ЛэкстонАктеры: Дакота Фаннинг, Эмма Томпсон, Клаудия Кардинале, Робби Колтрейн, Джули Уолтерс, Дерек Джекоби, Джеймс Фокс, Дэвид Суше, Том Стёрридж, Рассел ТовиПеревод: ОтсутствуетПродолжительность: 01:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:944D9B37CFDE5E862E0B7A22A8D03F4C9FCC25CA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872412   (873888) от 25.02.2015
+
+Reg Organizer 7.0 DC 24.02.2015 Final [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр импортируемых reg-файлов (в том числе и из Проводника). Кроме того, позволяет производить полное удаление программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A1AB1DBB65CFC5EF7416B793DDFB508D44BC58
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

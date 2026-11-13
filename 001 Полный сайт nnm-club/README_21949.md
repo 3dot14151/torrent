@@ -1,0 +1,718 @@
+###  Публикация: 929621   (518493) от 20.08.2015
+
+Blank & Jones - Relax Jazzed 2 by Marcus Loeber (2014) [FLAC|tracks + .cue]<Lounge, Chillout, Jazzy>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby (Les Yeux Fermes)   [5:57]
+  02. Balearic Blue   [5:20]
+  03. Sunny Side Up   [5:01]
+  04. Le Grand Bleu   [5:18](   Читать дальше...   )Жанр: Lounge, Chillout, JazzyПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5B219185A98F7ED6B226CFBA8624F2ED8B53FF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929808   (518492) от 20.08.2015
+
+The Murder of My Sweet - Beth Out of Hell (2015) [MP3|320 кб/с]<Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell on Earth
+02. The Awakening
+03. World in Ashes
+04. Always the Fugitive(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B9DF846B8B964FC28900D3674C9E943829A95F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929286   (518491) от 20.08.2015
+
+Новый оптический чип позволяет перепрограммировать квантовый компьютер за секунды времени
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_518491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью перепрограммируемый оптический чип, способный обработать и направить фотоны света по бесчисленному количеству заранее запрограммированных путей в недрах квантовых компьютеров, был разработан совместными усилиями исследователей из университета Бристоля, Великобритания, и компании Nippon Telegraph and Telephone (NTT), Япония. Создание универсального "линейного (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929458   (518490) от 20.08.2015
+
+Armin van Buuren - Armin Only: Episode 2015(Mix and Compiled by Dj Snow (DV)) (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Armin van Buuren - Miserere & Rush Hour (Original Mix)
+02 Armin van Buuren & Jean-Michel Jarre - Stardust (Album Full Mix)
+03 Armin van Buuren - Communication part 2 (Original mix)
+04 Armin van Buuren pres. Gaia - In Principio (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 04:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAFE88E429D8178ACB2C2CF87A0BECA680B0F93
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929568   (518489) от 20.08.2015
+
+Icecream Media Converter 1.55 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и простой в использовании конвертер медиафайлов, поддерживающий основные аудио- и видеоформаты. Icecream Media Converter также позволяет скачать видео с Youtube и конвертировать его в AVI, MP4, MP3 и др. Благодаря интуитивно-понятному интерфейсу программы, задача преобразования файлов форматов AVI, MKV, MP4, WMV, MP3, WAV, MPEG, WMA и др. как в видео-, так (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760DB69E718B54C19A3EB2F1E9B1B55D773E61F6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929580   (518488) от 20.08.2015
+
+King Gizzard and the Lizard Wizard - I'm In Your Mind Fuzz (2014) [OGG| 487-614 кб/с]<Alternative, Psychedelic Rock, Garage Soul, Surf>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm In Your Mind
+02. I'm Not In Your Mind
+03. Cellophane
+04. I'm In Your Mind Fuzz(   Читать дальше...   )Жанр: Alternative, Psychedelic Rock, Garage Soul, SurfПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAFB97DD557EFCB7C3B70AFE7DC841F31D12D14
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929756   (518487) от 20.08.2015
+
+Wolfheart - Shadow World (2015) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518487.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aeon Of Cold
+2. Zero Gravity
+3. Storm Centre
+4. Last Of All Winters(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EE5151D2CA2A214A785BB41BDFAE2E75DD5247
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929784   (518486) от 20.08.2015
+
+Виталий Вавикин | Суккубус (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихи Эдгара Аллана По, его страхи и надежды смешиваются с живыми картинами гениального художника и трагедией, унесший во время гражданской войны жизни его слуг и семьи, превратив гениальность в помешательство. Его картины становятся картой пережитых им страданий. Его дом превращается в галерею ужасов, способную открыть ворота в ад. Теперь зло ищет творца, способного (   Читать дальше...   )Жанр: мистикаПродолжительность: 08:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1319DE7A4D3C3744DFAE3A408DDB6207837BDB31
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929530   (518485) от 20.08.2015
+
+Железный Шурик (2012) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об известном советском политическом деятеле Александре Николаевиче Шелепине. Его карьере многие завидовали и считали крайне удачной. В сталинское время - один из лидеров московского комсомола; в хрущевский период - стремительный взлет до главы КГБ СССР (где получил прозвище "Железный Шурик") и одного из лидеров партии. Его считали доверенным (   Читать дальше...   )Телекомпания: ИсторияЖанр: ДокументальныйПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2652FB0266E6345B1E03E66344E6803A1E8A2A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929534   (518484) от 20.08.2015
+
+Miami Horror - All Possible Futures (2015) [MP3|320 кб/с]<New Wave , Synth Pop , Electropop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518484.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. American Dream (3:39)
+2. Real Slow (feat. Sarah Chernoff) (4:46)
+3. Love Like Mine (feat. Cleopold) (4:10)
+4. Cellophane (So Cruel)Жанр: New Wave , Synth Pop , ElectropopПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFC620AA171AEF6495554AE2089BE2DEEFE9D85
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929622   (518483) от 20.08.2015
+
+IObit Uninstaller 5.0.3.169 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518483.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller - поможет вам быстро и без усилий удалить ненужные программы и папки с вашего компьютера.Там, где встроенный неповоротливый диалог «Установка и удаление программ» не справляется с возложенной на него задачей, IObit Uninstaller принимает эстафету, эффективно выполняя свою работу.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB6DD872F561DA354962BB4F302AD939650B717
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929655   (518482) от 20.08.2015
+
+Privacy Eraser Free 4.2.6 build 1541 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент для очистки системы от мусорных файлов и реестра от ненужных записей. Позволяет уничтожить следы работы с web-сайтами, локальными документами, программами и т.п. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК, а также позволяет настроить очистку системы "под себя".Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C941143B3E3E1A0A786E45A30559B092D3614C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929817   (518481) от 20.08.2015
+
+VA - Electro Life 38 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Dubstep, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer - What A Feeling (Cassey Doreen Remix)
+02. Basto - Hold You (Extended Mix)
+03. Calvin Harris ft. Ellie Goulding - Outside (Original Mix)
+04. Celine Dion - My Heart Will Go On (Night Rain Project Remix)(   Читать дальше...   )Жанр: Electro House, Dubstep, HouseПродолжительность: 01:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9672C2EAAA59027CDC229BC073066635F6053FD0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 837906   (518480) от 20.08.2015
+
+Этюд для домино с роялем (1982) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселый рассказ о появлении в доме нового жильца, который игрой на рояле сдружил соседей...Жанр: музыкальная комедия, короткометражкаРежиссер: Евгения ГоловняАктеры: Лев Дуров, Нонна Мордюкова, Юрий Катин-Ярцев, Валентин СмирнитскийПродолжительность: 00:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB64091F13D85AFF665393FFD9838C676DE06FE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929688   (518479) от 20.08.2015
+
+Амстердамское убийство / The Amsterdam Kill (1977) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Митчэм в роли бывшего полицейского, которого «ушли» на пенсию, но попросили вернуться, так как его бывший коллега подозревается в том, что стал пособником международной организации наркомафии.Производство: Гонконг, США / Fantastic Films S.A., Golden Harvest Company Ltd.Жанр: Боевик, Драма, КриминалРежиссер: Роберт КлаузАктеры: Роберт Митчем, Ричард Иган, Лесли Нильсен, Брэдфорд Диллман, Кей Люк, Джордж Чунг, Синг Чан, Стефен Люн, Билли Чан, Чинг-Йинг ЛамПеревод: Авторский (А. Алексеев)Субтитры: ОтсутствуютПродолжительность: 01:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAA69123136A67F8B25239DB637763BA360F8C7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929709   (518478) от 20.08.2015
+
+Genesis - Abacab (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518478.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Abacab (7:04)
+A2. No Reply At All (4:40)
+A3. Me And Sarah Jane (6:04)
+A4. Keep It Dark (4:34)(   Читать дальше...   )Производство: Vertigo / Nippon PhonogramЖанр: Progressive RockПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CDECC206FFE0AC0FF1BD664830D41DF3DC59C5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929775   (518477) от 20.08.2015
+
+Myrkur - M (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518477.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Skøgen Skulle Dø
+2. Hævnen
+3. Onde Børn
+4. Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Black Metal, Female VocalПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512EE2FF19F92CD61358DAAFF69B95CA3AABB435
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929767   (518476) от 20.08.2015
+
+Лев Дуров. "Я всегда напеваю, когда хочется выть" (2010) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лев Дуров появился на киноэкране в 1955 году. Ему было 24 года. Сегодня в "копилке" артиста около двухсот картин. В 1988 году ясновидящая предсказала Народному артисту СССР Льву Дурову скорую смерть. Эти слова звучали как приговор, но женщина ошиблась. Линия жизни у актера оказалась длинной. Длинной, но прерывистой. Смерть заглядывала ему в лицо не один (   Читать дальше...   )Телекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B5FF3B03B66D4063C14ED8CB926F231A79EA99
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929713   (518475) от 20.08.2015
+
+Ashbury Heights - The Looking Glass Society (2015) [MP3|320 кб/с]<Synthpop, Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masque
+02. Heart Of Darkness
+03. Glow
+04. Hollow(   Читать дальше...   )Жанр: Synthpop, ElectroПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A1127076A6F6226EDAFC136A8464C6001AADD3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929643   (518474) от 20.08.2015
+
+Парни побоку / Boys on the Side (1995) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейн - певица ночного клуба - теряет работу и ищет попутчицу, которая составила бы ей компанию в путешествии в Лос Анжелес. На ее объявление отвечает Робин, застенчивая молодая девушка, очень отличающаяся от дерзкой Джейн. Остановившись в Питсбурге, они берут с собой третью девушку Холли, спасающуюся от мужа-наркомана. Находясь вместе в пути, девушки заботятся друг (   Читать дальше...   )Производство: США, Франция, Alcor Films, Canal+, Hera ProductionsЖанр: Комедия, ДрамаРежиссер: Херберт РоссАктеры: Вупи Голдберг, Мэри-Луиз Паркер, Дрю Бэрримор, Мэттью МакКонахи, Джеймс Римар, Билли Уэрт, Анита Джиллет, Дэннис Буцикарис, Эстелл Парсонс, Эми АкиноПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый) х2Субтитры: ОтсутствуютПродолжительность: 01:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA531B1E16B67FE98D442D74D54C35E299F57D6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 228537   (518473) от 22.08.2010
+
+VA -  Global DJ Broadcast (19.08.2010)  [MP3 | 256 kbps]< Trance >
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 228895   (518472) от 22.08.2010
+
+VA - Electro-House music LIFE vol.10 (2010) [MP3|320 kbps]<Electro/House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro/House
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 228812   (518471) от 22.08.2010
+
+VA - A State Of Trance Collected 12" Versions Volume 8 (2008)  [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Bissen, The Crossover - Exhale (Original Mix)
+02. Sean Tyas, Logistic - One More Night Out (Original Mix)
+03. Sophie Sugar - Sense Of Connection (Original Mix)
+04. Absolute - Dream Odyssey (Original Mix)
+05. Sassot, Lost Witness - Whatever (Original Mix)
+06. C-Quence - Impossible (Original Mix)
+07. John O'Callaghan, Mannix - Pyramid (Original Mix)
+08. DJ Shah - Who Will Find Me feat. Adrina Thorpe (Original Mix)
+09. Sunlounger - In & Out (DJ Shah Rework)
+10. Signum - Push Trough (Manuel Le Saux Remix)Жанр: Trance
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241771   (518470) от 19.08.2018
+
+Stanley Turrentine - Up At Minton's (1961) 2CD, 1994, Blue Note [APE|Lossless|image + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518470.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. But Not for Me [11:29]
+02. Stanley's Theme [11:04]
+03. Broadway [10:38](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33A395AE9BC6C5C737FE3D6B3C99B6F62FA5B42
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929809   (518469) от 20.08.2015
+
+Татьяна Борщ, Евгений Воробьев | Астрологический календарь здоровья для всей семьи на 2016 год (2015) [FB2]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_518469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фазы Луны и ее вхождение в созвездия знаков зодиака влияют не только на характер людей и судьбу, но и на их здоровье и физическое состояние. Из астрологического календаря здоровья от Татьяны Борщ вы узнаете, какое время благоприятно для восстановления вашего самочувствия, какие процедуры можно проводить в определенные лунные сутки и от каких воздействий на организм (   Читать дальше...   )Жанр: Эзотерика, Астрология, Гороскопы, Лунные календариФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D482E169E0333B725B7265E167D734016745CFD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929587   (518468) от 20.08.2015
+
+Samsung включается в гонку по созданию спутниковой сети глобального доступа в Интернет
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_518468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идея создания спутниковой сети для обеспечения глобального доступа в Интернет далеко не нова. В 1990-х годах Билл Гейтс финансировал неудачный проект Teledesic, в рамках которого планировалось создание интернет-сети на базе спутников, находящихся на низкой околоземной орбите. А сейчас подобные программы продвигает целая куча компаний и организаций, среди которых (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

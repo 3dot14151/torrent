@@ -1,0 +1,719 @@
+###  Публикация: 1298526   (601771) от 28.04.2019
+
+Hello Meteor - Momentary Infrastructure (2019) Evergreen Prefecture [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Breaks, House>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_601771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malachite (03:34)
+ 02. Chrysoprase (04:09)
+ 03. Epidote (03:59)
+ 04. Cadmium (04:27)(   Читать дальше...   )Жанр: Downtempo, Ambient, Breaks, HouseПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298591   (601770) от 28.04.2019
+
+Enforcer - Zenith (2019) [MP3|320 Kbps] <Heavy Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_601770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Die for the Devil (3:12)
+ 2 - Zenith of the Black Sun (5:36)
+ 3 - Searching for You (2:53)
+ 4 - Regrets (6:00)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298682   (601769) от 28.04.2019
+
+Prefab Sprout - The Gunman and Other Stories (2001) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cowboy Dreams 05:19
+02. Wild Card in the Pack 03:41
+03. I’m a Troubled Man 03:19
+04. The Streets of Laredo-Not Long for This World (trad. / arr. by Paddy McAloon) 04:38(   Читать дальше...   )Жанр: Alternative, Indie Rock, Sophisti-Pop, CountryПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B37B77D356B088DD45DE21A2476E495B763932E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298717   (601768) от 28.04.2019
+
+VA - Big City Beats Vol.30 (2019) 3CD [MP3|320 Kbps] <House>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_601768.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Intro - Take Off Vol. 30
+02. Alok & Timmy Trumpet - Metaphor(   Читать дальше...   )Жанр: House, Bigroom, ProgressiveПродолжительность: 03:50:32
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298660   (601767) от 28.04.2019
+
+Журнал | Сваты на даче №4 (52) (апрель 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601767.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51624720424149652DF719363CA48D100DB5B28
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298593   (601766) от 28.04.2019
+
+Steel Prophet - The God Machine (2019) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601766.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - The God Machine (3:22)
+ 2 - Crucify (4:04)
+ 3 - Thrashed Relentlessly (4:36)
+ 4 - Dark Mask (Between Love and Hate) (3:09)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12202707E92928B8B5DF9675A7020987112F8E7A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298685   (601765) от 28.04.2019
+
+Журнал | ОГОРОД RU №2 (4) Розы с Еленой Демьянчук (2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Садово-дачный журнал для широкого круга читателей.Жанр: цветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D1A150820167B82A2BB29C47B9629F559EA5F3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298570   (601764) от 28.04.2019
+
+Иван Белогорохов | Рассказы (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Белогорохов - писатель-фантаст, литературный псевдоним – Иван Беров. Начал публиковаться в 2009 году, а в 2015 победил в международном конкурсе "Новое имя в фантастике".Жанр: ФантастикаПродолжительность: 03:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80849CB24C6D0BB0AC73AFE0EC6AF741A1246195
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298582   (601763) от 28.04.2019
+
+Sean Hayman - Forget Time & Space (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (Dreamwave Mix)
+02. Mirage (Illusion Mix)
+03. The Night of the Sultans (Le Voyage Ethno Mix)
+04. Spiral Dynamics (New Way Mix)(   Читать дальше...   )Жанр: Lounge, Downtempo, Chill OutПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A547DE6256551743D04651E5AF0EC859B795F36
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298575   (601762) от 28.04.2019
+
+Первая передача на НТВ. Автомобильная передача (28.04.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изъятие авто у должника и вмятины-хлопушки на кузове.
+«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A955814411FA9A963E4FC55CB17B1D48E6C702
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298380   (601761) от 28.04.2019
+
+VA - The Remixes, Vol.04 (2019) [MP3|320 Kbps] <House, Progressive House, Minimal, TechHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11th Dimension - Beat Goes On (Tom Novy Remix) 6:15
+02. 1st Place - Feel The Groove (Delighters & Mark Grande Remix) 4:35
+03. Kit Mason - Big Suze (Tony Waller Remix) 5:46
+04. Graeme Vass - Craze (Carl Shawn Remix) 6:34(   Читать дальше...   )Жанр: House, Progressive House, Minimal, TechHouseПродолжительность: 02:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90F0B4161BF4A868A6B89BC954501F7AE7F2C94
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298679   (601760) от 28.04.2019
+
+Журнал | Дарья. Биография №5 (2019) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_601760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
+Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298544   (601759) от 28.04.2019
+
+VA - Milchbar Seaside Season 11 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - Sweet Spot (Original Mix) 3:38
+02. Blank & Jones - C'est Mieux Comme Ca (Original Mix) 2:59
+03. Bel - Ready To Die (Mudd's Extended Mix-Blank & Jones' Milchbar Edit) 7:07
+04. Mike Salta - Hey Moloko (Original Mix) 8:11(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, LoungeПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD1335C4CD99558721988CFA1821534845A2728
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298635   (601758) от 28.04.2019
+
+Журнал | Авиация и космонавтика: вчера, сегодня, завтра №2 (февраль 2019) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2191E5E10C8E5444EE23546836DE6F490D5C48D2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298577   (601757) от 28.04.2019
+
+Isao Suzuki & Tsuyoshi Yamamoto - Samba Club (1980) 2012, King Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture [6:01]
+02. Tenderly [7:22]
+03. Night and Day [5:38]
+04. Sweet Georgia Brown [4:38](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FBDFE5992263BE27E9F4CFFDB9728376968D65
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298634   (601756) от 28.04.2019
+
+Журнал | Авиация и космонавтика: вчера, сегодня, завтра №1 (январь 2019) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED4CE5355B8D35EEB5965BFFC3A9E64A1C93406
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298560   (601755) от 28.04.2019
+
+DBUK - Songs Nine Through Sixteen (2019) [FLAC|Lossless|tracks + .cue] <Folk, Americana, Gothic Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bonnie Clyde, The Big-Bull-Hen Of The Women's Prison (6:37)
+2. Deerslayer (5:26)
+3. From The Estate Of John Denver (6:59)
+4. In San Francisco Bay (4:07)(   Читать дальше...   )Жанр: Folk, Americana, Gothic CountryПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D689ED015B36526B665778469FB7608EA030353E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298678   (601754) от 28.04.2019
+
+Журнал | Тайны СССР №8 (2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для широкого круга читателей.Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CF0FF2F531B00CA3AAECECAC8B4CDF82F30AEC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298578   (601753) от 28.04.2019
+
+Чудо техники с Сергеем Малозёмовым (28.04.2019) SATRip
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_601753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцы до упада: могут ли зажигательные фламенко, зумба или танец живота заменить скучную беговую дорожку в фитнес-зале - выяснят в воскресенье утром в программе "Чудо техники". Из рубрики "За что такие деньги?" зрители узнают, правда ли, что только дорогое мыло может увлажнять кожу, защищать её и не пересушивать, а дешёвое содержит лишь щелочь. (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298499   (601752) от 28.04.2019
+
+Cinematic - The World In Slow Motion (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep in My Eyes (Pure Affection Mix)
+02. Only You (Del Mar Mix)
+03. In My Soul (Stretch Your Mind Cut)
+04. Noises 2017 (Your Time Mix)(   Читать дальше...   )Жанр: Lounge, Downtempo, Chill OutПродолжительность: 02:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60AC15475B66F2D0C43597072EBE77D81E797EC1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298475   (601751) от 28.04.2019
+
+VA - Record Super Chart 584 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filatov & Karas - Au Au (2:54)
+02. Calvin Harris & Rag'n'Bone Man - Giant (3:47)
+03. Mabel - Don't Call Me Up (R3hab Remix) (2:33)
+04. Aaron Smith - Dancin (Krono Remix) (4:15)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1FC7C38B9F84D71EEEA3DA22EF7C3F35D078C4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298533   (601750) от 28.04.2019
+
+Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) Single [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godzilla (feat. Serj Tankian) (03:10)
+02. Old Rivals (03:50)Жанр: Soundtrack, ScoreПродолжительность: 00:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D121838E407EF035B74A3441191EECAA88DE6D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298541   (601749) от 28.04.2019
+
+Растровый клипарт - Amphibia #03 [PNG]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_601749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт Земноводные для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 216x295-1227x1280
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298442   (601748) от 28.04.2019
+
+VA - Best Of Trance Vol 1 (2019) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthony S - The Spirit (Radio Edit) 3:20
+02. Rene Ablaze - Fast Life (Radio Mix) 4:14
+03. Damian Wasse - World Wide Sunrise (Radio Mix) 4:44
+04. Javah & Xan - Vice Of Life (4 S'trings Radio Edit) 2:56(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875E257046788185B260CE21FC1B1847D294DE38
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298655   (601747) от 28.04.2019
+
+Наталья Толстая | SOS, или Спасти Отношения Срочно. Мужские измены (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваша история любви достойна романа, вы любите друг друга, и ничто не может помешать вашему счастью, как вдруг… «О ужас! Он изменил!» Что делать? Выставить его чемоданы на лестницу? Сделать вид, что не заметила? Пожаловаться маме? Поговорить «по душам» с соперницей? А может, изменить в ответ? Какие только безумные идеи не приходят в голову страдающей женщине! Но на (   Читать дальше...   )Жанр: Семейная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B7F134444CFABD668301280B209C23B32D38AD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298656   (601746) от 28.04.2019
+
+Наталья Толстая | Защитная книга от ссор и предательства. Стратегия победы настоящей женщины (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_601746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ох, как не просто быть счастливой! Все вроде в порядке, но вдруг показалось, привиделось, подумалось… А может быть, у него кто-то есть? А вдруг я уже не единственная?
+И тут уж все поздние телефонные звонки, отлучки, командировки и даже случайно брошенные взгляды будут вытащены на свет, тщательно осмотрены, проанализированы. А что потом? Пробежка по знакомым, засады (   Читать дальше...   )Жанр: Семейная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B493091FD4EB2A9CDD4EE3E6DB16C378F366E4EC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

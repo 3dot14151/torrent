@@ -1,0 +1,720 @@
+###  Публикация: 1756432   (39667) от 21.10.2024
+
+VA - Non-religious  Gospel music (2024) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crowder - Lift Your Head Weary Sinner (Chains) [03:45]
+02. Cultura do Ceu, Davi Fernandes, Kaleb e Josh - Nada Mais [06:32]
+03. Darrell Mansfield, Larry Howard & Glenn Kaiser - Where Would I Be? [06:33]
+04. David Cardoso, ONE-Sounds,  Alessandro Vilas Boas - Maranata [17:24](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 05:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1F970EBABDABDB9A2B2366A184AF003FF9571B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756233   (39666) от 21.10.2024
+
+Luttrell - Life at Full Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We First Met
+02. Life at Full Speed
+03. Make U Happy
+04. Sunshine(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E22F523825853600DA56C8590EBB3A3A3804AE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756517   (39665) от 21.10.2024
+
+VA - Amsterdam After Disco (2024) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazibiza - Soul Cool (Original Mix) (4:48)
+02. Cheesecake Boys & Crazibiza & Belle - Good Life (Original Mix) (4:57)
+03. Westray - Last Night (Original Mix) (4:55)
+04. Crazibiza - Like A King (Original Mix) (5:00)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CD5BED667905FA1082CC0C35A661051E377579
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756484   (39664) от 21.10.2024
+
+Peter Griffin - Hurricane Is Coming (1980) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil's Reception
+02. Spiderman (Long Version)
+03. Hurricane
+04. I'll Be Your Fireman (Long Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3477393D8CBB29EB582F31A3B5A7F199424E74
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756377   (39663) от 21.10.2024
+
+Медики Чикаго / Chicago Med (2024) WEB-DL [H.264/1080p] (сезон 9, серии 1-13 из 13) TVShows
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о команде врачей, работающих в чикагской больнице. Каждый день им приходится работать в полном хаосе и разбираться с уникальными случаями.Производство: США / Wolf Films, Universal TelevisionЖанр: драмаРежиссер: Майкл Ваксман, Чарльз С. Кэрролл, Фред БернерАктеры: Ник Гелфусс, Марлайн Барретт, С. Ипейта Меркерсон, Оливер Платт, Торри ДеВито, Йайа ДаКоста, Брайан Ти, Лорена Диас, Колин Доннелл, Эшленд Томас и др.Перевод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Английский, испанскийПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807F9FC0D5B1C970E010B361323220CEBA4DEAAB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756438   (39662) от 21.10.2024
+
+Журнал | Приусадебное хозяйство №10 (октябрь 2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Приусадебное хозяйство» знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не остались без внимания и владельцы домашних ферм — здесь они находят ответы на многие (   Читать дальше...   )Жанр: Дача, сад, огородИздательство: ООО "Приусадебное хозяйство"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1851CBBB3431B5DC526474DEB5C3EB7763DF764C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756447   (39661) от 21.10.2024
+
+Коварство славы / Grosse fatigue (1994) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мишель Блан занят сочинением сценария нового фильма, в котором он хочет снять в главной роли Кароль Буке. Полиция начинает обвинять Мишеля в действиях, которых он не помнит. Его обвиняют в домогательствах и изнасиловании. Мишель полагает, что он сошёл с ума, и у него внутри живёт вторая «тёмная» личность, которая совершает все эти поступки, которых он не помнит. (   Читать дальше...   )Производство: Франция / Gaumont, TF1 Films ProductionЖанр: комедияРежиссер: Мишель БланАктеры: Мишель Блан, Кароль Буке, Филипп Нуаре, Жозиан Баласко, Мари-Анн Шазель, Кристиан Клавье, Гийом Дюран, Шарлотта Генсбур, Давид Халлидей, Эстель Лефебюр, Роман ПоланскиПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, французскийСубтитры: русские (Ирина Безлюдная), английские, французскиеПродолжительность: 01:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3F11B27E17D79BB5BA81414AB82455CF4BCDE84
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756433   (39660) от 21.10.2024
+
+Александр Палиенко | Жизнь в удовольствие (2021) [MP3, Денис Веровой]
+
+>>Обучающие аудиоматериалы
+>>Медитации (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор поделился актуальными на сегодняшний день знаниями и дополнил их простыми и эффективными практиками. Здесь вы найдете полное описание его уникального метода, рекомендации о том, как укрепить здоровье, построить гармоничные отношения, улучшить финансовое положение. Узнаете, на каких китах стоят важные для человека сферы жизни и как быть в унисон с Миром, который (   Читать дальше...   )Жанр: Эзотерика, СаморазвитиеИздательство: АСТПродолжительность: 06:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67520414C3EF0775223DC5A76F4834D7A49DBB51
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756523   (39659) от 21.10.2024
+
+Кулебякин Н.И | Венерианский заезд (2024) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_39659.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ежегодная королевская битва в атмосфере Венеры, среди парящих городов, на самолетах времен Второй Мировой. Главный герой готов рискнуть жизнью, чтобы обеспечить себе безбедное существование. Но обретет нечто большее чем деньги." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D069C33A2AC6F9634C9C4DBBCB3AB049E085E55B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756464   (39658) от 21.10.2024
+
+Коварство славы / Grosse fatigue (1994) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мишель Блан занят сочинением сценария нового фильма, в котором он хочет снять в главной роли Кароль Буке. Полиция начинает обвинять Мишеля в действиях, которых он не помнит. Его обвиняют в домогательствах и изнасиловании. Мишель полагает, что он сошёл с ума, и у него внутри живёт вторая «тёмная» личность, которая совершает все эти поступки, которых он не помнит. (   Читать дальше...   )Производство: Франция / Gaumont, TF1 Films ProductionЖанр: комедияРежиссер: Мишель БланАктеры: Мишель Блан, Кароль Буке, Филипп Нуаре, Жозиан Баласко, Мари-Анн Шазель, Кристиан Клавье, Гийом Дюран, Шарлотта Генсбур, Давид Халлидей, Эстель Лефебюр, Роман ПоланскиПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, французскийСубтитры: русские (Ирина Безлюдная), английские, французскиеПродолжительность: 01:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E99D950D495544978F16FB3F782259645DAFBE1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756358   (39657) от 21.10.2024
+
+Полиция Чикаго / Chicago PD (2024) WEB-DL [H.264/1080p] (сезон 11 серии 1-13 из 13) TVShows
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39657.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета находятся работники полицейского департамента города Чикаго, в частности две группы полицейских, которые находятся на разных ступенях власти.Производство: США / Wolf Films, Universal TelevisionЖанр: боевик, триллер, драма, криминалРежиссер: Марк Тинкер, Ник Гомез, Эрик Ла СалльАктеры: Джейсон Бех, Джон Седа, София Буш, Джесси Ли Соффер, Патрик Флюгер, Марина Скверчати, Ларойс Хоукинс, Элиас Котеас, Эми Мортон, Арчи Као и др.Перевод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Английские, испанскиеПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F1DC1A3EA4FE347520DEFABB4A88258A9972E5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756492   (39656) от 21.10.2024
+
+Морозко (1964) BDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жила-была хорошая добрая девушка Настенька. Злая мачеха заставляла ее работать, не давая продыху. Однажды она решила избавиться от падчерицы и отправила ту замерзать в зимний лес. В этих же краях жил паренек Иван. Он полюбил Настеньку, да вот только был он большим хвастуном, потому лесной колдун и превратил его в медведя.Производство: СССР, Киностудия им. М. ГорькогоЖанр: фэнтези, мелодрама, детский, комедия, семейныйРежиссер: Александр РоуАктеры: Александр Хвыля, Наталья Седых, Эдуард Изотов, Инна Чурикова, Павел Павленко, Вера Алтайская, Георгий Милляр, Галина Борисова, Анатолий Кубацкий, Валентин Брылеев и др.Субтитры: отсутствуютПродолжительность: 01:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95FF1096B63D26EB6C9BA96AE66219D8F6D15A67
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756496   (39655) от 21.10.2024
+
+НХЛ 2024-2025. Питтсбург Пингвинз - Виннипег Джетс (20.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39655.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 октября 2024, воскресенье. 22:00 МСК. Стадион: Канада Лайф-центр (Виннипег, Канада), 13 760 зрителей (90% при вместимости 15 325)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Питер Макдугалл (Реджайна, Канада); Линейный: Калеб Апперсон (Китченер, Канада); Линейный: Трэвис Туми (Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BD25E6DE3DAE6D562D8FBDEC65152C2EEF44EF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756454   (39654) от 21.10.2024
+
+Divinefire - Studio Albums (5 releases) (2004-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Divinefire — пауэр-метал-группа, основанная весной 2004 года финским гитаристом Яни Стефановичем и шведским певцом Кристианом Лильегреном.2004 - Glory Thy Name
+2005 - Hero
+2006 - Into a New Dimension
+2008 - FarewellЖанр: Power MetalПродолжительность: 03:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF969602EA3C361FF63C4E0A6CEA48B7B6147AF1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756486   (39653) от 21.10.2024
+
+Hazael - Thor (1993) Reissue, 2014, Dark Descent Records [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen Majesty 05:53
+02. Clairvoyance 03:05
+03. Seven Winds 06:31
+04. Kingdom of Mist 06:14(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82328D427BF39C66D7E83A0483789D260AAEF24B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756489   (39652) от 21.10.2024
+
+Die Gesellschaft der Grauen Herren - Imagines Itineris (2014) [FLAC|Lossless|image + .cue] <Progressive Avant-Garde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 An die Ufer der Schwarzen See 24:28
+02 Tribut in Cis-Moll 07:31
+03 Pale Red Halo 05:02
+04 Sommernachtstraum 06:18(   Читать дальше...   )Жанр: Progressive Avant-Garde Black MetalПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7A854A3D56B879E65DD1DD55E0C483FED702C8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756446   (39651) от 21.10.2024
+
+The Crown - Crown Of Thorns (2024) [FLAC|Lossless|image + .cue] <Melodic Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hunt With The Devil
+02. Churchburner
+03. Martyrian
+04. Gone To Hell(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58328C4E05D0B3522968443EBA16947E6EC924C2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756448   (39650) от 21.10.2024
+
+Wind Rose - Trollslayer (2024) [FLAC|Lossless|image + .cue] <Power Metal, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39650.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Of Ice And Blood
+2. Dance Of The Axes
+3. The Great Feast Underground
+4. Rock And Stone(   Читать дальше...   )Жанр: Power Metal, FolkПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578D3D7D31751252D6C8ACF4CAB176EFF86C233A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756384   (39649) от 21.10.2024
+
+Своя игра (20.10.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39649.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F796C14C623E42BD58B0CEB1A329F9683C220FE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756443   (39648) от 21.10.2024
+
+Heartwind - Higher And Higher (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Higher And Higher (3:31)
+02. Cry Out Into Space (3:31)
+03. Ready For The Moonlight (3:40)
+04. One Night Away From You (3:41)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B639589097792CD5F9594FDE1B786E56F8BAE83
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756441   (39647) от 21.10.2024
+
+Nasty Savage - Jeopardy Room (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invocations
+02. Jeopardy Room
+03. Brain Washer
+04. Southern Fried Homicide(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812FD3A6D3F669DC6DAD0DE6D613DFCEB74888DA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756481   (39646) от 21.10.2024
+
+Europica - Part Two (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faith in the Ancient Virtue (feat. Fabio Lione)
+02. Strong Hand & Worrying Face (feat. Ralf Scheepers)
+03. Dry Leaf (feat. Bjorn Lodin)
+04. Alarm (feat. Tomek Horytnica)(   Читать дальше...   )Жанр: Heavy Metal, Folk RockПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7E22296F5982A59DF894D85FD08161739ECF06
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756401   (39645) от 21.10.2024
+
+Showaddywaddy - 20 Greatest Hits (1992) [FLAC|Lossless|image + .cue] <Rock, Pop, Rock & Roll, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Steps To Heaven
+02. Under The Moon Of Love
+03. You Got What It Takes
+04. Hey Rock 'n Roll(   Читать дальше...   )Жанр: Rock, Pop, Rock & Roll, Glam RockПродолжительность: 01:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA4EB17F53DB2F706E8DA09856F179A31452FCE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756507   (39644) от 21.10.2024
+
+Bobbie Dazzle - Fandabidozi (2024) [FLAC|Lossless|image + .cue] <Progressive, Psychedelic, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lightning Fantasy 04:30
+02. Merry-Go-Round 04:36
+03. Revolution 04:38
+04. Magic of Music 03:26(   Читать дальше...   )Жанр: Progressive, Psychedelic, Glam RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C5603B472152DA9EFF06008ACC10813B3BAB7C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756117   (39643) от 21.10.2024
+
+Deejay Laura - Euphoria (2013) [FLAC|Lossless|tracks] <Pop Trance, Scouse House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deejay Laura - Euphoria (Radio Edit) (4:56)
+02. Deejay Laura - Euphoria (7:02)Жанр: Pop Trance, Scouse HouseПродолжительность: 00:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55ED3C11C8D647087C07319530D15EDDB3E99C79
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756561   (39642) от 22.10.2024
+
+Я всегда рядом / Take My Hand (2024) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_39642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лора и Майкл полюбили друг друга еще в школе. Всего за несколько месяцев они стали друг другу очень дороги, но девушка приняла сложное решение и уехала из Австралии учиться в Англию. Спустя двадцать два года Лора замужем, у нее трое сыновей и прекрасная карьера. Но идиллию внезапно рушит диагноз: у женщины находят рассеянный склероз. Она хочет вернуться домой, но (   Читать дальше...   )Производство: Австралия / Bronte Pictures, Take My Hand ProductionsЖанр: драма, мелодрамаРежиссер: John RaftopoulosАктеры: Рада Митчелл, Адам Демос, Барт Эдвардс, Мэг Фрэйзер, Ксавьер Молино, Натали Бассингтвейт, Milly Whitlock-Whyte, Даррен Гилшенан, Robyn Gibbes, Стив БастониПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D36B0923D377B18FEB201B6B6414978D79A058F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

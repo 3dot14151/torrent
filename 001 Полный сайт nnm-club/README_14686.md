@@ -1,0 +1,730 @@
+###  Публикация: 894457   (707331) от 02.05.2015
+
+VA - TOP April (2015) [MP3|320 кб/с]<Electronic, Lounge, Chillout, Pop, Deep>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+001. Swing Republic - Drum Boogie (feat Gene Krupa - extended) (04:51)
+002. Jaga Jazzist - Oban (Todd Terje Remix) (09:50)
+003. Sade - Pearls (Timo Jahns Remix) (08:10)
+004. Profile Taken - Estranha Forma de Vida (Robin Mosco Remix) (06:11)
+005. Ben Macklin feat. Emma Brammer - It's Over (05:11)(   Читать дальше...   )Жанр: Electronic, Lounge, Chillout, Pop, DeepПродолжительность: 01:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC80B3ACE844B8B6350D93A21B1710D19AB3899B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025765   (707330) от 13.06.2016
+
+Марсианин / The Martian (2015) BDRip [H.265/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного.
+
+Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, ПриключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный, BD EURЯзык субтитров: Русские (форсированные, полные), Английские (форсированные, полные)Продолжительность: 02:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F51D7619B5E01EAA8B2D2E6F3AA605F5861C19
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532995   (707329) от 23.02.2022
+
+VA - Chill House Vibes Vol 3: Ultimate Chill House Collection (2022) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laylo, Daisy Howard, Keivyn Graves, Vasco, Rocky - Oh My Dear Friend (Magmatunes Remix) (6:33)
+02. Chillson, Marc Hartman - All Night Long (6:13)
+03. Martin Hiska - Divine (4:00)
+04. Marga Sol, Darles Flow - Broken (4:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F157899A25E2AE0962747D29AE8D9CF54EA4E3B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131644   (707328) от 06.05.2017
+
+Kenny Rankin - Professional Dreamer (1995) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'd Be So Nice To Come Home To 3:31
+02. The Very Thought Of You 3:37
+03. But Not For Me 3:08
+04. I Fall In Love Too Easily 3:48(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09F8030D38E1681B08E12ED64BB50C7285DEEB4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287002   (707327) от 05.03.2019
+
+Seven Mary Three - American Standard (1995) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707327.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	Water's Edge 	3:52
+2 	Cumbersome 	3:59
+3 	Roderigo 	4:24
+4 	Devil Boy 	4:24(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736E411ADF25683DACB3C8C779B742AE84C7E8B7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893925   (707326) от 02.05.2015
+
+Марсу Нужны Любовники - Ткань (2015) [MP3|320 кб/с]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Теорема
+ 02. Ветер сдувает с крыш
+ 03. Другие меридианы
+ 04. Планы
+ 05. Этим летом(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C29A821B0106C474D37982268906F27E0CC1D4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025716   (707325) от 13.06.2016
+
+Современное искусство - Сказки Старой Руси / Tales Of Old Rus [JPG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tales of Old Rus — это скетчбук Романа Попсуева, в котором он представляет героев русских сказок в стиле фэнтази.
+Автор: Роман Папсуев, страница в Instagram - @amokrusФормат: JPGРазрешение файлов: 652х900 - 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60926F88E7437409752EC99558913680F6A639A9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533010   (707324) от 23.02.2022
+
+VA - I Need You Tonight, Vol. 1 (50 Deep-House Babies) (2016) [AAC|~327 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satoshy Hokado - You Really Love Me (3:28)
+02. Alvaro Jenez - United Sound (3:27)
+03. Marcus Jannay - Black Of Night (3:35)
+04. Francis Chic - Deep And Deeper (3:32)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752BDDA2BD2FE8E6337BCF00F5DFE67457CBACB9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131636   (707323) от 06.05.2017
+
+Ragnarok - Collectors of the Kings (2010) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Resurrection
+02.	Stabbed by the Horns
+03.	Burning the Earth
+04.	In Honour of Satan(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737ED84B67A624BA29BAC077086B80A76D369768
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287061   (707322) от 05.03.2019
+
+Art Farmer - The Complete Albums Collection 1961-1963 (2016) 4CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707322.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bel [4:08]
+02. Milano [4:51]
+03. Django [4:52](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 05:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC9F68F9F13FDDB473FB81B6DDA92EC4DDA310B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286964   (707321) от 05.03.2019
+
+Программа и устав Коммунистического Интернационала (1928) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Защищая и пропагандируя диалектический материализм Маркса — Энгельса, применяя его как революционный метод познавания действительности в целях революционного преобразования этой действительности, Коммунистический Интернационал ведет активную борьбу со всеми видами буржуазного мировоззрения и со всеми видами теоретического и практического оппортунизма. Стоя на почве (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB692A2E6757805A25997E8F7CFB5E40BE62518
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894300   (707320) от 02.05.2015
+
+Theory of a Deadman - Angel (Acoustic) (2015) EP [MP3|320 кб/с]<Alt. Rock, Post-Grunge, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. Angel (Acoustic) (3:22)
+2. Santa Monica (Acoustic) (4:08)
+3. Habits (Stay High)Жанр: Alt. Rock, Post-Grunge, Hard RockПродолжительность: 18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2275D9A7B47CA199BD9BC4D8070782A35261D65F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025819   (707319) от 13.06.2016
+
+Проекты - VideoHive - Whiteboard Animated Elements Library - 13745607 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Whiteboard Animated Elements Library - интерактивная доска с большим набором анимационных элементов и символов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E007BC8C621DA52623735722EDA400D8F7D1C3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533258   (707318) от 23.02.2022
+
+Авентайл - Поиск пути (2008) [FLAC|Lossless|image + .cue] <Melodic Death, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город, которого нет [5:35]
+ 02. Кладбище надежд [4:53]
+ 03. Миг на жизнь [5:19]
+ 04. Новый день [4:14](   Читать дальше...   )Жанр: Melodic Death, Power MetalПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4D590B07FA7E4EAD810202A3F17CB21B8EF4C5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131454   (707317) от 06.05.2017
+
+Carlo Actis Dato - The Moonwalker (2001) Leo Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arigato [00:06]
+02. Bad Rap 1 [01:55]
+03. Fusi Orari [02:48]
+04. Thai children [01:14](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EC6C30A7B426DBC578785ACA5768A218901F77
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894198   (707316) от 02.05.2015
+
+Эрнст Гофман | Эликсиры сатаны (1984) [DJVU]
+
+>>Художественная литература
+>>Классическая поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Гофман из тех писателей, чья посмертная слава не ограничивается шеренгами собраний сочинений, встающими ряд за рядом из века в век и превращающими книжные полки в безмолвные, но грозные полки; не оседает она и пирамидами фундаментальных изысканий - памятниками (   Читать дальше...   )Жанр: Классическая и современная прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1185FE649DED69953D5495BED92F62CED4B110DE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025652   (707315) от 13.06.2016
+
+Варкрафт / Warcraft (2016) TC [Line]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_707315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веками магия и неприступные стены защищали людей от любых напастей. Но древнее зло, побежденное и забытое тысячелетия назад, пробудилось. В самом сердце королевства открылся темный портал, и раса невиданных существ наводнила земли Азерота. Так начались события, призванные навсегда изменить судьбу этого мира.Производство: США, Atlas Entertainment, Blizzard Entertainment, Legendary Pictures, Universal PicturesЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Дункан ДжонсАктеры: Трэвис Фиммел, Бен Фостер, Пола Пэттон, Тоби Кеббелл, Роберт Казински, Доминик Купер, Даниэль Ву, Клэнси БраунПеревод: Дублированный (Чистый звук)Продолжительность: 02:03:47Реклама: Отсутствует
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286974   (707314) от 05.03.2019
+
+Planetary Assault Systems - Straight Shooting (2019) Mote-Evolver [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beam Riders (06:48)
+ 02. Born Anchors (06:08)
+ 03. Humans Use Concrete (05:28)
+ 04. Engage Now (07:13)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014BF28483FED1091871A35DAD02382AFB03224E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533013   (707313) от 23.02.2022
+
+VA - I Need You Tonight, Vol. 3 (50 Deep-House Babies) (2016) [AAC|~302 Kbps] <Deep House>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_707313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tommy Harmond - Stay Together Forever (Extended Mix) (3:31)
+02. Mark Markson - New Scopy (3:18)
+03. City Cinema - Inside Nowhere (Morris & Morgan's Deep Mix) (4:48)
+04. Michael Danielson - Raw Cargo (2:43)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:49:16
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025679   (707312) от 13.06.2016
+
+Черные праздники / Holidays (2016) WEB-DL [H.264/1080p-LQ] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы привыкли ждать от праздников только всего самого доброго и хорошего, но у каждого из них есть и своя темная сторона — страшные и леденящие душу истории, которые не могли произойти в обычный день. Все они случились в одном богом забытом городе, во время таких праздников, как Хэллоуин, Пасха, День Святого Валентина, Рождество… Антология всеми любимых праздников, (   Читать дальше...   )Производство: США, ArtCastle Productions, Distant Corners Entertainment Group Inc.Жанр: Ужасы, КомедияРежиссер: Энтони Скотт Бёрнс, Кевин Колш, Николас МакКартиАктеры: Кевин Смит, Лоренца Иззо, Сет Грин, Клэр Грант, Майкл Гросс, Эндрю Бауэн, Рут Брэдли, Майкл Сунь, Ли Ава Акрес, Джоселин ДонахьюПеревод: Дублированный (Чистый звук)Продолжительность: 01:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A2F1A27FE8292997D7B422640106A9D79177B5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131294   (707311) от 06.05.2017
+
+VA - Balearic Lounge Beats (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pindaric Spleen - Stream Of Consciousness  5:54
+02.  Sweetadelic - Elevon  5:14
+03.  Arrojas - Asombrosa  5:37
+04.  Chillelektro - L'Escala  5:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A2D81DFB0E6AD335B9A02FA7964B6C6250E0F7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894446   (707310) от 02.05.2015
+
+Главная дорога (02.05.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный для массового зрителя, научит водителей уверенно держаться за рулем. Занятия проводит инструктор известного во всем мире Центра высшего (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: ~ 00:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664FA28BA94DB6818229505F88B5DB3785114FE7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287018   (707309) от 05.03.2019
+
+Attila - Villain (2019) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perdition (1:44)
+ 02. Villain (2:47)
+ 03. Blackout (2:59)
+ 04. New Addiction (3:13)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955D7FA8BBF9ECA363ED5135CF06C9B65D7ED575
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997043   (707308) от 13.06.2016
+
+Мара и Носитель Огня / Mara und der Feuerbringer (2015) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятнадцатилетняя Мара Лорбер узнаёт, что она должна спасти мир. Потому что древний скандинавский бог Локи может вырваться на свободу…Производство: ГерманияЖанр: ФэнтезиРежиссер: Томми КрапвиАктеры: Лилиан Прент, Ян Йозеф Лиферс, Эстер Швейнс, Кристоф Мария Хербст, Ева Хаберманн, Алекс Саймон, Карин С. Тице, Йозеф Ханнесшлегер, Леони ТепеПеревод: Профессиональный многоголосый (Paradox & Omskbird records)Субтитры: ОтсутствуютПродолжительность: 01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE7B57439C4BD4AD2703DD4CEF5DE15E790B9F2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131497   (707307) от 06.05.2017
+
+Чемпионат Мира по хоккею. Группа A. 1-й тур. Швеция - Россия (2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по хоккею с шайбой - ежегодное соревнование, организованное Международной федерацией хоккея с шайбой с 1920 года.
+Матч между командами Швеции и России.Телекомпания: Матч ТВЖанр: СпортЯзык озвучки: РусскийСубтитры: отстутствуютПродолжительность: 02:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300E8C1AE7A1989D4FDF27E1D6A63DC96ED19825
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894531   (707306) от 02.05.2015
+
+VA - Extra Lounge (episode 8) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_707306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2illusions - The Feeling Dance (05:01)
+002. Gold Lounge - On the Sea (05:38)
+003. CJ RcM - My Love (Original Mix) (05:10)
+004. Sine - Wolke 7 (04:17)
+005. Fowler & Branca - Turning Leaves (04:18)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A005A5FA03ECFEF082A20B9C76B4D92A4245BC4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

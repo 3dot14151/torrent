@@ -1,0 +1,753 @@
+###  Публикация: 991575   (905659) от 28.02.2016
+
+Любите Куперов / Love the Coopers (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Феерическая рождественская комедия о том, что бывает, когда на праздник собираются представители четырех поколений одной большой семьи…Производство: США, CBS Films, Groundswell Productions, Imagine EntertainmentЖанр: КомедияРежиссер: Джесси НельсонАктеры: Дайан Китон, Джон Гудман, Эд Хелмс, Алекс Борштейн, Тимоти Чаламет, Максвелл Симкинс, Блейк Баумгартнер, Аманда Сайфред, Алан Аркин, Дэн АмбойерПеревод: Дублированный (Лицензия)Язык субтитров: АнглийскиеПродолжительность: 01:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42EFFA89968BADA10E8F0B6156AACFA288C3E6B2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991611   (905658) от 28.02.2016
+
+Прогулка / The Walk (2015) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы боитесь высоты? А можете представить себя идущим по натянутому канату на высоте более 400м без всякой страховки? Потоки ветра обдувают вас, а внизу — город и тысячи взволнованных взглядов, устремленных вверх.
+
+История о том, как французский канатоходец Филипп Пети отважился совершить легендарный трюк — пройти без страховки по канату, натянутому между небоскребами (   Читать дальше...   )Производство: США / Sony Pictures Entertainment (SPE), TriStar Productions, ImageMovers, Mel's Cite du CinemaЖанр: Триллер, драма, приключения, биографияРежиссер: Роберт ЗемекисАктеры: Джозеф Гордон-Левитт, Бен Кингсли, Стив Валентайн, Шарлотта Ле Бон, Джеймс Бэдж Дэйл, Бен Шварц, Бенедикт Сэмюэл, Мизинга Мвинга, Дэниэл Аррош, Джейсон ДелайнПеревод: Дублированный  (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, арабский, болгарский, хорватский, чешский, эстонский, греческий, иврит, венгерский, исландский, латышский, литовский, польский, португальский, румынский, русский, сербский, словацкий, словенский, турецкийПродолжительность: 01:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A62266FAE7012F39910DE315740313A329F767
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991093   (905657) от 28.02.2016
+
+Остров ненужных людей (2011) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-24 из 24)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преуспевающий бизнесмен Андрей Каморин несчастлив в семейной жизни. Он бы давно бросил жену Лизу, но на нее записано все имущество. После очередного скандала Андрей предлагает ей поехать с ним в круиз под предлогом, что совместное путешествие поможет им наладить отношения…
+Группа туристов из тринадцати человек, включая Лизу и Андрея, прилетает в азиатскую страну, (   Читать дальше...   )Производство: Украина, Россия, Таиланд / "Star Media"Жанр: драма, приключенияРежиссер: Эдуард ПарриАктеры: Дмитрий Ульянов, Эльвира Болгова, Нелли Пшенная, Александр Панкратов-Чёрный, Юлия Силаева, Александр Робак, Павел Трубинер, Константин Милованов, Галина Звягинцева, Екатерина Стулова, Сергей Чирков, Людмила Шувалова, Игорь Воробьёв, Равшана Куркова, Максим Лагашкин, Наталья Бурмистрова и др.Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886C733DEAA58EEFFAE4793C22AA1278AC449C3B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991661   (905656) от 28.02.2016
+
+Виктор Франкенштейн / Victor Frankenstein (2015) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый взгляд на фантастическую историю Виктора Франкенштейна, на этот раз — с точки зрения его помощника Игоря.Производство: США / 20th Century Fox Film Corporation, Davis Entertainment, Moving Picture Company, TheЖанр: ужасы, фантастика, драмаРежиссер: Пол МакГиганАктеры: Дэниэл Рэдклифф, Джессика Браун-Финдли, Бронсон Уэбб, Джеймс МакЭвой, Дэниэл Мейс, Спенсер Уидлинг, Робин Пирс, Эндрю Скотт, Каллум Тернер, Ди БотчерПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1AE5403BE52EFD4A4F6BF791DB6A1DD0B23A56
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368781   (905655) от 22.03.2020
+
+VA - German Top 100 Single Charts 20.03.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Samra & Capital Bra - Berlin
+03. Loredana - Angst (feat. Rymez)
+04. UFO361 - Bad Girls, Good Vibes(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49473A52F1FDF0B48FC8A8771965EE5896E85053
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369167   (905654) от 22.03.2020
+
+!Бум! - Kanikuly (2007) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kanikuly 2007 (Каникулы 2007) (3:42)
+02. Starsheklassnitca (Старшеклассница) (3:58)
+03. Poezd (Поезд) (3:53)
+04. Ne uletai (Не улетай) (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49F0D532EC7CC4200AB4F277F6E4726561D286E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368876   (905653) от 22.03.2020
+
+VA - The Official UK Top 40 Singles Chart 20.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix)
+02. The Weeknd - Blinding Lights
+03. Aitch & AJ Tracey - Rain (feat. Tay Keith)
+04. Roddy Ricch - The Box(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DEB5B063F2CE825F09004F55B8565973DEE773
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369155   (905652) от 22.03.2020
+
+Турбомода - Виноват Не Я (2002) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Виновата школа (3:52)
+02. Армейская (4:24)
+03. Белое платье (3:43)
+04. На память о тебе (3:46)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536606E70749E1E375A07ED3CF90BF798E8861D6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369247   (905651) от 22.03.2020
+
+Phanatic - Bounce Showcase (Phanatic) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905651.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mind Control (6:46)
+2. Phanatic; Delirious - Lucid Dreaming (7:15)
+3. Phanatic; Electro Sun; Bizzare Contact - Trilodyne (8:10)
+4. Phanatic; Spade - Mandala (7:18)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154BBE9445CADC6D312E56F37C6802A1B2F6D8D8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369164   (905650) от 22.03.2020
+
+!Бум! - Опять Идет Дождь (2004) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Море (4:04)
+02. Роза (4:08)
+03. Опять идёт дождь (3:49)
+04. Жди (4:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A8A0B5D0494A6A848186FC50BDF34F1DD6B24A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369043   (905649) от 22.03.2020
+
+Quincy Jones - Four Classic Albums Plus 1953 - 1961 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905649.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Walkin' [10:49]
+02. A Sleepin' Bee [4:43]
+03. Sermonette [5:59](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 02:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577E9292D5042C8A237000EB1A6B3B9D6F8C96A3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368954   (905648) от 22.03.2020
+
+VA - Record Super Chart 630 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARIA - Bleu Chanel (NA-NO Remix) 2:43
+02. Anthony Keyrouz - Love Yourself 2:56
+03. SAINt JHN - Roses (Imanbek Remix) 3:58
+04. Carla Morrison - Disfruto 3:57(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D27132AB59FCA54D307BF2262671018C9CA7564
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369255   (905647) от 22.03.2020
+
+Архимандрит Андрей (Конанос) | Неисчерпаемый источник. Беседы о единстве с Богом и ближними (2020) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905647.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге архимандрита Андрея (Конаноса) «Неисчерпаемый источник» собраны беседы известного современного проповедника, которые учат, как найти источник любви, как прийти в единение с Богом, собой и ближними, как это единение может наполнить сердце радостью и утешением.
+
+«Минуты любви наполняют сердце счастьем и утешением, потому что ты возвращаешься в своё реальное (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D74A1875A14173B05F9414EB617F787B0DA8F0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369135   (905646) от 22.03.2020
+
+VA - Kontor Festival Sounds 2020.01: The Beginning (2020) [MP3|320 Kbps] <House, Club House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerome - Take My Hand (Extended Mix) 3:33
+02. Dimitri Vegas & Like Mike vs. Timmy Trumpet - The Anthem (Der Alte) (Extended Mix) 3:50
+03. W&W x Timmy Trumpet & Will Sparks feat. Sequenza - Tricky Tricky (Extended Mix) 3:37
+04. Armin van Buuren feat. Ne-Yo - Unlove You (Nicky Romero Extended Remix) 4:22(   Читать дальше...   )Жанр: House, Club House, Progressive, Hardstyle, ElectronicПродолжительность: 07:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38F271A98F0789AED0B8B953FC80C097EA36EB7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369162   (905645) от 22.03.2020
+
+Турбомода - Улицы Центральные (2004) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Улицы центральные (4:24)
+02. Не целуй её (4:05)
+03. Дождь (4:11)
+04. Не плачь (3:59)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F22C5E29D8A823E30DAEB93B3E25CFBD09F137
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368449   (905644) от 22.03.2020
+
+Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Beyond Infinity (10:06)
+02.Green Planet (10:04)
+03.Milky Way (10:11)
+04.Deep Probe (10:37)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2AA8688D5B4791A57CF38ECEBBFAC65B05A99B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292770   (905643) от 08.02.2011
+
+VA - Radioplay Dance Express 906D (07.02.2011) [MP3|320 kbps]<Dance / Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Roll Deep Feat. Alesha Dixon - Take Control-(Extended Mix)[06:00]
+ 02. Cheryl Cole - Promise This-(New Addiction Remix) [03:33]
+ 03. DJ Sava Feat. Raluka - Love You-(Radio Edit) [03:30]
+ 04. Impact Vs. Moving Elements - Today-(Radio Edit) [03:44]
+ 05. Sasha Lopez - All My People-(Radio Edit)[03:53]
+ 06. Ryan And Radu - Rush Love-(Radio Cut) [03:28]
+ 07. Daft Punk - Derezzed [01:47]
+ 08. Virginalex - Sexual Bizarre-(Marco Rigamonti Radio Remix) [03:51]
+ 09. Swedish House Mafia Vs. Tinie Tempah - Miami 2 Ibiza-(Extended Vocal Mix Clean) [05:08]
+ 10. Nelly Furtado - Night Is Young-(Manhattan Clique Remix) [06:50](   Читать дальше...)Жанр: Dance / PopПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659B9A2ECADBD50A691580E58605FB5F3A737B09
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369048   (905642) от 22.03.2020
+
+Илья Снегов - Судьба (1996) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вспомни
+02. Поговорим о любви
+03. Судьба
+04. Устало сердце(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3A93A1B9850D7584A0A9F7DEBC11009979ED04
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292441   (905641) от 08.02.2011
+
+DJ Feel - TranceMission (06.02.2011) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Woods - No Access (Original Mix)Жанр: Trance, Progressive TranceПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3141CEBE6F8C2047BD93A234BFBE611DB01B6EE7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369144   (905640) от 22.03.2020
+
+Турбомода - Затурбись! (2001) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Позови (4;15)
+02. Турболюбовь (ла-ла-ла) (4:32)
+03. Ты забудешь меня (4:16)
+04. Чонкин (3:37)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F58AE2352B3D0D2F245258B10657ABCF0BCCC363
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292783   (905639) от 08.02.2011
+
+VA - Radioplay Urban Express 906Y (07.02.2011) [MP3|320 kbps]<Dance / Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. Papa Reu - Bumble Bee (What The Buzz About)-(Radio)[04:00]
+2. Fabolous - You Be Killin Em-(Edited) [03:33]
+3. Yella Boy Feat. Javonte - Fly Away-(Radio) [03:30]
+4. Mutt And Jeff - Fair Exchange-(Radio) [03:09]
+5. Nelly - Just A Dream-(8barz Remix) [02:56]
+6. Keyshia Cole Feat. Nicki Minaj - I Ain't Thru-(Radio) [04:02]
+7. Yung Berg - Sex In The City-(Radio) [03:48]
+8. Usher - More [03:51]
+9. Mariah Carey - Oh Santa! [03:32]
+10. Chris Brown - No Bs-(Radio) [04:10](   Читать дальше...)Жанр: Dance / PopПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8913D51995B795FAC4BABAEA0B172897540FD24C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369059   (905638) от 22.03.2020
+
+Хаим Соколин | И сотворил Бог нефть... (2015) [PDF, FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о поисках нефти, личного богатства и любви. Современный роман на актуальную тему, наполненный динамичными событиями и невыдуманными историями.Жанр: Современные детективыФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8743D04D8D5CDEBDE8E4A56FF7C9B2B5B90E1BBF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293068   (905637) от 08.02.2011
+
+VA - Only Best Trance volume 8 (06.02.2011) [MP3|320 kbps]<Vocal Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Vocal Trance, TranceПродолжительность: 03:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCC44240E11DC9EA0DA0EB7BA3323C9F7571D3F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369156   (905636) от 22.03.2020
+
+Burning Witches - Dance with the Devil (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Incantation (0:57)
+02. Lucid Nightmare (4:50)
+03. Dance with the Devil (4:26)
+04. Wings of Steel (4:29)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34ECA20158132F23474B55A7C4B992DDC825A899
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293022   (905635) от 08.02.2011
+
+VA - One Night Clubbing 2011 (08.02.2011) [MP3|320 kbps]<Electro House / Electro, House/Disco House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. Las Vegas - Set You Free (Scarmix & Remakerz Radio Edit) (3:04)
+2. Felix Wellcom - Talk to Me (Marc Canova Edit Remix) (3:38)
+3. gianni kosta - Over (Radio Edit) (2:40)
+4. David Mas - Turn Around (Radio Edit) (3:49)
+5. Toni Granello - Wings of Love (Remady Radio Mix) (3:41)
+6. Scarmix, Remakerz feat. Kdeeja - Hit Me (Radio Edit) (3:09)
+7. Tony Marquez feat. Phylly - In Love With the Music (Radio Edit) (3:21)
+8. SUNDAY - Para Bailar (Santo Riviera Edit Radio) (3:43)
+9. Digital Affair - I'm Your Dj (Radio Mix) (3:12)
+10. Seight - Bass Attitude (Radio Edit) (3:16)(   Читать дальше...   )Жанр: Electro House / Electro, House/Disco HouseПродолжительность: 01:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F802A5B484F8B2FD20D45272B7CA727A7E4BB6FD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369200   (905634) от 22.03.2020
+
+VA - Битва Dj - Chief MC Vs. Бинокль Vs. Anna Lee (2003) [MP3|320 Kbps] <Progressive House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_905634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Collins - In The Air Tonight (Kluster Dark Mix) (8:50)
+02. J Groove's - Beginning To Believe (Original Mix) (6:08)
+03. Rephlex One - Pulse (Coming Soon Remix) (6:38)
+04. UDG - Workshop Of Devil (5:24)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B25C891A7D3CACCD2CBE1F8ABA0C48AA24ECE6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

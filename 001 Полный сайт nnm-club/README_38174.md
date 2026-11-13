@@ -1,0 +1,792 @@
+###  Публикация: 447409   (93045) от 11.02.2012
+
+Anda Adam & Kourosh Tazmini - Can U Feel Love (2012) WEBRip 1080p
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+2012Продолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768EF034FAE832DBB6C81C605395AF3792DA869A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450472   (93044) от 11.02.2012
+
+DJ Hero - 20:ILLEVEN (2012) [MP3|320 kbps]<Breaks, Breakbeat>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Pump Kerplunk (Original Mix)
+02. B Boy Hustle (Original Mix)
+03. This Ish Is Breaks (Original Mix)
+04. Sound Clash (Original Mix)
+05. DJ 04Hero - Baddest DJ (Illeven Eleven Re Edit)2012Жанр: Breaks, BreakbeatПродолжительность: 01:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAB84E90DBF06144BE55EE4E20E06832EB2FE51
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448493   (93043) от 11.02.2012
+
+Nasty Mane & Project Pat - Belly On Full (2012) [MP3|192 kbps]<Dirty South>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Belly On Full Intro (Feat. Dj Smallz)
+02. F*ck That Beef Shit (Prod. By J Green)
+03. Gettin' It In (Prod. By Hot Rod)
+04. F*ck Yo Feeling (Prod. By Keyz)
+05. Money & Marijuana (Feat. Juicy J) (Prod. By J Green)
+06. Money Mane (Remix) (Feat. 2 Chainz & Tatalalicious) (Prod. By Lex Luger)
+07. I'm 2 High (Prod. By Crazy Mike)
+08. 400 A Zip (Feat. Lil Wyte & BPZ) (Prod. By Money Train)
+09. Bounce It Like A Ball (Prod. By Mouse On Tha Track)
+10. Pussy Out The Shower (Prod. By Hot Rod)(   Читать дальше...   )2012Жанр: Dirty SouthПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F52FD0967CC28A5CBFD5CE4D29935CDFA0E45BE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449616   (93042) от 11.02.2012
+
+Undertow - Два альбома (2006,2009) [FLAC (image+cue)|Lossless]<Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_93042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:24)
+02. The Bitter Taste (3:51)
+03. Art Of Falling (4:13)
+04. Still Waiting (4:50)
+05. Threedouble Chime (4:37)
+06. Smoke Garden (5:10)
+07. Ashtray Memories (4:43)
+08. Beyond Dreaming (4:45)
+09. File Under Unexpected (5:36)
+10. Drenched In Gasoline (13:08)Жанр: Thrash MetalПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B11EBFCA677CBC50602C79EB54DB56E8C165E5F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450832   (93041) от 11.02.2012
+
+Ричард Пратер | Разворошённый муравейник [2012] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Очередная книга о передрягах и приключениях частного детектива Шелла Скотта. Не жалея жизни и здоровья он противостоит плохим парням и защищает невиновных.Все последующие события Вы узнаете прослушав аудиокнигу до конца, ведь только так вы сможете насладиться, в полной мере, книгой детективного жанра.Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1346E4B23CE1C6DFA2204438164CE80CAC00D0F8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450968   (93040) от 11.02.2012
+
+Despondency - Revelation IV (Rise Of The Nemesis) (2009) [FLAC|Lossless]<Slamming Brutal Death Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_93040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Existence of Dismay
+02. Victimize Their Idols
+03. Invidious
+04. Rise of The Nemesis
+05. Silent Extinction
+06. Screams of The Forsaken
+07. Steps To Supremacy
+08. Sermon of Mockery (PYREXIA Cover)
+09. The Source of Inhumanity2009Жанр: Slamming Brutal Death MetalПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450879   (93039) от 11.02.2012
+
+Deep Audio - Digital Poetry (2003) [FLAC|Lossless]<Downtempo, Ambient Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Breathless
+02. Give It Up
+03. Beautiful
+04. Blue Like The Sky
+05. Crash & Fall
+06. Keep Moving On
+07. Baby Girl
+08. Alive
+09. Wakest Days
+10. Endless(   Читать дальше...   )2003Жанр: Downtempo, Ambient ChilloutПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450549   (93038) от 11.02.2012
+
+Pharaoh - Bury The Light (2012) [MP3|320 kbps]<Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Leave Me Here To Dream (04:55)
+02. The Wolves (04:51)
+03. Castles In The Sky (05:02)
+04. The Year Of The Blizzard (07:45)
+05. The Spider's Thread (04:04)
+06. Cry (04:22)
+07. Graveyard Of Empires (06:42)
+08. Burn With Me (04:00)
+09. In Your Hands (05:07)
+10. The Spider's Thread (Reprise) (01:34)Жанр: Power MetalПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D6D1A7B2596EFFF3E245D1538273B6DCF56153
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450417   (93037) от 11.02.2012
+
+[Wallpapers] Collection HQ Wallpapers №115
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Collection HQ Wallpapers №115Название: Collection HQ Wallpapers №115
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1024x768 до 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6C6B4C38ECC560EB43683E2FAC8DC81116F352
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450573   (93036) от 11.02.2012
+
+"Говорим и показываем" с Леонидом Закошанским - Обезображенные (10.02.2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Есть проекты, в которых много говорят. Ну и пусть говорят. А в ток-шоу на НТВ - говорят и показывают. В прямом эфире, на глазах у всей страны! Только актуальные и провокационные темы. Только злободневные события и их участники. Правда и только правда. "Говорим и показываем" с Леонидом Закошанским - это ежедневное информационное ток-шоу с элементами специального расследования. Темой программы всегда становится самая обсуждаемая новость страны.Жанр: ТелепередачаТелекомпания: НТВПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9458AA3F829005B00CBA932646FE1F94154E51C4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450671   (93035) от 11.02.2012
+
+VA - Райская 100-ка DFM 6 50x50 (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Sergey Fisun - History 2012
+02. Dev - In The Dark
+03. Размер Project - My Moscow Love
+04. Alexunder Base Feat. Soel - Set Me Free (Radio Edit)
+05. Ю. Волкова - All Because Of You
+06. Christopher S & Max Urban - Star
+07. С. Лазарев - Electric Touch
+08. Rihanna Feat. Calvin Harris - We Found Love
+09. Dj Next Feat. Dj Solar Explosion - Жажда Танца (Dance Club 2012)
+10. Maroon 5 Ft Christina Aguilera - Move Like Jagger(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358906EAB76DED65695F1888BE0A007F94A811CB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450775   (93034) от 11.02.2012
+
+Русские сенсации. Великая троица (2012.02.11) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Программа "Русские сенсации" - это еженедельное документальное приложение к "Программе Максимум". Созданная в лучших традициях расследовательской журналистики, программа развивает и углубляет этот жанр, затрагивая темы, о которых раньше никогда не рассказывало отечественное ТВ. Большинство фильмов - уникальные разработки, слишком громкие и масштабные для еженедельной "Программы Максимум". Другие темы продолжают лучшие расследования "Программы Максимум", расширяя их до уровня общенациональной проблемы. Проект "Русские сенсации" сохраняет все особенности стиля "Программы Максимум": актуальность, репортажность, активную работу репортера на месте расследования. Даже в случае с историческими детективами, делается упор на репортажную составляющую, а не на хронику (если только речь не об уникальной хронике). В каждом выпуске мы стремимся найти свой поворот темы, уникальных свидетелей, эксклюзивную информацию, которая раньше хранилась только под грифом "секретно". (   Читать дальше...   )В выпуске: Их любили все, но такими не знал никто.
+Зачем Моргунов дружил с ворами в законе, а Вицин всю жизнь скрывал правду о своем отце, кто посылал к Никулину наемного убийцу и почему их великая дружба закончилась враждой?
+Уникальный видеоархив великой троицы.Жанр: ДокументальныйПродолжительность: ~ 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B9FDC1D7129FE4526E5BCE3D1C6F57D677AA1B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450575   (93033) от 11.02.2012
+
+Пусть говорят - Анна Самохина: два года спустя (10.02.2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«Пусть говорят» - ток-шоу Андрея Малахова - корифея яркого и феерического вечернего эфира. Гости программы «Пусть говорят» интересны и знамениты, обсуждаемые темы - актуальны и оригинальны. Участники шоу оставляют скучные фразы вне съемочной площадки и вступают в азартные дебаты.
+
+Программа претендует на звание информационно - аналитической, потому дискуссии не менее содержательны, нежели эмоциональны. «Пусть говорят» - место совершения настоящих метаморфоз - политики превращаются в простых людей, а простые люди - в политиков. О чем бы ни шел разговор, право голоса имеет каждый.Жанр: ТВ-ШоуТелекомпания: Россия, Первый каналПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78632FFA7CD8DF5773910CB9FC7937F2E5FA5860
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450741   (93032) от 11.02.2012
+
+DVDFab 8.1.6.2 Final + Portable | RePack by KpoJIuk [Мульти|Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+DVDFab – мощный, многофункциональный программный продукт для копирования DVD дисков с возможностями гибкой обработки видеопотока. Программа является одной из лучших на сегодняшний день, из инструментов для копирования, разбиения, пережатия и конвертирования DVD дисков с фильмами. Снимает все защиты и ограничения с диска и при желании пережмет диск большой емкости и вместит его в обыкновенную пустую DVD болванку с минимальными потерями качества (DVD9->DVD5) или разобьет фильм на два диска с полным переносом его меню, удалит всю рекламу, запишет только фильм и многое другое. Программа имеет интуитивно понятный, мультиязычный интерфейс включая русский.Название программы: DVDFabЯзык интерфейса: Мульти|Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446931   (93031) от 11.02.2012
+
+Pat Martino - We'll Be Together Again (1998) [FLAC|Lossless]<Post-Bop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Open Rode
+02. Lament
+03. We'll Be Together Again
+04. You Don't Know What Love Is
+05. Dreamsville
+06. Send In The Clowns
+07. Willow Weep For Me1998Жанр: Post-BopПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450654   (93030) от 11.02.2012
+
+Журнал | Диетика №3 [2012 февраль] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+"Диетика" - ключик к твоей стройности - женский журнал о здоровом питании, диетах, фитнесе и многом другом. Журнал для тех кто хочет быть красивым и здоровым. Он научит Вас выбирать здоровые продукты, правильно их готовить и усвоить из них всё самое полезное и необходимое.
+Научит системе питания -здоровой, сбалансированной, учитывающей ваши индивидуальные особенности. Такой, которая настолько гармонично «впишется» в ваш образ жизни, что вы сможете придерживаться ее постоянно. Мы подобрали для вас системы, которым доверяем сами.2012 февральФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAAB3093CD6191C016E15D0ED7321FF75EE85786
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449980   (93029) от 11.02.2012
+
+VA - Dixlux Coolest Dubstep Grooves (2012) [MP3|320 kbps]<Dubstep, Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Skrillex - Right In (Original Mix)
+02. The Others - Say To You
+03. Haywyre - The Voyage (Original Mix)
+04. Hirshee feat. Tonye Aganaba - So Good (Original Mix)
+05. iNexus - Ownage (1Up Remix)
+06. Hybrid - Blind Side (Widescreen Eclectro Mix)
+07. Alex Mind feat. Sue Cho - Deeply Into You (Callum B Remix)
+08. The King Blues - The Future's Not What It Used To Be (Liquid Stranger's Phunk Remix)
+09. Xilent - Choose Me II
+10. Nenna Yvonne - Go Around (Coastill Remix)2012Жанр: Dubstep, Drum & BassПродолжительность: 01:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747B73D515620A61BC5BA4F7D4A0D1EB3963CEC3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449403   (93028) от 11.02.2012
+
+VA - Record Super Chart № 226 (04.02.2012) [MP3|192-320 kbps]<House, Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_93028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LMFAO - Sexy And You Know It [03:19]
+ 02. Klaas - Changes (Original Mix) [06:00]
+ 03. Dj Kuba & Ne!tan - Deejay Deejay (Peppermint Remix) [05:08]
+ 04. Klaas & Bodybangers - I Like (Bodybangers Mix) [04:58]
+ 05. Sarvi - Amore (Chuckie Remix) [05:16]
+ 06. Niels van Gogh vs. Emilio Verdez - Beatrocker (Original Mix) [05:17]
+ 07. Rihanna Feat. Calvin Harris - We Found Love (Chuckie Remix) [03:35]
+ 08. Dj Antoine vs. Empire Of The Sun - Walking On A Dream (Mash Up) [03:29]
+ 09. DJ's From Mars feat. Fragma - Insane (In Da Brain) (Original Club Mix) [05:35]
+ 10. Rene Rodriguez vs. DJ Antoine feat. MC Yankoo - Shake 3x (Radio Edit) [03:05](   Читать дальше...   )04.02.2012Жанр: House, Trance, DanceПродолжительность: 02:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F691104A08D187B8C6F902247BEF4B15010DC651
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450499   (93027) от 11.02.2012
+
+IsoBuster 2.9.0 Beta Portable [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+IsoBuster - это программа для чтения и извлечения данных из CD/DVD и BD/HD DVD. Работая в обход Windows, позволяет восстанавливать испорченные данные с компакт-дисков, в том числе "обходить" сбойные участки, вызванные переполнением буфера при записи или механическими царапинами. Поддерживаются образы форматов DAO, TAO, ISO, BIN, IMG, CIF, FCD, NRG, GCD, P01, C2D, CUE, CIF, CD и GI.Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450931   (93026) от 11.02.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 1
+Название: Sexy Girl Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1600x1200 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815797A2377240989F459CD24FD8DAC29381524F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450599   (93025) от 11.02.2012
+
+Beverly Hillbillies [En] (RePack) 1993 | Pilotus
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Красивейший квест на движке World Builder (на котором до этого было сделано множество хитов) по мотивам американского телесериала 70-х годов.
+Ваш герой – Джед Клэмпетт, почтенный старец, настоящий «пионер» прерий, охотник и лесник, живущий в большой усадьбе на опушке леса с женой и многочисленным семейством. Но в один далеко не прекрасный день патриархальному быту приходит конец - на его земле обнаруживается нефть, и он в одночасье становится потенциальным миллиардером. Джед решает организовать добычу своими силами, а на заработанные деньги отправляется вместе со старушкой женой в Лос-Анджелес – посмотреть на городскую жизнь. Тут-то и начинается юмористическая «комедия положений», а местами – очень грустная, потому как сюжет игры – на самом деле очень глубокий и печальный.Тип издания: RePackЖанр: ПриключениеЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D26B600B32B4588C90DA6C444618712FD68429C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450509   (93024) от 11.02.2012
+
+MPC HomeCinema 1.6.1.4055 Portable [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic HomeCinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: он умеет воспроизводить DVD диски, умеет аппаратно декодировать популярный формат H.264 на видеокартах последнего поколения, умеет корректно работать со вторым монитором (телевизором), поддерживает различные виду субтитров, умеет работать с форматами QuickTime и RealVideo и т.д. Плеер имеет небольшой размер и полностью понятный и не перегруженный излишними функциями интерфейс, переведенный на 14 языков. Имеет полную совместимость с Windows XP и Windows Vista, причем не только 32- битной версией, но и 64-битной.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450748   (93023) от 11.02.2012
+
+VA - VIP Персоны на Европе Плюс (2012) [MP3|256 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Катя Чехова - Новая я
+02. Chris Parker - Space
+03. Слава - Люди любят
+04. Maroon 5 feat. Christina Aguilera - Moves like jagger
+05. Саша Зверева - Схожу с ума
+06. Christopher S feat. Max Urban - Star (Mike Candys remix)
+07. Пропаганда - Наберу
+08. Basslovers United - Basket case (PH Electro radio edit)
+09. Чи-Ли - Облака
+10. Basto! - Again and again2012Жанр: PopПродолжительность: 05:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915F00807D76BA63A44513A8DE785A74CC6A0466
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450577   (93022) от 11.02.2012
+
+Eric Carr - Unfinished Business (2011) [MP3|192 kbps]<Hard-n-Heavy>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01 Eric speaks to the fans (0:06)
+02 Just Can’t Wait (3:55) Carr / Kulick / Mitchell (1987)
+03 Troubles Inside You (2:28) Carr / Weissman (1987)
+04 Eric talks about his music (0:11)
+05 No One’s Messin' With You (3:14) Carr / Kulick (1989)
+06 Carr Jam 1981 (3:11) Carr
+07 Eric talks about audition (0:17)
+08 Shandi (3:55) Stanley / Poncia
+09 All Hell’s Breakin’ Loose (4:28) Carr / Stanley / Simmons / Vincent
+10 Dial L For Love (2:52) Carr / Mitchell (1987)(   Читать дальше...   )Жанр: Hard-n-HeavyПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD7D3C8AE89894AAB764091A540E82DFED34C17
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450633   (93021) от 11.02.2012
+
+[Wallpapers] Американские классические автомобили 2.
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Американские классические автомобили
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEA4EF42987D7C1B7E0C91F2A0372E25AA46D6F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450413   (93020) от 11.02.2012
+
+[Wallpapers] Avto Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 1Название: Avto Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1280x960 до 3000х2000
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF1825FFD44395AA8A7A12FA26194127477EBE0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

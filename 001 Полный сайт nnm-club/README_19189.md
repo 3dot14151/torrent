@@ -1,0 +1,729 @@
+###  Публикация: 759556   (590253) от 09.07.2015
+
+Беты / Betas (2013) WEB-DLRip [H.264/720p-LQ] (сезон 1, серия 1-7 из 11) (BaibaKo) (обновляемая)
+
+>>След.
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590253.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Силиконовой долине правильный алгоритм может сделать вас королем. Стартапы - новые проекты в области высоких технологий - хлеб насущный для 4х друзей-разработчиков, которые ищут инвестора. А между делом попадают в забавные ситуации. Кстати, прообразом приложения BRB, которое они разрабатывают, послужил реальный проект Nearby.Производство: СШАЖанр: комедияРежиссер: Майкл Леманн, Тодд Штраус-Шульсон, Энди ТеннантАктеры: Джо Диникол, Каран Сони, Джон Дэйли, Чарли Сэкстон, Майя Эрскин, Эд Бегли мл., Мадлен Зима, Тайсон Риттер, Марк Л. Янг и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Артемий Мирон, Акмал Гурезов, Дмитрий Глебов и Юлия КотурбашПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166AD6951A9FBFD9456825F68E585A56668A3E8B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916885   (590252) от 09.07.2015
+
+Превосходство Борна / The Bourne Supremacy (2004) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суперагент ЦРУ Джейсон Борн вновь оказывается подставленным и вынужден помимо возложенной на него задачи государственного значения спасать себя, а заодно и других небезразличных ему людей. В процессе выполнения миссии судьба заносит Борна в Россию, где его ждет множество характерных для страны, но непривычных западному человеку сюрпризов.Производство: США, Германия | Universal Pictures, The Kennedy/Marshall Company, Motion Picture THETA Produktionsgesellschaft mbH & Co. KG, Millennium Films, Ludlum EntertainmentЖанр: Боевик, ТриллерРежиссер: Пол ГринграссАктеры: Мэтт Дэймон, Карл Урбан, Брайан Кокс, Джоан Аллен, Джулия Стайлз, Франка Потенте, Гэбриел Манн, Мартон Чокаш, Том Гэллоп, Карел Роден, Джон Бедфорд Ллойд, Этан Сэндлер, Мишель Монахэн, Томас Арана, Оксана Акиньшина, Евгений СитохинПеревод: Профессиональный дублированный, профессиональный двухголосый, авторскийЯзык субтитров: Русский (Forced, Full), АнглийскийПродолжительность: 01:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA7E1F4DD42381456890DBEF3D5B8F1201D006E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916694   (590251) от 09.07.2015
+
+Microsoft Windows XP Professional with Service Pack 3 - Оригинальные образы от Microsoft MSDN [Multi/Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows XP Professional создана на основе программного ядра, которое использовалось в операционных системах Windows 2000 и Windows NT Workstation. Это ядро, которое называется ядром NT, позволило сделать операционную систему XP более эффективной, безопасной та стабильной по сравнению с системами Windows Me, Windows 98 и Windows 95. Пользователи, которые раньше работали (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие (Multi26)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BAE172DF9716629FDF213501E1E13A063C7DACC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916740   (590250) от 09.07.2015
+
+Microsoft Windows XP Professional VL with Service Pack 3 - Оригинальные образы от Microsoft MSDN [Multi/Ru] (26хCD)
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows XP Professional создана на основе программного ядра, которое использовалось в операционных системах Windows 2000 и Windows NT Workstation. Это ядро, которое называется ядром NT, позволило сделать операционную систему XP более эффективной, безопасной та стабильной по сравнению с системами Windows Me, Windows 98 и Windows 95. Пользователи, которые раньше работали (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие (Multi26)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE6F5DB27B8D716F638D60AF5694900CBBA0C64
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551176   (590249) от 15.05.2022
+
+St. October - Whatever Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Melodic Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rise.Fall.Ignite. (00:01:05)
+02 - With Open Eyes (00:05:00)
+03 - Ghosts (00:05:58)
+04 - White Goddess (00:03:44)(   Читать дальше...   )Жанр: Gothic, Melodic Groove MetalПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3DB3F2F743102FA15537F3299466BC542A3C51B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551297   (590248) от 15.05.2022
+
+Mudweiser - The Call (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Fuzz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Invitation (00:04:23)
+02 - High Again (00:04:13)
+03 - Blasted Forever (00:03:12)
+04 - Sister Mary (00:05:07)(   Читать дальше...   )Жанр: Stoner, Fuzz RockПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BBACF36C77BFA2FBAD943ACC39A5662DE30392
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551334   (590247) от 15.05.2022
+
+The Soft Eggs - Tantric Eels (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Whirl (00:06:04)
+02 - Blizzard of dolphins (00:04:24)
+03 - Lake of Indecision (00:03:44)
+04 - Dying Peepshow (00:03:24)(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E098C54820DEE6346CD7F779F268ECCD9457687F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551264   (590246) от 15.05.2022
+
+Fausto Ferraiuolo Trio - Il Dono (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Island [4:52]
+02. Three [4:19]
+03. Rue de la Vega [5:26]
+04. O Impro Mio [4:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD29476D132214685030599BA0E30FB9CC7FD01
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551267   (590245) от 15.05.2022
+
+Luigi Martinale French Trio - Mercj (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pop Imagination [5:28]
+02. It Ain't Necessarily So [5:04]
+03. Puccini [3:09]
+04. Sundial Time [6:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84FC23B6582944C91B4B4DA32162FB5206644CB9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551185   (590244) от 15.05.2022
+
+SevenSins - My Triumph (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Aeon (00:02:42)
+02 - Anathema (00:04:52)
+03 - Hypocrisy (00:04:38)
+04 - Slipknot (00:04:42)(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4915D8552E8E3ED5D6E325A0C4B6D35471FB927
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551198   (590243) от 15.05.2022
+
+Orkan - Livsgaranti (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Urskog (00:04:48)
+02 - Leva for att do (00:03:17)
+03 - Livsgaranti (00:04:37)
+04 - Vagrar vara tyst - forsta delen (00:05:29)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1ACE43E2CC969F8F11438811D8A9394B6C2380
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551399   (590242) от 15.05.2022
+
+Владимир Одоевский, Дмитрий Мамин-Сибиряк | Городок в табакерке. Серая Шейка (1996) [MP3, Николай Литвинов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка о том, как устроена музыкальная шкатулка (табакерка). Рассказ о том, как важна дружба (Серая Шейка).Жанр: Радиоспектакль, СказкаПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFCDE73E1E89FFA4DD51C3FA409869656D3CEA8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551199   (590241) от 15.05.2022
+
+Carmen Lundy - Good Morning Kiss (1985) 2002, Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_590241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Is Love [2:43]
+02. Dindi [5:55]
+03. The Lamp Is Low [8:05]
+04. Perfect Stranger [3:28](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551319   (590240) от 15.05.2022
+
+Jeff Scott Soto - Complicated (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last to Know (4:25)
+02. Disbelieving (3:38)
+03. Home Again (3:33)
+04. Love is the Revolution (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BF876FE9A0D40780655C95DBA986934A726EE5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551324   (590239) от 15.05.2022
+
+Kammerflimmer Kollektief - Teufelskamin (2011) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Dark Jazz, Experimental Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coricidin Boogie (4:31)
+02. Never Collapse, Always Dazzle ! (3:56)
+03. Teufelskamin Jam #1 (10:22)
+04. Shangrila (1:43)(   Читать дальше...   )Производство: Staubgold – staubgold digital 16Жанр: Nu Jazz, Dark Jazz, Experimental RockПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF0633CDB0A46D970360CC73A5E451912B4E66C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551304   (590238) от 15.05.2022
+
+Constancia - Brave New World (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal, Hard Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_590238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brave New World (4:59)
+02. Forget Me Not (3:29)
+03. Blame It On Love (3:39)
+04. Synchronistic (3:57)(   Читать дальше...   )Жанр: Progressive Metal, Hard RockПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551271   (590237) от 15.05.2022
+
+Jason Scheff - Here I Am (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will You Still Love Me (5:39)
+02. Here I Am (4:32)
+03. Look Away (4:18)
+04. Wonderful Day (4:08)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C7F18B37D6B6FF0B053083B4D1C0D2802CA258
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551389   (590236) от 15.05.2022
+
+Своя игра (15.05.2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: РусскиеПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325084FE39D40943C124685057903491FC93EB91
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551367   (590235) от 15.05.2022
+
+Suicide Queen - Nymphomaniac (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Industrial Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_590235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Angel (00:03:32)
+02 - Scarecrow (00:04:49)
+03 - Swan (00:04:44)
+04 - Witch (00:03:30)(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551311   (590234) от 15.05.2022
+
+Сто к одному (15.05.2022) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60304930F966115DEF58C87AE342F10A26CFE31B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551409   (590233) от 15.05.2022
+
+Георгий Скребицкий | Звери разных стран (1971) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590233.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказывается о самых разных животных нашей планеты, об их удивительных повадках. Бонусом идут красочные иллюстрации каждого.
+Для детей старшего дошкольного и младшего школьного возраста. Иллюстрации Д.Горлова.Жанр: РассказФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D32408FA9B8F71F804B1E94F5DB2DFEAF612EAB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551415   (590232) от 15.05.2022
+
+Александр Комаров | Звери (1946) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_590232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга с красочными иллюстрациями животных и птиц, живущих на просторах нашей необъятной родины.
+Иллюстрации авторские.Жанр: ЭнциклопедияФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551377   (590231) от 15.05.2022
+
+Junkyard Drive - 3 Albums (2017-2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Burn [00:03:39]
+02. Electric Love [00:04:16]
+03. Mr. Rock N' Roll [00:03:34]
+04. Home [00:04:13](   Читать дальше...   )Жанр: Hard RockПродолжительность: 3 CD, 02:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3274C7CC4923CCF96BCD0BA4B73F18033622D164
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551274   (590230) от 15.05.2022
+
+Edge Of The Blade - Distant Shores (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me (2:58)
+02. Feel The Fire (3:25)
+03. Angels Fear To Tread (3:50)
+04. Lonely To (3:03)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BFAFABDFFDCA6B9DE4EB30D2245DB3B59BB9BD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551272   (590229) от 15.05.2022
+
+The Brave - Evie’s Little Garden (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evie’s Little Garden (4:34)
+02. Run To You (4:37)
+03. I’ve Always Wondered (4:17)
+04. We’re Not In Kansas Anymore (5:08)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFFE0629C751D101E925143138EFE80C65AE4D9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551352   (590228) от 15.05.2022
+
+Morok - Вне света & На круги своя (1997) 2CD, Remastered & Reissued, 2022, Der Schwarze Tod/COD Music [FLAC|Lossless|image + .cue] <Russian Pagan Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_590228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Полночь
+2. Предтеча
+3. Сгоревшая река
+4. Дыхание осени(   Читать дальше...   )Жанр: Pagan Metal, Black MetalПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2016FC08C55D91A9AAD8A49B7787613BAF69FB9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

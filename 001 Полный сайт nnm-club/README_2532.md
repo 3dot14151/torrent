@@ -1,0 +1,722 @@
+###  Публикация: 1459233   (1023335) от 01.04.2021
+
+BluePlum Home Inventory 4 v4.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023335.jpg" />
+</div>
+
+
+###  Подробнее
+
+BluePlum Home Inventory - наиболее полное приложение для инвентаризации дома, которое поможет вам составлять и поддерживать инвентарь для любой собственности, какой вы владеете. Оно позволяет вам организовать свои вещи в коллекциях, комнатах, местах и ​​/ или присвоить каждому из них один или несколько тегов. ПО позволяет добавлять фотографии, видео, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2021Разработчик: Blue Plum SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8A3697087D3F9829062AF62B9138E8B64729CC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459225   (1023334) от 01.04.2021
+
+Transcending Mortality - The Last Horizon (2006) [APE|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Remembrance
+02. Into The Light
+03. The Spiral
+04. Veil Of Midnight(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AAE60259843705BD79E7FC80EE21641885DDDDE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459396   (1023333) от 01.04.2021
+
+Grids for Instagram 7.0.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grids переносит лучшее из Instagram на ваш Mac. Grids for Instagram - простая и удобная программа имеющая чистый не отвлекающий пользовательский интерфейс на Русском языке, позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом между ними легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2021Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A848381E16438F7FFC7C48B2D77A87A69B6945
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459306   (1023332) от 01.04.2021
+
+Perpetual Paranoia - Hell Fest (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Martyr
+02. Death Is Coming for Me
+03. Evil Eye
+04. Meet My Maker(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3483E4516004E076BD733D7252E5F12B5345AFFC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459165   (1023331) от 01.04.2021
+
+Sinamort - The Idle Veil (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laumė [00:07:45]
+02. The Way We Were [00:09:34]
+03. Maldoror [00:09:10]
+04. Pantheon [00:09:12](   Читать дальше...   )Жанр: Doom Metal, Progressive MetalПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CEB7460C00D0BFC3214AFA58C9ACCD40625A89
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459393   (1023330) от 01.04.2021
+
+Downie 4 v4.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 01.04.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48FF2D9FF5760CB96D656DF1A2435C39DD829B6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459317   (1023329) от 01.04.2021
+
+VA - Beatport Techno: Electro Sound Pack #268 (2021) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техно охватывает большую аудиторию меломанов и какое-то время было довольно модным явлением. Но любое модное направление рано или поздно сменяется другим, и техно со временем все глубже уходит в андеграунд. Возможно, причина в том, что эту музыку затруднительно слушать дома — она предназначена для клубов, вечеринок и танцев.001. Varuna - Trackjam
+002. Sin Plomo - It's You
+003. Daniel Neuland - Moon Saloon
+004. Goldwave - Reef Radio(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 12:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A8229787EA5D3BE5F8C70882C59C55F7CF10D9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459303   (1023328) от 01.04.2021
+
+Blackthorne - Don't Kill The Thrill (2016) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023328.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Don't Kill The Thrill
+02. Wild Inside
+03. Skeletons In The Closet(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 02:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1152A8895EB187C003D6CE0C425C343C4FDBC042
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459324   (1023327) от 01.04.2021
+
+Simon Collins - Becoming Human (2020) [FLAC|Lossless|image + .cue] <Experimental Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Fray (1:18)
+02. Becoming Human (4:17)
+03. The Universe Inside Of Me (6:59)
+04. Man Made Man (4:19)(   Читать дальше...   )Жанр: Experimental Rock, Prog RockПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD0302B4F7D62AEEF5D9EDA211FEB513EFDDC1D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459368   (1023326) от 01.04.2021
+
+VA - Tails Of The Unexpected (2021) Pulse State [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Electro, Acid, Techno, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Auberg1ne – Terk (04:00)
+02. Humanoid – Oeeeoou (07:59)
+03. CRC – EP6 (05:42)
+04. Karsten Pflum – School (04:15)(   Читать дальше...   )Жанр: IDM, Downtempo, Electro, Acid, Techno, AmbientПродолжительность: 03:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A541FDB755B03A0F4E74980E7C5E2506F1E3A8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459436   (1023325) от 01.04.2021
+
+Wondershare DVD Creator 6.1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare DVD Creator - программа для создания нового DVD из всех популярных видео-форматов.
+Основные возможности: создание DVD с полноценными меню и субтитрами; выбор из имеющихся пред настроек или собственная настройка параметров видео - битрейта, фреймрейда, качества и других параметров DVD, поддержка NTSC и PAL, поддержка соотношений картинки 4:3 и 16:9, предварительный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2021Разработчик: Wondershare Software Co., LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF2BE02719E58E7DA135ADBF480E011009C7B0C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459328   (1023324) от 01.04.2021
+
+VA - Night Tropic Party: Clubbing Techno Mix (2021) [MP3|320 Kbps] <Club, Dance, Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техно охватывает большую аудиторию меломанов и какое-то время было довольно модным явлением. Но любое модное направление рано или поздно сменяется другим, и техно со временем все глубже уходит в андеграунд. Возможно, причина в том, что эту музыку затруднительно слушать дома — она предназначена для клубов, вечеринок и танцев.001. Jf Lee - Lago (Original Mix)
+002. Iva Dive - Bang Bang (Original Mix)
+003. Alonso Bierg - Natural Flow
+004. Human Robot - Cyberphysical Space(   Читать дальше...   )Жанр: Club, Dance, Techno, Tech HouseПродолжительность: 12:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C308AA1F70E17858BAE7D6865764FF21BD0781
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459246   (1023323) от 01.04.2021
+
+OnyX 3.9.5 for macOS Big Sur 11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023323.jpg" />
+</div>
+
+
+###  Подробнее
+
+OnyX для macOS Big Sur 11 - отличное приложение для оптимизации macOS, тонкой настройки скрытых возможностей Finder, Dock, Safari, Dashboard, Expose, Disk Utility, очистка системного кэша и кэша приложений, просмотр различных отчетов и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Titanium SoftwareПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B7BC84248CCB311AF2D1DEBB6355C2CCC39EE7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459404   (1023322) от 01.04.2021
+
+I Am Spartacus - Trigger Happy (2021) [MP3|320 Kbps] <Punk Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Push and Pull
+2. Go Fund Yourself
+3. You Don't Know Anything
+4. Move or Move On(   Читать дальше...   )Жанр: Punk Rock, RockПродолжительность: 00:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2B568CDEE6D8B96D376C8ACA58D414BFC8757E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459345   (1023321) от 01.04.2021
+
+Odyssey Desperado - Don't Miss The Sunset (2018) Reissue, 2020, Lions Pride Music [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rush Of The Wave
+02. You And Me Against The World
+03. Cruisin
+04. Dreams Die hard(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DF0B1297E257766C1D4AD5D7FEDE000B20B1A1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459411   (1023320) от 01.04.2021
+
+Сергей Житомирский, Константин Порцевский, Володар Шимановский, Елена Широнина | Моя первая энциклопедия. Космос (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из этой книги ребенок сможет узнать больше о планетах и звездах, о космических полетах.
+
+Замечательные иллюстрации, множество любопытных фактов сделают эту книгу отличным подарком для вашего ребенка.
+(   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8E705410C30553228599B5B705D5F5CDDC1B7F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459363   (1023319) от 01.04.2021
+
+Opera 75.0.3969.141 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88E1E3FA58C9DA4416BCD60F1D630AA34BB8585
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459447   (1023318) от 01.04.2021
+
+Zacar Orchestra - Disco-Take (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkness (4:45)
+02. Superfly (4:12)
+03. Like To Love (3:49)
+04. Baby Get Down (4:17)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42AED927F99E0DBFF16505244932DBFDA7BE31A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459319   (1023317) от 01.04.2021
+
+Visions Of Atlantis - A Symphonic Journey To Remember (2020) Live [WavPack|Lossless|image + .cue] <Melodic Metal, Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. The Deep & The Dark
+03. New Dawn
+04. Ritual Night(   Читать дальше...   )Жанр: Melodic Metal, Symphonic Power MetalПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56800B824831C8C5622BFC133607CB7D766A9FC8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459283   (1023316) от 01.04.2021
+
+QuarkXPress 2020 16.3.2 [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощная издательская система QuarkXPress обладает широким набором инструментов для обработки текста, создания web-страниц, управления графическими элементами и цветом, а также имеет интуитивный интерфейс. В настоящее время QuarkXPress очень широко используется в типографиях, журнальных, газетных и книжных издательствах, маркетинговых и рекламных агентствах, дизайнерских (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2021Разработчик: Quark Software Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B2E1905C1BBDE14E45A2C551F05797D9E07E97
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459398   (1023315) от 01.04.2021
+
+Марсель Перез. Новая горничная слишком симпатична / La nuova cameriera e troppo bella (1912) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сосем маленькая короткометражка. Но очень милая. И вообще чем привлекательны подобные фильмы? Вроде такая старина, больше ста лет. Соответствующее качество, без перевода. А ситуации, характеры, юмор абсолютно узнаваемы, очень даже современны. Люди, по существу, не изменились со времен Адама.Производство: Италия, Società Anonima AmbrosioЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: Марсель Перез, Нильде Баракки, Armando PilottiПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2201EEBA9CC77AA96ABD3232AFD1DD3491A1E2C8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459431   (1023314) от 01.04.2021
+
+4K YouTube to MP3 4.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023314.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 01.04.2021Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C911550FEC83499892B734B71B6B4258776C68
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459321   (1023313) от 01.04.2021
+
+William F. Cornell, Anne de Graaf, Trudi Newton, Moniek Thunnissen | Into TA: A Comprehensive Textbook on Transactional Analysis (2018) [PDF] [En]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Into TA 1st edition (May 8, 2018) - это всеобъемлющий учебник современной теории и практики Трансактного Анализа (ТА). Первый раздел книги посвящен теории, представленной таким образом, чтобы как начинающие, так и опытные профессионалы могли найти много полезного. Теория ТА затем интегрируется с другими текущими моделями психологии, образования и организационного (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15ABE2E72D1668D766FC91C331F6D30E44D2A4C8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459290   (1023312) от 01.04.2021
+
+Udemy, Emile Ackbarali | An Introduction to Profibus DP Networking  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/015/save_picture_1023312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Profibus DP - один из наиболее часто используемых протоколов в индустрии автоматизации. Тем не менее, узнать об этом - настоящая проблема. Вы можете сделать все возможное, проведя Интернет-исследование по этой теме, и вы все равно обнаружите, что информация будет в основном высокого уровня. Вы просто не сможете перейти к практическим деталям.
+В этом суть этого курса (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 02:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06EFFF1E34A378F61A1091B9991F81104D66D649
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459421   (1023311) от 01.04.2021
+
+Происшествие (1974) WEBRip [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023311.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе сюжета - работа школьного "зеленого патруля", который помогает леснику лечить раненого лосенка и искать браконьеров...Производство: СССР / ТО «Экран»Жанр: Семейный, приключенияРежиссер: Борис ДуровАктеры: Светлана Крючкова, Ирина Мурзаева, Алексей Чернов, Зоя Фёдорова, Юрий Назаров, Валентина Телегина, Александра Денисова, Владимир Пицек, Виктор Авдюшко, Вадим Захарченко, Аркадий ЛистаровСубтитры: ОтсутствуютПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D51BA46FBB7C84920805FB1D0C3715E847B783
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459329   (1023310) от 01.04.2021
+
+VA - Oceanica (2021) [MP3|320 Kbps] <Ambient, Meditative, Relax, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1023310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чрезвычайно красивая и атмосферная музыка релиза "Oceanica" идеально впишется в любую ситуацию и во всякое время. Лонгплей отличает большое количество технических особенностей и незначительные нюансы, вдаваться в которые попросту нет смысла, просто необходимо это слушать001. Hakobune - Nebulous Sequence
+002. Espionage - May 28th
+003. Tarotplane - Ritual Believer
+004. Grigoni & Hatakeyama - To The Brim(   Читать дальше...   )Жанр: Ambient, Meditative, Relax, New AgeПродолжительность: 08:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2F92A427EA781313D69C78474C74FE8845901D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

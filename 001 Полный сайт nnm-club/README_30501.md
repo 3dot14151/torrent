@@ -1,0 +1,745 @@
+###  Публикация: 847545   (296141) от 05.12.2014
+
+Дыхание Пустоты - Искупление (2014) [MP3|320 кб/с]<Sympho Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Стефан (Интро)
+02. Смерть
+03. Воины Северного Ветра
+04. Пепел
+05. Пусть Он Падет!
+06. Иерихон
+07. Никогда
+08. Книга Мертвых Имен
+09. Новый Путь
+10. Хрустальный Сон(   Читать дальше...   )Жанр: Sympho Heavy MetalПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A69C67388D2E1388CB37E17E43951D32E220BAF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847596   (296140) от 05.12.2014
+
+Специальный корреспондент. Сто лучших агитационных плакатов Киева (2014.12.05) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны и мира событий.
+Вниманию телезрителей предлагаются фильмы производства студий Аркадия Мамонтова, Бориса Соболева Александра Рогаткина и Александра (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: ~ 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D074068E50184A41E776C574EAFB08D914533CEC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078917   (296139) от 03.12.2016
+
+VA - Drum & Bass Code (2016) [MP3|320 Kbps] <Drum And Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mazo - Color Sparks  05:59
+02. Wados - Philisophy  03:37
+03. Ravenlore - Indifference  03:39
+04. Paul Fex - Return To Escapizm  05:06(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 02:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D992949036F45574A6AB4B046C20CB37E4D60ACA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079196   (296138) от 03.12.2016
+
+Журнал | Моя прекрасная дача №24 (декабрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя прекрасная дача - это самые лучшие советы дачников и садоводов, это ваш надёжный друг и помощник! Семена, рассада, полив, уход, хранение урожая, благоустройство участка - вы на всё найдете ответ в выпусках журнала.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC63A81297BF41B36DD19889DE9DFFF85C962EFE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079064   (296137) от 03.12.2016
+
+Джеральд Даррелл | Юбилей ковчега (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеральд Даррелл - великолепный писатель-натуралист, знаменитый путешественник - обладал неповторимым даром рассказчика и тонким юмором. Его книги помогли миллионам детей и взрослых по всему свету по-новому взглянуть на мир живой природы и ощутить себя неотъемлемой ее частью. "Юбилей ковчега" - история о судьбе знаменитого зоопарка, созданного Дарреллом (   Читать дальше...   )Жанр: Путешествия, биология, научно-популярная литератураПродолжительность: 06:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57102BC0F60360B36EC1D173035BD0BB6649A6F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078619   (296136) от 03.12.2016
+
+Алексей Лосев | Гомер (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга крупнейшего знатока античности профессора А.Ф. Лосева представляет собой фундаментальное исследование древнегреческого эпоса, связанного во всей мировой культуре с именем слепого и мудрого певца Гомера. Доскональное знание гомеровского вопроса, блестящая интерпретация текста - это лишь некоторые отличительные особенности труда А.Ф. Лосева, не имеющего аналогов (   Читать дальше...   )Жанр: Культурология, историяПродолжительность: 20:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD083A2E7746B577B0A19ACC25F0828D99BA69A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078826   (296135) от 03.12.2016
+
+Brian Tyler - Brake / Тормоз (Original Motion Picture Soundtrack) (2012) [FLAC|Lossless|tracks+.cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brake (Main Title) (02:09)
+02. Roulette (03:36)
+03. The Blind Watchmaker (03:26)
+04. Inside The Box (01:35)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7465D7E8F39689A91D64DE287ED80E69D85A9DF3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079005   (296134) от 03.12.2016
+
+VA - Goa 2016 Vol.5 (Compiled by DJ BIM) (2016) [MP3|320 Kbps] <Goa Trance, Psychedelic, Full On>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azax & Pettra - Aboriginman (feat Mayumana) 6:35
+02. Yoake - Pickers 7:30
+03. Animato & Ticon - Last Resort 8:13
+04. Rocky Tilbor - Carnival Wave (Ritmo Remix) 7:53(   Читать дальше...   )Жанр: Goa Trance, Psychedelic, Full OnПродолжительность: 02:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EB5D8A14CB068D118DF5DED8551AAE67C66310
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079326   (296133) от 03.12.2016
+
+Sara Lee - Queen Of Your Heart (2016) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Oh (02:29)
+02. Voodoo Voodoo (02:38)
+03. New York City Bank (02:42)
+04. Stay By My Side (04:03)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079A9CA06B3D0D89ED04453FD56B2EDB0C61A23D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079146   (296132) от 03.12.2016
+
+Mike Sanchez & His Band Feat. Imelda May - Almost Grown (2012) [MP3|320 Kbps] <Rockabilly, Jump Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let The Good Times Roll (02:45)
+02. Voodoo Voodoo (02:32)
+03. Almost Grown (02:14)
+04. I'll Go Crazy (04:34)(   Читать дальше...   )Жанр: Rockabilly, Jump BluesПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7E0433F4F3417B0323E62DF7943AB57244DBE5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079209   (296131) от 03.12.2016
+
+Юмор! Юмор! Юмор! (2016.12.03) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296131.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 апреля много не бывает! Автор и ведущий Евгений Петросян считает, что этот (да и следующие за ним дни!) не стоит использовать для глупых розыгрышей. В этот день нужно делать забавные, приятные сюрпризы и рассматривать его как призыв к веселому взгляду на жизнь, к стремлению радоваться жизни и друг другу. Именно поэтому зрители увидят фрагменты из самых смешных (   Читать дальше...   )Телекомпания: РоссияЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D52EAE6B1E718E96079372FE54DF5785EE3A467
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079330   (296130) от 03.12.2016
+
+Журнал | Народный доктор №7 (461) (апрель 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о здоровье. Основа каждого номера журнала – письма читателей, в которых авторы делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеленияЖанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECC8BB78BD8DC5713F858B39580D9BBE7DB286E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079448   (296129) от 03.12.2016
+
+The Thrillseekers - Escape (2016) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In These Arms (4:00)
+02. Stay (feat. Shannon Hurley) (6:10)
+03. Without You (feat. Gina Dootson) (4:38)
+04. Amber (7:17)(   Читать дальше...   )Производство: FSOEЖанр: TranceПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474DA699A6D5C0BC55A19E52347C08E0193CFE87
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079354   (296128) от 03.12.2016
+
+Журнал | Усадьба №4. Ягодное царство (ноябрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето радует нас изобилием ягод. Они приносят огромную пользу организму, поэтому все, кто имеет заветные сотки, стремятся побаловать себя и своих близких витаминной продукцией — выращивают малину, клубнику, смородину, крыжовник, голубику и т.д. При этом ягодные культуры хороши тем, что они не только быстро созревают, но и в основном дают большую урожайность. Главное, (   Читать дальше...   )Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF9ECCF66ADD7B7FDF4577F949A20CDFE665FA9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079081   (296127) от 03.12.2016
+
+Max Richter - Morgan / Морган (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack, Ambient>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sketch for a Portrait #1 (01:09)
+02. Morgan (Main Title) (03:21)
+03. The Unfamiliars (01:31)
+04. An Artificial Heartbeat (01:01)(   Читать дальше...   )Жанр: Soundtrack, Score, AmbientПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA52346350118C3335296F480942480FCC82E75
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079287   (296126) от 03.12.2016
+
+VA - Electric For Life 2016 (Mixed by Gareth Emery) (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Vivet feat. Mister Blonde - Slow Burn (Original Mix) (4:03)
+ 02. Gareth Emery & Alastor feat. London Thor - Hands (Diviners Remix) (3:19)
+ 03. STAMEN - What I Want (Original Mix) (3:30)
+ 04. Chicane feat. Moya Brennan - Saltwater (Jody Wisternoff Remix) (4:25)(   Читать дальше...   )Жанр: Trance, VocalПродолжительность: 04:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBA973E3815C06617E2F85CFDA2AE4C6F4B5F63
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079071   (296125) от 03.12.2016
+
+Whiney - Stranger Tides (2016) EP [FLAC|Lossless|tracks] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moondance (Original Mix) (05:13)
+02. On the Rocks (Original Mix) (05:29)
+03. Stranger Tides (Original Mix) (04:35)
+04. Onyx (Original Mix) (04:40)Жанр: Drum & BassПродолжительность: 00:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8754CF626144A325F5AE32A8AC38301AFAD686
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078939   (296124) от 03.12.2016
+
+Франсуаза Саган | Окольные пути (2010) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как известно, драматург Франсуаза Саган в своих многочисленных произведениях поднимала неисчерпаемую тему взаимоотношений между людьми, а также - много писала о любви. В этот раз речь пойдет о событиях лета 1940-го года. Несколько французских аристократов спешно вынуждены покинуть оккупированный гитлеровцами Париж и, случайно оказавшись на маленькой загородной ферме, (   Читать дальше...   )Жанр: Зарубежная проза, радиосериалПродолжительность: 03:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD38CDEF53ABD2EDA5E02F8165C03EEA3B6E6E19
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079065   (296123) от 03.12.2016
+
+VA - Billboard Hot 100 Singles Chart (10.12.) (2016) [MP3|320 Kbps] <Pop, Hip-Hop, RnB,  Indie, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296123.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
+002. The Chainsmokers feat. Halsey - Closer 4:06
+003. Twenty One Pilots - Heathens 3:16
+004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop, Hip-Hop, RnB,  Indie, Folk, DanceПродолжительность: 06:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112AB22100DD64014306232FD2A4EABC3964250B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079285   (296122) от 03.12.2016
+
+Ганс Христиан Андерсен | Новое платье короля. Соловей императора. Стойкий оловянный солдатик (2010) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы, конечно, знаете, что есть такая страна Дания. На карте она сплошь закрашена зеленой краской. И действительно, здесь, куда ни посмотришь, расстилаются луга, широкие равнины, на которых разбросаны небольшие поселения и маленькие городки с чисто подметенными улочками, с домами, крытыми красной черепицей. Дания – родина великого сказочника Ганса Христиана Андерсена. (   Читать дальше...   )Жанр: Сказка, детская литература, аудиоспектакльПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6DFCCB6B7631D29BBC34EB39FC619D6A60ED83
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078398   (296121) от 03.12.2016
+
+Мария Метлицкая | Её последний герой (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мария Метлицкая уверена: женская мудрость - в умении понять, простить и принять. Ведь никто не знает, сколько кому отмерено радости ... Автор приподнимает занавес, за которым - чужая жизнь, но читателю все время хочется сказать: "Это я". Это я...
+Илья Городецкий. Бывшая легенда отечественного кинематографа. Бывший покоритель дамских сердец. Бывшая звезда. (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 10:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE9D2A858395AD99CBD8CE36CE098CFF992E5C6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079248   (296120) от 03.12.2016
+
+Ледниковый период. Новый сезон (2016.12.03) SATRip (выпуск 10)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_296120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое красочное и искрометное ледовое шоу возвращается после двухлетнего перерыва в эфир Первого канала.
+Звезды театра, кино, телевидения и спорта примерят коньки и сразятся за оценки беспристрастных судей во главе с Татьяной Анатольевной Тарасовой. Где, как не в жесткой борьбе, лучше всего раскрываются характеры звездных героев?Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 02:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9222139A76273CBB6D2046ED8007FFF36F494BB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 268012   (296119) от 10.12.2010
+
+VA - Chart Top10 (07.12.2010) [MP3|320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_296119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Streamrocker - To The Moon And Back (DJ Amor Remix) (5:41)
+02 Boney M - Jingle Bells (Greysound Radio Edit) (2:42)
+03 Slin Project feat. Mossy - Keep On (Big Room Mix) (6:24)
+04 Nuera feat. Szen - Love Lost (Electro Mix) (7:43)
+05 Fast Foot - Bad Boys (Original Mix) (6:18)
+06 Mark Pride feat. Auris - On the Beach (Original Mix) (4:47)
+07 Monkey Business - One More Try (Disco Freak Remix) (6:26)
+08 David May Ft. Max Urban - Facebook Love (Remady Remix) (6:36)
+09 Freedome - Where Have You Gone (Joy Di Maggio Remix) (7:10)
+10 Ensaime Feat. Marcamoly - Ibiza (Luca Bressan Remix) (6:04)Жанр: Electro HouseПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF9A31B79DDE84F9FE669FBAF4F5875AA8F0BA0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 268016   (296118) от 10.12.2010
+
+VA - New Music vol. 100 (08.12.10) [MP3|320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. Manuel Baccano Ft. Eve Lamel - Make Your Movel Soulskid Rework
+2. Remady Ft. Craig David - Do It On My Own Mike Candys Club Remix
+3. Black Eyed Peas - The Time Dirty Bit Audio Brothers Remix
+4. Lazy Rich Ft. Lizzie Curious - Boom! Original Mix
+5. Calvin Harris - Flashback Disco Reason Remix
+6. UGUR KILIC - Angel Never Die Weela Remix
+7. Rihanna - Only Girl In The World R-BlaZin Remix
+8. Ali Nadem - Electro Gladiator v3.0 Original Mix
+9. Stream Dance Project - New Year 2011 Original Mix
+10. Lara Fabian Vs. Baracuda - I Will Love Again DJ Solovey Remix(   Читать дальше...)Жанр: Electro HouseПродолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3441A1B1013891C5E42F0FDD6B5B4F86CA82AFC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 267945   (296117) от 10.12.2010
+
+VA - Music Exclusive from DjmcBiT vol.107 (2010) [MP3|320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro HouseПродолжительность: 01:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F148BA36BB21260BEEB0AD8FFE22F965A6D187AE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 267546   (296116) от 10.12.2010
+
+VA - New Music vol. 99 (07.12.2010) [MP3|320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. 1-01 For Ear Bounce-Chrizz Luvly vs Boni Suba
+2. Chris Decay - Like That Original Club Mix
+3. Eric Chase - Everybody Surrender Original Mix
+4. Jason Derulo - The Sky Is The Limit Wideboys Club Mix
+5. Samuraj - Pump Up The Volume Sledge Seavers Remix
+6. Yanis.S Feat Sandra - All The Time Mastering 2011 Extented Mix
+7. Half Hour - Dr. Endo Original Mix
+8. Duffy - Well Well Well Digital Dog Club Mix
+9. SD Project - Happy New Year 2011 Rework Version
+10. Black Eyed Jett - I Love Dirty Bit DJs From Mars Club RemixЖанр: Electro HouseПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:094B74C860B759CE075D2F4CB4EAD09FED2D3876
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,0 +1,722 @@
+###  Публикация: 1381395   (822771) от 09.05.2020
+
+Grids for Instagram 6.0.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grids - передовая программа для Instagram на Mac. Переносит лучшее из Instagram на ваш компьютер.
+Программа проста и удобна. Имеет чистый, не отвлекающий пользователя, мультиязычный интерфейс. Позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: ThinkTime Creations LLCПоддерживаемая ОС: 10.12 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87EC0B302652D67B3EDFCBC4B7661272053C359
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381932   (822770) от 09.05.2020
+
+VA - 2020 Disco Party (2020) [FLAC|Lossless|WEB-DL|tracks] <Jackin' House, House, Nu-Disco, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audio Jacker - Party Time Again (Original Mix) (5:39)
+02. Disko Junkie - This Disko Feelin' (Original Mix) (5:20)
+03. Discotron - Only Foolin' Yourself (Original Mix) (5:26)
+04. Boogie Freaks - Everybody Jumpin' (Original Mix) (6:25)(   Читать дальше...   )Жанр: Jackin' House, House, Nu-Disco, DiscoПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BC13B0005811D28D1C31A8617001D8F313F6E1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382161   (822769) от 09.05.2020
+
+Aging - Sentenced To Love (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Jazz Noir, Experimental, Dark Ambient>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beneath Heaven (7:50)
+02. The Trapped Man (7:19)
+03. Nights In Amber (7:28)
+04. Sentenced To Love (8:12)(   Читать дальше...   )Жанр: Doom Jazz, Jazz Noir, Experimental, Dark AmbientПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94988F7CB51D61D8C9EB3D0997D7E6AE8E598598
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382151   (822768) от 09.05.2020
+
+Yojo - The Stepson (2020) [FLAC|Lossless|Web-DL|tracks] <Post Dark Jazz, Post Rock, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Pill (4:43)
+02. Zeroin (7:58)
+03. Firefighters Are Sleeping (6:41)
+04. Dream Drome (9:48)(   Читать дальше...   )Жанр: Post Dark Jazz, Post Rock, InstrumentalПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A99CDAF7622CFF2C164A08746A5F31C52FE750F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381996   (822767) от 09.05.2020
+
+VA - German Top 100 Single Charts 08.05.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capital Bra x Loredana - Nicht verdient
+02. UFO361 - Emotions
+03. Shirin David - 90-60-111
+04. The Weeknd - Blinding Lights(   Читать дальше...   )Жанр: PopПродолжительность: 05:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28B45129E02E6E2BD9582C702AC858B77DC886E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382064   (822766) от 09.05.2020
+
+Allavsoft Video Downloader Converter 3.22.5.7433 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2D4FB2F7DB6D32F27D9C8A4C0FB4A1A93B5147
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381980   (822765) от 09.05.2020
+
+VA - The Official UK Top 40 Singles Chart 08.05.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - Toosie Slide
+02. Doja Cat - Say So
+03. Megan Thee Stallion - Savage
+04. Powfu - Death Bed (feat. beabadoobee)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2E09B14CE51D15A84F772AC9786BC1C3B64816
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381964   (822764) от 09.05.2020
+
+Наталья Павлищева | Дожить до весны (2020) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая зима блокады Ленинграда была самой страшной. Кольцо замкнулось уже 8 сентября, и город оказался к этому не готов. Отопление в квартирах отсутствовало, дрова взять негде, а столбик термометра уже с ноября начал опускаться ниже минус двадцати градусов. Ни электричества, ни воды, ни транспорта, лишь постоянные бомбежки и артобстрелы. И, конечно, те самые «сто (   Читать дальше...   )Жанр: Историческая проза, Книги о войнеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913B0B2574DD87F61F4DE6F7CF84C7F11075DE4A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116399   (822763) от 20.03.2017
+
+В Украине появятся курсы по борьбе с пиратством
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Государственная служба интеллектуальной собственности и Национальная академия внутренних дел подписали меморандум, согласно которому в Украине планируется начать подготовку специалистов по борьбе с пиратством. Занятия намерены проводить на базе академии, сообщает пресс-служба МВД.Кто может пойти учиться?
+Курсы рассчитаны на правоохранителей Министерства внутренних (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116189   (822762) от 20.03.2017
+
+Юрий Тынянов | Пушкин в лицее (1974) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лицейские главы, записанные на этой пластинке, - лишь небольшая часть романа Ю. Тынянова «Пушкин», в свою очередь задуманную им и незаконченную трилогию Кюхельбекер - Грибоедов - Пушкин. Трилогию о художниках, чьи жизненные пути столкнулись на одном историческом перекрестке и были разведены временем по разным руслам. «Эта книга - не биография, - писал Тынянов в черновике (   Читать дальше...   )Жанр: Биография, классика, литературные чтенияПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFA66C523C265481EE68F951EF0D024A825172D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116532   (822761) от 20.03.2017
+
+Zmey Gorynich - Malafya (2016) (EP) [MP3|320 Kbps] <Folkcore, Metalcore, Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Mother Russia! (01:02)
+02. Морозобой (03:25)
+03. Ой, Лёли-Лёли! (04:07)
+04. Айнанэ (03:39)(   Читать дальше...   )Жанр: Folkcore, Metalcore, Pagan MetalПродолжительность: 00:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B664E348E9C9F114A1454E761BBEE14B3573ED
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116446   (822760) от 20.03.2017
+
+Вадим Громов | Обитель Кошмара [Сборник рассказов] (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обитель Кошмара – авторский сборник рассказов Вадима Громова, объединяющий его творчество за 2015 – 2017 годы. В нем представлены его разноплановые работы, представленные в разных жанрах, от мрачной фантастики до леденящего кровь хоррора.
+Вадим Громов — российский писатель-фантаст, работающий преимущественно в жанре хоррора, автор книг для детей. С 2014 года автор (   Читать дальше...   )Жанр: Фантастика, мистика, хоррорПродолжительность: 05:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F435423371D9D97513B33C6CA85B63AED8762C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116408   (822759) от 20.03.2017
+
+Убийца в семье / A Killer in the Family (1983) DVDRip [H.264] [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое сыновей планируют побег отца из тюрьмы, который был осужден за убийство. После побега они должны уйти из штатов в Мексику. Но, на дороге, они начинают познавать новый черты своего любимого отца...Производство: США, Stan Margulies Productions, Sunn Classic PicturesЖанр: Триллер, Драма, КриминалРежиссер: Ричард Т. ХеффронАктеры: Роберт Митчем, Джеймс Спэйдер, Лэнс Кервин, Эрик Столц, Салом Дженс, Линн Карлин, Стюарт Марголин, Арлисс Ховард, Аманда Уайсс, Сьюзэн СвифтПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: OтсутствуютПродолжительность: 01։35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB139FAB43076A205D1CF178EA43FB58BA07A9B2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116163   (822758) от 20.03.2017
+
+VA - Imaginary Tibetan Journey Music Soothing Atmosphere, Namaste Yoga, Deep Meditation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ageless Tibetan Temple - Imaginary Tibetan Journey Music
+02. Brain Stimulation Music Collective - Asian Meditation (Cello & Waves)
+03. Reiki Healing Zone - Deep Sleep: Calming Music
+04. Deep Aura Meditation Ambient - Breathing Light(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C79BDEA0970731A789B86BC84A45EECA445685
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116454   (822757) от 20.03.2017
+
+Товарищи по команде / Team-Mates (1978) VHSRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка из старшей школы решает играть в школьной футбольной команде из за парня, который бросил ее. Этим она навлекает гнев не только своего бывшего, но и других футболистов...Производство: США, Independent-International PicturesЖанр: КомедияРежиссер: Стивен ДжейкобсонАктеры: Карен Коррадо, Макс Гофф, Айви Синклер, Майкл Голдфингер, Ричард Чиотти, Дебби Новак, Скотт Паркс, Г.И. Харрис, Бобби Каравелла, Джеймс СпэйдерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: OтсутствуютПродолжительность: 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E21B398F1B0F302BEA4C198E30A84B4ADC117A8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116510   (822756) от 20.03.2017
+
+Emperor - Shadow (2017) EP [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defect
+ 02. Shadow
+ 03. Calypso
+ 04. TirelessЖанр: Drum & BassПродолжительность: 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B025446CF04C7BCFFF43AAF276DD18C47F68E91
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116139   (822755) от 20.03.2017
+
+Джон Апдайк | Давай поженимся (1979) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Апдайк – писатель, в мировой литературе XX века поистине уникальный, по той простой причине, что творчество его НИКОГДА не укладывалось НИ В КАКИЕ стилистические рамки. Легенда и миф становятся в произведениях Апдайка реальностью; реализм, граничащий с натурализмом, обращается в причудливую сказку; постмодернизм этого автора прост и естественен для восприятия, (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 13:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB9DCE25E06F3B3F10F3F75A6475144967A8FE6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116599   (822754) от 20.03.2017
+
+VA - JOOF Editions Vol.3 - The Journey (Mixed by John 00 Fleming) (2017) [FLAC|Lossless|WEB|tracks|image] <Progressive House, Psy-Trance, Techno, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John 00 Fleming - JOOF Editions, Vol. 3 - The Journey (Continuous DJ Mix) (290:57)
+02. Solar Fields - The Road To Nothingness (6:56)
+03. Anthony G - Nestinari (Rick Pier O'Neil Remix) (6:37)
+04. SuprSi - Mellifluous (Album Edit) (4:28)(   Читать дальше...   )Жанр: Progressive House, Psy-Trance, Techno, TranceПродолжительность: 16:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABFBA9FE808A6D96CAFA8858BBFD34269E1F33D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116545   (822753) от 20.03.2017
+
+VA - Best of Deep-House. Volume 1. Innerbloom [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamantero Mazeltov - Perfect Day (3:45)
+02. Salski - Sunset (Salski Rework) (6:29)
+03. Blurry Slur, Orbs & Zen - Bobs Pillow (Peter Makto & Gregory S Remix) (7:36)
+04. Dinamica - In The Begining (Mr. Pepper Urban Jungle Remix) (5:49)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 05:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1B0137432C37C67B020BC124755F35823E41F9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116085   (822752) от 20.03.2017
+
+Майкл Каннингем | Снежная королева (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои романа “Снежная королева” – братья Баррет и Тайлер, истинные жители богемного Нью-Йорка, одинокие и ранимые, не готовые мириться с утратами, в вечном поиске смысла жизни и своего призвания. Они так и остались детьми – словно герои сказки Андерсена, они блуждают в бесконечном лабиринте, пытаясь спасти себя и близких, никого не предать и не замерзнуть.
+Особая (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 08:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289841D96F9204EF1B2121472478697A7929CB10
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116620   (822751) от 20.03.2017
+
+НеИгрушки - Я хочу быть с тобой (1999) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весна
+02. Я хочу быть с тобой
+03. Сто дней до приказа
+04. Лишь о любви(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAF23543E7E4AF671003F075A4C129318446C65
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116160   (822750) от 20.03.2017
+
+Новые детишки / The New Kids (1985) WEB-DLRip [H.264/720p-LQ] [EN/EN, RU Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822750.jpg" />
+</div>
+
+
+###  Подробнее
+
+В автокатастрофе у Лорен и Эбби МакУильямс погибают родители. В эту трудную минуту им на помощь приходят их дядя Мартин и тётя Фэй, которые предлагают переехать жить к ним. Лорен и Эбби устраиваются в местную школу и помогают дяди и тёте по дому, которые также владеют бензоколонкой и парком развлечений. Казалось бы жизнь стала налаживаться, но в школе, где учатся (   Читать дальше...   )Производство: США, Columbia Pictures Corporation, Fogbound Inc.Жанр: Триллер, ДрамаРежиссер: Шон С. КаннингэмАктеры: Шеннон Пресби, Лори Лафлин, Джеймс Спэйдер, Джон Филбин, Дэвид Х. МакДональд, Винс Грант, Терон Монтгомери, Эдди Джонс, Люси Мартин, Эрик СтолцПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Aнглийские, русскиеПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E50A64BD921CBA48A25B42944810688CCB26F5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116636   (822749) от 20.03.2017
+
+VA - All That Jazz Is Back (1999) Original Jazz Classics [FLAC|Lossless|image + .cue] <Swing, Bop, Cool, Hard Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cannonball Adderley - Things Are Getting Better [07:15]
+02. Chet Baker - How High The Moon [03:38]
+03. Count Basie - Jumpin' At The Woodside [04:34]
+04. Eddie "Lockjaw" Davis - Afro-Jaws [07:39](   Читать дальше...   )Жанр: Swing, Bop, Cool, Hard Bop, Vocal JazzПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDD65BB83EB21BC658B2792186D4828B1A3534E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116615   (822748) от 20.03.2017
+
+Кукуруза - Там, где солнечный свет (1993) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Widow Woman (Traditional) (4:41)
+02. Poor Wayfaring Stranger (Traditional) (3:27)
+03. Ты мне не был чужим / You Were Not A Stranger To Mе (Andrew Shepelev) (3:49)
+04. Coming Back To You (Leonard Cohen) (3:31)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B516203AC7708EBAE6EDF8F3892B82E96CA2BA10
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116550   (822747) от 20.03.2017
+
+Nocturnal Bloodlust - The Best '09-'17 (2017) 2CD [MP3|320 Kbps] <Metalcore, Deathcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Determination (01:17)
+02.BREAK THIS FAKE (04:32)
+03.Malice against (04:58)
+04.Punch me if you can (03:43)(   Читать дальше...   )Жанр: Metalcore, Deathcore, Post-HardcoreПродолжительность: 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273EAE3427990803EBD43D4B0DFEC4737839648A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116593   (822746) от 20.03.2017
+
+Однажды в России (2017.03.19) HDTV [H.264/1080i] (сезон 5, выпуск 1)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_822746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1AE0AF5622BDEC8A1539B201681CBBE23206EF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

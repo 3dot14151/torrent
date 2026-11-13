@@ -1,0 +1,729 @@
+###  Публикация: 1093570   (934025) от 15.01.2017
+
+Arizmenda - Despairs Depths Descended (2016) [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934025.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Christening Unborn Deformities
+2. Taste of Purity
+3. Sculpting Sins of a Universal Tongue
+4. Birth(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB18BD3883CC986F83F5290048837701A6D8A918
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093701   (934024) от 15.01.2017
+
+VA - Jack The PlaceUp (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mortimer Snerd III – Crazy Fox (Miggs & Mortimer ReTouch) 06:50
+02. TrackHead Steve – U 4Get About Me (Steve Miggedy Maestro ReTouch) 07:27
+03. Michele Laws – Saditty (Miggedy’s Jackin ReTouch) 06:35
+04. Tink Thomas – Breathe (Tink Thomas Mix) 08:56(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA6455BA934C98DEB1FDFC811C1BDCED46E668D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093557   (934023) от 15.01.2017
+
+Natalie Cole - Sophisticated Lady (1996) MCPS[APE|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.This will Be [02:52]
+ 02.Good Morning Heartache [04:21]
+ 03.Touch Me [04:15]
+ 04.Unpredictable You [03:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593771DDBA5A0ECD77F5ADB4F6FCB8328C53AF2E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093561   (934022) от 15.01.2017
+
+VA - Sounds Of ‘94 (1994) GRP Records[FLAC|Lossless|image + .cue] <Post-Bop, Vocal Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Scott - Upbeat 90's [04:28]
+02. David Benoit / Russ Freeman - Smartypants [05:43]
+03. Dr. John - Television [04:38]
+04. Diane Schuur / B.B. King - Spirit In The Dark [05:02](   Читать дальше...   )Жанр: Post-Bop, Vocal Jazz, Jazz FusionПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82AE917E2063EFDAC517F390F6DF75023FD3B2E0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093219   (934021) от 15.01.2017
+
+VA - Trance Hits Top 20 (2017-01) (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tritonal & Jenaux ft Adam Lambert - Broken (Super8 & Tab Remix)  2:57
+02.  Daniel Kandi & Miroslav Vrlik - You & Me  4:32
+03.  Aelyn - Game Over (Ruslan Radriges Remix)  3:22
+04.  Allen Watts - Square One  3:51(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913BD07FDB687C056FBDFCD8FF009861E14A230C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093526   (934020) от 15.01.2017
+
+VA - Wind In The Field (Downtempo Series) Vol.010 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jack-o'-Lantern - Soul (Original Mix)  4:17
+02.  Valefim Planet - Lotus Blossom (Original Mix)  5:54
+03.  Yevgeniy Khon - Love Is An Illusion (Original Mix)  4:32
+04.  Soteira - Anabiosis (Artyom Kopylov Breaks Edit)  4:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74542A925B9209D1CE680A9C900B61EA7E53DE7F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093521   (934019) от 15.01.2017
+
+VA - S.L.O.W. Collection Vol.2-Chill Out Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lunakid - Epic (Volta Cab's 808 Mix)  5:23
+02.  Ian Simmonds - Whoes Blues  6:33
+03.  The Sushi Club - Fish'N'Fruits  5:24
+04.  Ko-Dan - Gekko Locomotive  4:28(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C6395AA7DA490220564D9EE52787860D804808
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093475   (934018) от 15.01.2017
+
+Glenn Kaiser Band - Blacktop (2003) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Blacktop  (04:21) 
+02|  Useless Man  (04:45) 
+03|  Save Me From Myself  (03:52) 
+04|  Voice in the Wind  (04:53) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A205F0CE12CCDF406E7256DD851585F424B517ED
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093595   (934017) от 15.01.2017
+
+Главное. Итоговая программа (15.01.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое воскресенье в 18.00 ведущая программы Ника Стрижак подводит информационные итоги недели. В этом ей помогают авторитетные собеседники, ведущие авторских рубрик и команда корреспондентов Пятого канала.В этом выпуске: Америка между Обамой и Трампом. Зачем уходящий президент в оставшиеся дни всеми силами стремится добавить проблем новому лидеру? Как за 8 лет Обаме удалось стать худшим в истории США, какой он оставляет страну и что теперь со всем этим будет делать Трамп?
+Они рулят выборами в США! Взламывают сайты министерств и ведомств, сливают переписку чиновников! За их головы (   Читать дальше...   )Телекомпания: Пятый каналЖанр: ТелепередачаПродолжительность: 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCD619A1A1F1757DC4014F8274D5B2D612B35E5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093563   (934016) от 15.01.2017
+
+SAOR - Guardians (2016) [FLAC|Lossless|image + .cue] <Atmospheric Folk, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934016.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Guardians - 11:31
+2. The Declaration - 10:31
+3. Autumn Rain - 11:09
+4. Hearth - 11:27(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D775209EF455A1E2709D22B1C93F69067D2B2B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093376   (934015) от 15.01.2017
+
+VA - Favorite Collection by Dick Stein (2017) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A. Baskakov - Whales In The Sky (Original Mix)  3:34
+02.  FakeSoulMan - What Ever You Want & Noise In Your Head (Original Mix)  4:56
+03.  DJ Gravity - You Mind (Original Mix)  4:19
+04.  Awio Planet - Future (Original Mix)  6:13(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C988FB7666FED27A272AE75C6A892167F56311
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093670   (934014) от 15.01.2017
+
+Resistor - Underground (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival (7:45)
+02. Cathedral (4:02)
+03. Wire (3:30)
+04. Killers and Activists (4:12)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2187183363EDCCD1DC22DEA1E963F6200EDFA246
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093528   (934013) от 15.01.2017
+
+VA - Empire Records: Trance 2 (2017) [MP3|320 Kbps] <House, Electro House, Progressive House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bakun - Out Of Control (Phetros Remix)  6:01
+02.  Pirate Jams - Sweets From Heaven (Jolyon Petch's Late Night Mix)  5:06
+03.  Dainpeace - It's Not Too Late (Radio Edit)  2:42
+04.  Sam Feldt - What About The Love (Extended Mix)  4:14(   Читать дальше...   )Жанр: House, Electro House, Progressive House, Club, DanceПродолжительность: 01:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8E7C752FEE6E9EDE07DA1E0979E1CD30EBB482
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093531   (934012) от 15.01.2017
+
+Служу России (15.01.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934012.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Служу России!» - еженедельная итоговая военная программа телеканала «Звезда». Она освещает важнейшие события в сфере национальной безопасности. Это площадка, объединяющая все силовые ведомства при фундаментальной роли Вооруженных Сил. Самые актуальные события в жизни ВС, боевая подготовка частей и соединений на суше, на море и в воздухе, очерки о настоящих героях (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаПродолжительность: 00:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B0DC5BCF55803DE8DEF58A4FBBB0A12BF95908
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093554   (934011) от 15.01.2017
+
+Sarah McKenzie - Paris In The Rain (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tea For Two
+02. Paris In The Rain
+03. One Jealous Moon
+04. Little Girl Blue(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF791D731F3B6BABCC44061D288F3584CEC3BC0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093560   (934010) от 15.01.2017
+
+VA - Uplifting Only Top 15 January (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Apparel – Serenity (2016 Remaster) (12:09)
+02. Illitheas – Moments With You (07:35)
+03. LTN – Nothing Can Come Between Us (06:11)
+04. InnerSync – Elven Kingdom (11:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6578CAED7A5E17DB3F46BC296E979311409011
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093543   (934009) от 15.01.2017
+
+2Do 2.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934009.jpg" />
+</div>
+
+
+###  Подробнее
+
+2DO — мощный менеджер задач
+Следить за своими делами и составлять планы на день, бесспорно, полезное занятие. 2Do  - Мощная, но в то же время простая и удобная программа для составления списка задач и планирования дел.
+
+2Do представляет собой органайзер, но имеет ряд практичных отличий, которые могут выделить его на фоне конкурентов. Приложения данного класса подойдут (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 декабря 2016Разработчик: Beehive Innovations Ltd.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5822B60AC12CB50851735A1BA49B8672942B407
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985822   (934008) от 12.02.2016
+
+Марк Твен | Янки при дворе короля Артура (2010) [m4b|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предприимчивый янки, получив во время стычки удар по голове, попадает из Коннектикута конца XIX века в эпоху короля Артура. Благодаря кипучей энергии американца рыцари и вельможи, чародеи и монахи, прекрасные девы и простой народ приобщаются к благам цивилизации.
+И с удивлением узнают, что такое мыло, порох, электричество, газеты, телеграф и многое другое.Жанр: РоманФормат: m4bПродолжительность: 11:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD18F510409888564FCB4DC78DCB9788897D566
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985913   (934007) от 12.02.2016
+
+Алексей Макеев, Николай Леонов | Вам поручено умереть (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934007.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одном из московских скверов найдено тело бизнесмена, владельца мужского глянцевого журнала Сергея Курвихина. Его «БМВ» на месте не оказалось, как и кейса с деньгами, которые бизнесмен, по словам жены, кому-то должен был отвезти. Полковники Гуров и Крячко, взявшиеся за расследование, очень быстро отмели версию банального ограбления. Дело в том, что кейс с деньгами (   Читать дальше...   )Жанр: Современные детективы, Полицейские детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D294D91EEE8418BC153BF504B1F25EF4F01744B4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985717   (934006) от 12.02.2016
+
+Незваные гости. Как волна миграции захватывает Европу (12.02.2016) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934006.jpg" />
+</div>
+
+
+###  Подробнее
+
+За последний год на территорию Евросоюза прибыло несколько миллионов беженцев.
+Они бегут из Сирии, Ливии, Ирака, Марокко и Украины.
+Толпы голодных и нищих, временные лагеря, закрытые границы, переполненные приюты, стачки с полицией, грязь, беспредел…
+Такого европейцы не видели со времен Второй мировой войны.(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ДокументальныйПродолжительность: 01:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E25BFFF63894E3BBA418AC9DE03B2CB26014FA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985609   (934005) от 12.02.2016
+
+Mozilla Firefox 44.0.2 Final Portable by PortableAppZ [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завоевавший множество наград веб-браузер Firefox безопасен, быстр и имеет множество новых возможностей, которые изменят Ваше представление о работе в Интернете. В новой версии браузера Mozilla Firefox обновился движок – улучшилось качество отображения сайтов, возросла скорость их загрузки, совместимость со стандартами. Firefox содержит массу крупных и мелких улучшений (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F635459E454ECF159D94EB1CD9BE9ABCC536DD0A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985911   (934004) от 12.02.2016
+
+Роберт Уилсон | Расплата (2016) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934004.jpg" />
+</div>
+
+
+###  Подробнее
+
+После бурной вечеринки красавица Алишия, дочь индийского олигарха Фрэнка д’Круша, садится в такси – и исчезает. Похитителей не интересует выкуп, они требуют, чтобы отец девушки «проявил искренность». Как это понимать? Если миллиардер не найдет правильный ответ, Алишию ждет смерть.
+
+Нанятый д’Крушем специалист по переговорам с похитителями Чарльз Боксер пытается разгадать (   Читать дальше...   )Жанр: Современные детективы, Триллеры, Зарубежные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16ACB02114F757B3F71C3B916C096FA2E27AAE7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985523   (934003) от 12.02.2016
+
+Журнал | Мир криминала №3 (февраль 2016) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934003.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мир криминала» - одно из самых популярных СМИ криминальной тематики, на рынке свыше 10 лет.
+Недавно был сделан ребрендинг издания. У журнала теперь обновленный макет, постепенно меняется и содержание номеров. Хотя упор, как и прежде, делается на самые громкие и скандальные преступления в России и за рубежом, специальные расследования, эксклюзивные материалы из жизни (   Читать дальше...   )Жанр: История, криминалистика, детективФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA06D28F304137904BE694AE015001DB44AE263
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285794   (934002) от 22.01.2011
+
+Рыболов элит. Ловля голавля зимой на мормышку. (2009) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Не каждый рыболов может похвастаться опытом подледного ужения голавля на мормышку. Активный клев голавля зимой начинается часов с десяти, поэтому можно не выходить рано на лед. Грянувшие морозы осложнили выполнение главной задачи - голавль в руки не давался. Но упорство и мастерство сделали свое дело - осторожный, лобастый хищник оказался на льду.Жанр: Документальный, Телепередача, СпортПродолжительность: 00:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BB436AA46003AD6B64AE48781CAB1DA965DBA1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985685   (934001) от 12.02.2016
+
+Обои - Best Mix Wallpapers 130 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_934001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на различные темыФормат: JPGРазрешение файлов: 1280x800 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7765452FC39CB97087C138021AAFBDCBBD175072
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285450   (934000) от 22.01.2011
+
+Секунды / Seconds (1966) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Существует одна тайная организация, которая предоставляет сильным мира сего шанс в прямом смысле этого слова начать новую жизнь. Для этого агентам организации требуется просто найти нужного человека по запросу клиента, после чего разум клиента с помощью особой методики пересаживается в это новое тело. Бизнес этот конечно же нелегален, но сверхприбылен, ибо кто же откажется от возможности фактически обрести бессмертие?Жанр: Фантастика, Триллер, ДрамаРежиссер: Джон ФранкенхаймерАктеры: Рок Хадсон, Салом Дженс, Джон Рэндольф, Уилл Гир, Джефф Кори, Ричард Андерсон, Мюррэй Хэмилтон, Карл Свенсон, Най Диех, Фрэнсис РейдПеревод: Одноголосый закадровыйПродолжительность: 01:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460FB4363677E7FC5875646AA0DA4BA503C23254
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,0 +1,817 @@
+###  Публикация: 400141   (394187) от 19.10.2011
+
+SADE - The Ultimate Collection (Bonus DVD) (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+The Ultimate Collection 2011 - это второй сборник лучших песен и десятый в общем количестве выпущенной группой альбомов. Выход альбома (3.05.2011) совпал с началом первого за 10 лет тура группы - Sade Live.01. Hang On To Your Love
+02. The Sweetest Taboo
+03. Is It A Crime
+04. Never As Good As The First Time
+05. Love is stronger than pride
+06. Paradise
+07. Turn My Back On You
+08. Nothing Can Come Between Us
+09. No Ordinary Love
+10. Feel No Pain(   Читать дальше...   )Жанр: МузыкаПеревод: Не требуетсяПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5627C8FC0CACBEA184325FC6081B732D791D39AF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 400775   (394186) от 19.10.2011
+
+AnyBizSoft PDF to EPUB 1.0.0
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+AnyBizSoft PDF to EPUB Converter - является полностью автономным и эффективным приложением для преобразования книг из PDF в формат Epub(формат для портативных девайсов). Программа позволяет конвертировать PDF файлы с точным сохранением оригинального текста, изображения, графики и гиперссылок.
+
+Основные характеристики:
+• Вход: Adobe PDF 1,0 - 1,7 форматов (. PDF)
+• Выход: стандартный формат Epub (. Epub)
+• Точное сохранение первоначального текста, изображений, графики, гиперссылок.
+• Поддержка настройки размера шрифта, цвет фона и текста.
+• Поддержка выбора, следует ли сохранить гиперссылки и картинки или нет.
+• Поддержка выбора следует ли сохранить исходные страницы как изображения во всей книги Epub или нет.
+• Поддержка пакетной обработки файлов(   Читать дальше...   )Язык интерфейса: Английский + Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 399996   (394185) от 19.10.2011
+
+Mireille Mathieu - Мирей Матье поет песни Поля Мариа (2004) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Mon Credo (Andre Pascal — Paul Mauriat)
+02. Pourquoi Mon Amour (Andre Pascal — Paul Mauriat)
+03. Viens Dans Ma Rue (Andre Pascal — Paul Mauriat)
+04. Seuls Au Monde (Andre Pascal — Paul Mauriat)
+05. Quand On Revient (Andre Pascal — Paul Mauriat)
+06. Quand Fera-t-il Jour, Camarade (Gaston Bonheur — Paul Mauriat)
+07. Alors Ne Tarde Pas (Julien Bouquet — Paul Mauriat)
+08. Les Enfans De Noel (Roger Berthier — Paul Mauriat)
+09. La Premiere Etoile (Andre Pascal — Paul Mauriat)
+10. Une Simple Letter (Andre Pascal — Paul Mauriat)(   Читать дальше...   )2004Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF5DD14CDE24ED2307169728160045C9D07BB8F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 399992   (394184) от 19.10.2011
+
+VA - The World Of Rapsody (2011) [MP3|256 kbps]<Рэп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Black Attack - Heartless
+02. Lacross - Save Me
+03. Down Low - Moonlight
+04. Papa Bear - When The Rain Begins To Fall
+05. C-Block - Summer Time
+06. Nana - Remember The Time
+07. Lamar - Lonely Cheperd Fly
+08. F.Y.A - 10 Out Of 10
+09. Oceana - Cry Cry
+10. Busta Rhymes & Mariah Carey - I Know What You Want(   Читать дальше...   )2011Жанр: РэпПродолжительность: 06:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F89D41048C8D4897C57358CB22D7846BED5191
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 400163   (394183) от 19.10.2011
+
+Энциклопедия "Пирамиды Хеопса" [2007-2011] [unpacked]
+
+>>Мультимедийные материалы
+>>Образование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Энциклопедия пирамиды Хеопса — первая в России электронная мультимедийная энциклопедия, создававшаяся с 2007-2011 год ежедневно пользователями ресурса Cheops.Содержит сведения по всем основным знаниям накопленных человечеством об этой пирамиде — из области науки, техники, литературы и искусства; содержит важнейшую историческую, техническую, справочную информацию по устройству пирамиды, освещает большинство гипотез и теорий выдвинутых о ее предназначении.Содержит колоссальный фото материал - более 2000 фотографий и более 300 статей. Летом 2011 года проект отметил юбилей - с момента открытия его посетило более 100.000 человек.2007-2011Жанр: электронная мультимедийная энциклопедияФормат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16CBD268E37B88FBD3962FE89E1B345EE443C3F3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 401192   (394182) от 19.10.2011
+
+Щедрое лето (1950) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394182.jpg" />
+</div>
+
+
+###  Подробнее
+
+После войны, на пути домой в родной колхоз, Петр Середа наблюдает, как на вокзале с помпой встречают местную героиню труда Оксану. В колхозе председательствует его друг и однополчанин – хороший и разбитной парень по имени Назар. Петр становится главным бухгалтером в колхозе, и на фоне сельской идиллии, песен и прочих прелестей социалистических достижений доказывает (   Читать дальше...   )Жанр: КомедияРежиссер: Борис БарнетАктеры: Николай Крючков, Михаил Кузнецов, Виктор Добровольский, Елена Максимова, Константин Сорокин, Марина Бебутова, Муза Крепкогорская, Нина АрхиповаПродолжительность: 01:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B345B4B2DAC586F68AE579B632C200F2889D4E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568971   (394181) от 01.11.2012
+
+Helioss - The Forthcoming Darkness (2012) [MP3|192 кб/с]<Symphonic Black/Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394181.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Era of Rain
+2. The Worm Inside
+3. From the Buddha to the Cross
+4. Genocide
+5. De Occulta
+6. The Last Glow of the Universe
+7. Architects
+8. The Legion of Pariahs
+9. At the Center of Infinites
+10. Demiange(   Читать дальше...   )Жанр: Symphonic Black/Death MetalПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A432BF03119A8F784426945C88CCC0B376F171EB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568853   (394180) от 01.11.2012
+
+VA - Amsterdam Dance Essentials: Trance (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Cecilia Luce - Strong (Albert Keyn Remix) 08:57
+ 02 Denis Sender - 2011 Remixes (Progressive Brothers Remix) 08:02
+ 03 Darren Porter - Sparkles (Brett Wood Remix) 07:37
+ 04 Steve Allen & Alpha Duo - Nocturnal Desire (Johann Stone Remix) 08:03
+ 05 DAVE LEYROCK - Kyle Style (Original Mix) 08:08
+ 06 Aron H - Stargate (Mike Oceanic's Emotional Remix) 06:27
+ 07 Dean Anthony - Stand As One (Airsoul Remix) 06:18
+ 08 Imperfect Hope - Beat Your Soul (Original Mix) 08:34
+ 09 Vast Vision feat. Fisher - Hurricane (Ost & Meyer Remix) 08:18
+ 10 Audien - The Reach (Intro Mix) 04:33(   Читать дальше...   )Жанр: TranceПродолжительность: 03:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55AA7A57429F54D7D78B49692690C8E4FFA54BE7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568757   (394179) от 01.11.2012
+
+VA - Танцевальный хит Передайз! 8 50/50 (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394179.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Smash, DJ Рыжов, ChinKong, Дискотека Авария, Нюша - Moscow Never Sleep
+002. Xonia - Remember (Radio Edit)
+003. Pulse - Ты убиваешь меня
+004. Psy - Gangnam Style
+005. Макс Барских - Глаза-убийцы (DJ Tarantino Official Remix)
+006. Kat Deluna - Wanna See You Dance
+007. DJ Jim & Extasy Project feat. Timo - Very Good (Radio Mix)
+008. Calvin Harris Feat. Florence Welch - Sweet Nothing (Radio Edit)
+009. Макс Лоренс - Все Что Мне Надо (Summer Mix 2012)
+010. Kardinal Offishall Feat. Karl Wolf - Turn It Up(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E1DAADE35E7295BEF797F6CF5F5DD1D37B5DFD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568958   (394178) от 01.11.2012
+
+Журнал | Деньги.ua №20 [25 октября 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«ДЕНЬГИ» — Всеукраинский журнал для тех, кто хочет грамотно и эффективно распоряжаться собственными финансами, разумнее тратить, становиться дороже и востребованнее, делать свою жизнь комфортней и благополучней. Потенциальная аудитория журнала – высокооплачиваемые специалисты, руководители среднего звена, владельцы бизнеса и члены их семей, частные предприниматели, а также амбициозные молодые специалисты и студенты престижных вузов, планирующие свою жизнь и карьеру.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412EEB273C47984685090B1D53BB48F348132CE0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568878   (394177) от 01.11.2012
+
+VA-W&W - Mainstage 127 (29.10.2012) [MP3|256 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Silcox – Four19
+ 02. Aston Shuffle vs Tommy Trash – We Wont Get Lost (Tommy Trash Version)
+ 03. Mainstage ID: Adele – Skyfall (ID Remix)
+ 04. Tristan Garner – Meteor
+ 05. Firebeatz – Here We Fckn Go
+ 06. Cosmic Gate ft Emma Hewitt – Calm Down (Omnia Remix)
+ 07. Dannic – Flare
+ 08. Rank 1 – Airwave (Jullians Bootleg)
+ 09. Smash of the Week: Bartlett Bros pres Ronnie Play – Massive
+ 10. Ben Gold ft The Glass Child – Fall With Me(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FC2F4D0A7CDAF233CFBA9BCFB5115BA825BBF6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568478   (394176) от 01.11.2012
+
+VA - Осенняя дискотека по-русски 4 50/50 (2012) [MP3|256 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+001 DisPlay - Танцуй
+002 Michel Telo - Ai se eu te pego (DJ Rich-Art remix)
+003 Анастасия Стоцкая - Преступник
+004 Lylloo feat. Lorinda - Badam (Sebastien Lewis BR club remix)
+005 Lizabeth - На Дисплее
+006 Kat DeLuna feat. El Cata - Sobredosis
+007 Девушки Эйнштейна - Шуга
+008 Flo Rida - Whistle
+009 Leyla - Ночной DJ
+010 Double Vision - Knockin' 2012 (Julian The Angel remix)(   Читать дальше...   )Жанр: popПродолжительность: 05:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E468B4A2F5CC533B2BF1D5C1C40CD88A429B00
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568463   (394175) от 01.11.2012
+
+VA - Супертанцевальный TOP 200 50+50 (2012) [MP3|128 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шима - Без Тебя (Ignition Studio Edit)
+02. Rihanna Feat. Carlo Secreto - Tengo Un Amor (We Found Love) (Remix)
+03. Эльдар Далгатов - Без Тебя Я Не Могу (Version 2012)
+04. Voxis Feat. Kamelia - Am Invatat (Radio Edit)
+05. Biffguyz - Bum-Bum-Bum (Dj Andy Wait Remix)
+06. Lolita Jolie - Non Non Non (Rob And Chris Remix)
+07. Отпетые Мошенники - Руссо Туристо
+08. Cascada - Summer Of Love (Michael Mind Project Radio Edit)
+09. Napoli - Бомба (Radio Edit)
+10. Alex Gaudino Feat. Taboo - I Don't Wanna Dance (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6120D3F11851F5DB6E2A95AE5F2AED44D18C45B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568769   (394174) от 01.11.2012
+
+Журнал | ТелеMеню №43 [октябрь-ноябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание предлагает удобную форму меню на неделю со специально подобранными рецептами блюд на завтрак, обед и ужин, позволяющими разнообразить свою домашнюю кухню, а также рецептами вкусных коктейлей, которыми можно порадовать близких на выходных.
+Из журнала изъяты блоки "Телетоп" - "Гороскоп"Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D9A71DC888A37B7026BB7DD13AE1D67F5747F50
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568843   (394173) от 01.11.2012
+
+Motorocker - Igreja Universal do Reino do Rock (2006) [MP3|320 кб/с]<Classic Rock, Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Igreja Universal do Reino do Rock
+02. Blues do Satanas
+03. Salve a Malaria
+04. O caminho e as verdades da vida
+05. Tocando Horror
+06. Loudest to Crownd
+07. Shadow Road
+08. Rock'n'Roll Old Fashioned
+09. Evil Hound
+10. Back in Black (Bonus)Жанр: Classic Rock, Hard RockПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B645221001592AC385FDB3C5DAE7CBF322C841
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568762   (394172) от 01.11.2012
+
+VA - Mega дискотека: Super хиты 7 Осень (2012) [MP3|128 кб/с]<pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394172.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тамерлан и Алена Омарголиева - Ты Только Мой
+002. Алёна Высотская - День и ночь
+003. Varda - Я Тебе Не Верю
+004. Инь-Ян - Инопланетянин
+005. Анжелика Варум - Нарисуи любовь (Radio Edit)
+006. Ирина Кулькова & CJ Alexey Lavrentev - ВКонтакте
+007. K.Melody - Никто кроме тебя
+008. Мари Краймбрери - Остыла
+009. Vetra-N - Долго нельзя
+010. Ранетки - Ревность(   Читать дальше...   )Жанр: popПродолжительность: 12:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3F9BE9291086F8B7712038294205836BE842AD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568459   (394171) от 01.11.2012
+
+VA - XXXL Союз. Осенний драйв. Версия русская (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394171.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mainstream One - Под Тёмными Очками
+002. Егор Сесарев - Громче Музыка
+003. Archi-M Feat. Zip92 - История Моя
+004. Eva Kade - Твои Глаза
+005. White House - Я Так Люблю Тебя
+006. Т9 - Шаг
+007. David - Подожди
+008. Жасмин - От Любви До Любви
+009. Александр Панайотов - To Sade
+010. Филипп Левшин - Лечу На Море(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294426CF0AB292879B86C3DDDB21B4C62E2735F4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568563   (394170) от 01.11.2012
+
+Журнал | Садовник №9 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«Садовник» - журнал для тех, кто хочет сделать свой приусадебный участок красивым, не потратив при этом огромных средств; для тех, кто считает, что работать нужно с удовольствием, а отдыхать - красиво. Пять разделов журнала: «Участок», «Сад», «Огород», «Дом» и «Арсенал», - повествуют о сезонных работах за городом, рассказывают обо всех особенностях и секретах, которые необходимы для выращивания прихотливых и не очень деревьев, кустарников и комнатных растений. Корреспонденты «Садовника» помогут вам сориентироваться в изобилии товаров для садоводов и выбрать то, что вам действительно необходимо для работы на вашем приусадебном участке.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7667EA0D714453F580D5EE23443F0CBC4C2A321
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568888   (394169) от 01.11.2012
+
+Журнал | Мир садовода №22 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«Мир садовода» - дачные советы для садоводов и огородников. Издание для тех, кто хочет вырастить прекрасный сад и получать богатый урожай овощей и фруктов! Также своим опытом делятся читатели.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440A4D59232538F9E2F8223A86282C3CA79EC25A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568827   (394168) от 01.11.2012
+
+VA - Звёздные Хиты На Волнах Радиостанций 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Время И Стекло Feat. Потап - Слеза
+02. Tripl Feat. Eliad & Lila - Bailando (Radio Edit)
+03. Бумбокс - Пiддубний Микола
+04. Troy Harley - Someone Like Me
+05. Тимати Feat. Nick Mccord - Taking You Home
+06. Sharon Doorson - Fail In Love
+07. Анна Седокова - Что Я Наделала
+08. Alyssa Reid Feat. Snoop Dogg - The Game (Uk Radio Edit)
+09. Roma Kenga - Поступательные Движения
+10. Dereck Feat. Iulian Florea - Ellatheia(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78943B6B9BF3ED602F80CC4B4938193E251D62D2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172216   (394167) от 07.10.2017
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Южная Америка. 17-й тур. Аргентина – Перу (05.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_394167.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 октября 2017 года, пятница. 02:30 МСК
+Чемпионат Мира 2018. Отборочный турнир. Южная Америка. 17-й тур
+Аргентина – Перу
+Стадион: Альберто Армандо (Буэнос-Айрес, Аргентина), вместимость: 49000(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:09
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172192   (394166) от 07.10.2017
+
+Советы в Китае (1933) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материалы и документы о советском движении в Китае, публикуемые в настоящем сборнике, в основном собраны и подготовлены к печати немецким рабочим издательством „Verlag Carl Hoym Nachf.," Berlin для издания па немецком языке.
+
+Материалам и документам предпослана вводная статья К. Иогансон н О. Таубе, которая дает очерк развития советского движения в Китае и характеристику (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984CA1B1BC12F134F4F0A850BF7CD7B1166EFCD0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172165   (394165) от 07.10.2017
+
+Art Blakey - The Prime Source (1954 - 1956) 4CD, 2007, Proper Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394165.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - That Night at Birdland:
+01. Alien Chase On Arabian Desert [08:57]
+02. Silent Story In Her Eyes [07:33]
+03. Roller Jubilee [04:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 05:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C065A3EAF299DD8F6D9CF5DB1D411AF26D189A57
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172155   (394164) от 07.10.2017
+
+Terry Gibbs - Plays Jewish Melodies In Jazztime (1963) 2002, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bei Mir Bist Du Schon [05:02]
+02. Papirossen (Cigarettes) [04:25]
+03. Kazochok (Russian Dance) [02:51]
+04. Vuloch (A Folk Dance) [04:00](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D6E6D3E027C68800193CCC618A824FDD9C5AC1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172252   (394163) от 07.10.2017
+
+Д. И. Писарев | Литературно-критические статьи (1939) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_394163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий Иванович Писарев (1840 - 1868) - русский публицист и литературный критик, революционный демократ. По праву считается «третьим», после Чернышевского и Добролюбова, великим русским критиком-шестидесятником. Плеханов называл его «одним из самых выдающихся представителей шестидесятых годов». В книгу вошли самые известные литературно-критические статьи Д. И. Писарева: (   Читать дальше...   )Жанр: История, политология, искусство, философия, эстетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C569332CDB65EFCF0015D22898089E690537C25F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171962   (394162) от 07.10.2017
+
+Chatty for Facebook 2.3.0 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_394162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chatty — замечательный Facebook-мессенджер для OS X.
+У него отличный внешний вид, он обладает всеми нужными функциями и, разумеется, поддерживает пуш-уведомления. В целом приложение выглядит как любой стандартный мессенджер. Как и в веб-версии Facebook, в Chatty можно пользоваться смайлами и прикреплять вложения.
+
+Настроек немного. Можно управлять внешним видом уведомления, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2017Разработчик: Adam PangerПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский, немецкий, французский и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

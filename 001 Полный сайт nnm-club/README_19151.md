@@ -1,0 +1,746 @@
+###  Публикация: 1550783   (591241) от 13.05.2022
+
+Fátima (Fatima) - Fossil (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Mongolo Bill [00:03:59]
+02 Arch-Vile [00:04:25]
+03 Turks Fruit [00:06:09]
+04 King of the Rats [00:05:43](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687E90859247B4FE330FDE0B48DEEEB3A1E3A00C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551021   (591240) от 13.05.2022
+
+Cancerslug - Full Term Abortions (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Horror Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cum Rag (00:01:38)
+02 - When You Lie (00:01:59)
+03 - kitchen blues (00:02:04)
+04 - waiting to die (00:01:41)(   Читать дальше...   )Жанр: Punk Rock, Horror PunkПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C173FDF6EA44493F07EE120E03363C1FDFCE4DC3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550682   (591239) от 13.05.2022
+
+Ron Miles - Rainbow Sign (2020) Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Those Who Dream [15:56]
+02. Queen of the South [4:20]
+03. Average [11:12]
+04. Rainbow Sign [7:09](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCBFD8D66FF57A7DF68623D18E6A7F9F6246070
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550977   (591238) от 13.05.2022
+
+Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kinkali - 5:04
+02. Afror - 8:42
+03. Unsleepers - 5:06
+04. Buran  - 8:55(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AEAAFB6530623EF609969B00FB0D32E416F11D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550910   (591237) от 13.05.2022
+
+Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Meddler [8:31]
+02. Ode to Ray [6:10]
+03. Whims of the Bluebird [10:09]
+04. Falling in Love [7:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836C40AE7A3A0D272E79313F7F4DF1323C87AD16
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550793   (591236) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 19 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born in '82 - Platov Airport (5:30)
+02. Rapaik - Disguise Self (5:52)
+03. Ella Mordo - No Love '86 (mfpalm Remix) (2:55)
+04. Atakta - Giving Up The Ghost (4:41)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989B60C80347EDEC7EE43ACE859C88BDA6B59646
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550925   (591235) от 13.05.2022
+
+Ecstatic Vision - Elusive Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March of the Troglodytes
+02. Elusive Mojo
+03. Times Up
+04. The Kenzo Shake(   Читать дальше...   )Жанр: Sludge, Stoner, Space RockПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF7D06D3DEB44041A96A6D3950328B1C2C74759
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550789   (591234) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 17 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELEGIMNASTIKA - Perlo (7:05)
+02. Born in '82 - I Want To Go Far Away (3:58)
+03. Microsha 89 & Twinhead Pony - Endless (3:42)
+04. Enium - Feel Life (6:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F60D68BBC79B639BCE3B7DCF2093CF766B3A870
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550795   (591233) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 20 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NINJACAT & VHS STORE - Pink Sky (2:55)
+02. Born in '82 - Night Road To The Airport (6:01)
+03. Bogdan Bondar & MVG - Sprinkles (3:45)
+04. Dwextrom - Fallen Lord (4:21)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20469C95941146042DD422ADA7AC9286CF536E4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550799   (591232) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 22 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ionov - Break My Heart (3:00)
+02. VsrtWuto - Shuto Nightshift (6:25)
+03. CJ Cyclone - Electronic Body (3:16)
+04. Bloume - Light (4:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584C843B3804328229C697F605FEC1AB30E7AF36
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550800   (591231) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Starzev - Up Tonight (Microsha 89 Remix) (4:05)
+02. Rinak - Evolution (TELEGIMNASTIKA Remix) (5:06)
+03. Born in '82 - Summer Rays (4:25)
+04. Ionov - Break My Heart (TELEGIMNASTIKA Remix) (3:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7471A4CC382611CB9519F59D900DB78AD6A80313
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550798   (591230) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 21 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VsrtWuto - Late Night Cruise (3:30)
+02. Unfancy D - Rain (La-la-la) (4:20)
+03. Akira - Out The Fire (3:16)
+04. Born in '82 - Evolution (5:34)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286E51614FF944F86A42FE3EE84E4C5148E54192
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550893   (591229) от 13.05.2022
+
+Opeth - In Cauda Venenum (2019) 2CD, Extended Edition, 2022, Atomic Fire [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livets Trädgård (3:29)
+02. Svekets Prins (6:37)
+03. Hjärtat Vet Vad Handen Gör (8:30)
+04. De Närmast Sörjande (7:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CCA2C8EB3BFC5F704B82D994D0B660FD1A3C6B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550790   (591228) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 18 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unfancy D - Teslagirl (5:12)
+02. Fraver & Born in '82 - Void In Space (4:40)
+03. Enium - Nostalgia (Let's Do The Night) (7:06)
+04. Shtanze - Retropunk (4:31)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153C0D421DE5E938ACBF9743F7AD12574876A3CB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550707   (591227) от 13.05.2022
+
+Ocean Hills - Santa Monica (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_591227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bound (00:02:59)
+02 - A Separate Peace (00:03:52)
+03 - Death Or Liberty (00:03:21)
+04 - Like A Lady (00:06:00)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550826   (591226) от 13.05.2022
+
+Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paroxysm
+02. One And Only
+03. Hero
+04. War Machine(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550908   (591225) от 13.05.2022
+
+Рваные Раны - Лучшая проклятая вещь (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_591225.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Проклятая вещь
+2. Строгий отец
+3. Слышишь сука!?
+4. Вы - закройте рты!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:51
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550802   (591224) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 24 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born in '82 - Resisted (4:03)
+02. Ildar Bik - Racer (5:22)
+03. A-Reis - Meteor (3:45)
+04. Fraver & Born in '82 - Void in Space (Born in '82 l'amour Remix) (5:15)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C72C02B418F534C440BB20C6CF0356F07B1C19
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550907   (591223) от 13.05.2022
+
+Sonic Mine - Show Must Go On (2017) [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of The Night (4:10)
+02. Let's Get Ridiculous (4:23)
+03. R U Ready 4 The Boom (4:38)
+04. Raise Your Hands (3:07)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA12967172F80B727F99B5148DC3AB6E60E7040C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550932   (591222) от 13.05.2022
+
+Игорь Акимушкин | Жил-был бобр (1987) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_591222.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге автор рассказывает про жизнь бобров. Кто такие, чем занимаются, чего боятся и чем полезны...
+Для детей дошкольного возраста. Иллюстрации П.Панченко.Жанр: РассказФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550834   (591221) от 13.05.2022
+
+Saint Serpent - The Moonshine Sessions and the Trailer Park Witch (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_591221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bow Down (00:03:38)
+02 - Negative Creep (00:03:29)
+03 - A Cold One (00:03:25)
+04 - Fortunate Son (00:03:00)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550969   (591220) от 13.05.2022
+
+Человек и закон (13.05.2022) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные темы общественно-политической программы "Человек и закон" - борьба с организованной преступностью, расследования о коррупции в высших эшелонах власти, криминальные истории. Программа старается дать взвешенную оценку важнейшим событиям в политической, экономической и социальной жизни страны, освещает огромный спектр вопросов и проблем, с которыми (   Читать дальше...   )Телекомпания: 1 каналЖанр: Документальный, Телепередача, КриминалПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ABAD2DB6F244EC42B6234E2A4BB18A7CA2F9D9D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550940   (591219) от 13.05.2022
+
+Случай с Бедфордом / The Bedford Incident (1965) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_591219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий основан на романе Марка Расковича 1963 года. Американский журналист собирается взять интервью у Эрика Финлэндера, капитана американского эсминца, во время рядового патрулирования. В процессе разговора капитан засекает на глубине советскую подводную лодку, и начинается погоня...Производство: Великобритания, США, Columbia Pictures, Bedford Productions Ltd.Жанр: драма, триллерРежиссер: Джеймс Б. ХаррисАктеры: Ричард Уидмарк, Сидни Пуатье, Джеймс Макартур, Мартин Болсам, Уолли Кокс, Эрик Портман, Майкл Кэйн, Колин Мейтленд, Пол Тамарин, Фрэнк ЛиберманПеревод: профессиональный многоголосый (СПб 5 канал)Субтитры: английскиеПродолжительность: 01:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003DA3099D3B8B2EBB500FDDCF47DF2379883C8C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550713   (591218) от 13.05.2022
+
+Sunflower Bean - Headful of Sugar (2022) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Indie Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_591218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Put You Up To This? [03:19]
+02. In Flight [03:25]
+03. Otherside [03:10]
+04. Roll The Dice [03:14](   Читать дальше...   )Жанр: Psychedelic Rock, Indie RockПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550753   (591217) от 13.05.2022
+
+VA - Synth Pop Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_591217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porter Robinson - Sad Machine (5:51)
+02. Kavinsky - Nightcall (4:18)
+03. Nero - Into The Night (Nero 1988 Remix) (3:46)
+04. The Human League - Don't You Want Me (3:57)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 02:12:16
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550911   (591216) от 13.05.2022
+
+Klubbheads - Bamboo Sessions: The Ultimate Collection (2022) [MP3|320 Kbps] <Pumping House>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_591216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Countdown (1:34)
+02. Bamboo Invasion (4:42)
+03. Klubbslang (6:34)
+04. Just For Fun (5:23)(   Читать дальше...   )Жанр: Pumping HouseПродолжительность: 01:39:28
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

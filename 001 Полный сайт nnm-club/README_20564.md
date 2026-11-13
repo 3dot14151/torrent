@@ -1,0 +1,723 @@
+###  Публикация: 1307831   (554503) от 12.06.2019
+
+Hardbone - Dirty 'n' Young (2010) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_554503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booze, Blood, Blackout [3:45]
+02. Demon In The Glass [3:09]
+03. I Sould My Soul For Rock'n'Roll [3:42]
+04. Devil's Bitch [3:55](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308053   (554502) от 12.06.2019
+
+Журнал | Тайны СССР №12 (2019) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_554502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный журнал для широкого круга читателей.Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236460   (554501) от 17.07.2018
+
+Журнал | Дачный спец №7 (июль 2018) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_554501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех садоводов и дачников, кто стремится вести свое хозяйство грамотно и с умом. Каждый выпуск является тематическим и посвящен определенной теме.Жанр: Дача, сад, строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236479   (554500) от 17.07.2018
+
+John Morgan - Kaleidoscope (1971) Reissue, 2013, Prog Temple [MP3|320 Kbps] <Rock, Psychedelic Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychic Wheels
+02. Kaleidoscope Of Life
+03. Sky Rider
+04. Sandy Mouth Bay(   Читать дальше...   )Жанр: Rock, Psychedelic BluesПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60134F6F4F50061724A8C12072166DF67716CCE0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236507   (554499) от 17.07.2018
+
+Журнал | 5 Колесо №6 (302) (июнь 2018) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554499.jpg" />
+</div>
+
+
+###  Подробнее
+
+"5 колесо" - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей.В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B10724E68D47A419FA4A13B33B0F97D6A706967
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236313   (554498) от 17.07.2018
+
+Obscura - Diluvium (2018) [MP3|320 Kbps] <Technical Death Metal, Progressive Death Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_554498.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Clandestine Stars
+2. Emergent Evolution
+3. Diluvium
+4. Mortification Of The Vulgar Sun(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Death MetalПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236513   (554497) от 17.07.2018
+
+Журнал | Добрые советы. Люблю готовить! №8 (июль 2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о вкусной еде, не похожий на другие кулинарные издания. Все опубликованные в нем рецепты присланы в редакцию самими читателями. Каждый рецепт прошел конкурсный отбор, а его автор получил денежный приз. Ежемесячно на страницах журнала — более 100 коронных блюд, которые многократно проверены опытными хозяйками и которые можно смело брать в свою коллекцию рецептов (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40C3AC3F2D2D1392F92195393B3662573DE4664
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236446   (554496) от 17.07.2018
+
+The Hicksville Bombers - Danger Road (2018) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danger Road (03:45)
+02. One Night (02:18)
+03. Victims Of Love (04:04)
+04. Stand Up & Fight (03:41)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4103059B6BEB52699B3092A753B1AE48E1C823
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236379   (554495) от 17.07.2018
+
+VA - Cybertronic: Trance Psychedelic (2018) [MP3|320 Kbps] <Psy Trance, Synth Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554495.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kusmu - A Stranger
+002. Beatroots - Back to Bassics
+003. Liquid Soul - Adrenaline
+004. Chris Komus - Plant Pontificate(   Читать дальше...   )Жанр: Psy Trance, Synth TranceПродолжительность: 12:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D143C513304293FB7510C8EED006BF4AC6F09A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236339   (554494) от 17.07.2018
+
+Векторный клипарт - Garden Elements Collection #2 [AI]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_554494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Коллекция садовых элементов
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236348   (554493) от 17.07.2018
+
+Векторный клипарт - Vector Animal Collection #21 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Зверушки
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055AB4391DD15CE7A78D73A7AFEEC92F29AC3332
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236355   (554492) от 17.07.2018
+
+Векторный клипарт - Vector Fantastic Heroes Collection #10 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Сказочные герои
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E358CE99429EC64443DF26E687E4C9C4BB123E00
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236370   (554491) от 17.07.2018
+
+Векторный клипарт - Vector Children Collection #9 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Дети
+50 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD3C34ECFDF5D83084710379F7F1871A8F20D53
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236319   (554490) от 17.07.2018
+
+VA - Synthetic Memento (2009) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.C.D - Lovely (4:39)
+02. Keen K - From The Outside (4:13)
+03. Infinity Night - Split-Zero-Dimension-00 (5:05)
+04. Aldo Bergamachine - MedievalOrange (4:10)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-pop, DiscoПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2AA1F59DB2155D460FD25617A97F3D86A35B7E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236373   (554489) от 17.07.2018
+
+Векторный клипарт - Vector Dogs Collection #11 [AI]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_554489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Собаки
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236378   (554488) от 17.07.2018
+
+Megadeth - Cryptic Writings (1997) [FLAC|Lossless|tracks] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554488.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Trust
+2. Almost Honest
+3. Use the Man
+4. Mastermind(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8331151951A7118F0A8BF1FE5123B2DA14532A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236343   (554487) от 17.07.2018
+
+Iona - The Circling Hour (2006) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Country>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554487.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Empyrean Dawn – 7:49
+2. Children of Time – 5:33
+3. Strength – 5:59
+4. Wind off the Lake – 11:02(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E8B29C7A0A5385D714F74B1B214009A851458E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236340   (554486) от 17.07.2018
+
+Векторный клипарт - Vector Poultry Collection #2 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Коллекция векторных птиц
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A91890AEAB8F7DA584DF1D1D87A1B74E48779F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236349   (554485) от 17.07.2018
+
+Векторный клипарт - Garden Elements Collection #4 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Элементы сада
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB917A881C316A13E44CEBDF2C69C94785AD3B3B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236401   (554484) от 17.07.2018
+
+Cent Browser 3.5.3.34 Portable by Cento8 [Ru/En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_554484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cent Browser - является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236426   (554483) от 17.07.2018
+
+Tom Tom Club - 5 Studio Albums (1981-2000) CD [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1981 - Tom Tom Club
+1983 - Close To The Bone
+1988 - Boom Boom Chi Boom Boom(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 04:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D08C6608CAEC0583A4D758F8C4413BC27EBB46
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236372   (554482) от 17.07.2018
+
+Векторный клипарт - Vector Countries Collection #8 [AI]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_554482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Страны, континенты
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308031   (554481) от 12.06.2019
+
+BluffTitler Ultimate 14.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554481.jpg" />
+</div>
+
+
+###  Подробнее
+
+BluffTitler - программа для создания красивых текстовых 3D эффектов и простейшей мультипликации, применяемых при монтаже видео. Результат можно просматривать в реальном времени с последующим экспортом в картинку или видео-формат. Вся создаваемая анимация состоит из слоев, которые могут модифицироваться независимо.BluffTitler поддерживает большое количество различных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A324AF8DE706B1FC689E053DE8A4549273666A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308134   (554480) от 12.06.2019
+
+Журнал | Автомир [Россия] №25 (июнь 2019) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554480.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865414BC8C50CF54321AF21B6D4C632BF66FC2E5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307996   (554479) от 12.06.2019
+
+Cat Stevens - Remember Cat Stevens: The Ultimate Collection (1999) [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_554479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonshadow 2:49
+02. Father And Son 3:40
+03. Morning Has Broken 3:17
+04. Wild World 3:19(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307970   (554478) от 12.06.2019
+
+Яндекс.Браузер 19.6.1.153 Portable by Cento8 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_554478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E41441D666EF7464702E57BAF5A612963C0D5F6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

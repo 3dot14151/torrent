@@ -1,0 +1,781 @@
+###  Публикация: 486216   (100117) от 21.04.2012
+
+Cattle Decapitation - Monolith Of Inhumanity (2012) [MP3|192 кб/с]<Progressive Death Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. The Carbon Stampede 03:39
+ 02. Dead Set on Suicide 03:18
+ 03. A Living, Breathing Piece of Defecating Meat 02:58
+ 04. Forced Gender Reassignment 03:54
+ 05. Gristle Licker 04:54
+ 06. Projectile Ovulation 03:31
+ 07. Lifestalker 04:15
+ 08. Do Not Resuscitate 03:18
+ 09. Your Disposal 04:47
+ 10. The Monolith 03:39(   Читать дальше...   )2012Жанр: Progressive Death GrindcoreПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A40969FE4EA507DB505C3A9DF2E7F7EF1D337F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485818   (100116) от 21.04.2012
+
+Предлагаю руку и сердце (1988) TVRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Овдовев и выйдя на пенсию, бывший преподаватель Николай Чмутин переехал жить к дочери, которая с мужем — решили его женить. В поисках подходящей кандидатуры герои не раз попадают в комические ситуации, пока невеста, наконец, не будет найдена…Жанр: ТрагикомедияРежиссер: Виктор СоколовАктеры: Николай Гринько, Светлана Немоляева, Ирина Розанова, Эммануил Виторган, Ирина Мазуркевич, Светлана Харитонова, Людмила Долгорукова, Роза Макагонова, Марина Юрасова, Юрий Цапник, Людмила Ксенофонтова, Людмила АржаниковаПродолжительность: 01:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E832E5A7DE6CF7D684A77CBE8B875027B5B9D3ED
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486025   (100115) от 21.04.2012
+
+[Wallpapers]Супер коллекция обоев
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_100115.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers]Супер коллекция обоев
+Название: Супер коллекция обоев
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050/2560х1920
+Расширение (тип) файлов: jpegВремя раздачи: до 5 скачавших
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A52E1E916D414F14975113AA68929AAA77D560
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485806   (100114) от 21.04.2012
+
+Circle - Prospekt (2000) Limited Edition /2011, Essence Music/[WavPack|Lossless]<Krautrock, Abstract, Post Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Dedofiktion :: 08:25
+02. Gericht :: 06:46
+03. Stimulance :: 06:58
+04. Varhain :: 06:51
+05. Aarre :: 10:19
+06. Eripwre :: 10:42
+07. Tyolaisten Laulu (Encore Apocalypse Mix) :: 17:44Жанр: Krautrock, Abstract, Post RockФормат: CD, Album, Reissue, Limited EditionПродолжительность: 01:07:45
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485682   (100113) от 21.04.2012
+
+[Wallpapers] Wallpapers Fantasy №8 (Pavel)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_100113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола 50 шт
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452E2E47C78DCC06DD357AC3A242E747775FD85C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485802   (100112) от 21.04.2012
+
+3 Inches Of Blood - Long Live Heavy Metal (2012) Limited Edition [FLAC|Lossless]<Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Woman :: 04:48
+02. My Sword Will Not Sleep :: 04:38
+03. Leather Lord :: 03:58
+04. Chief And The Blade :: 02:28
+05. Dark Messenger :: 04:07
+06. Look Out :: 05:30
+07. 4000 Torches :: 04:16
+08. Leave It On The Ice :: 03:35
+09. Die For Gold (Upon The Boiling Sea IV) :: 04:03
+10. Storming Juno :: 04:25(   Читать дальше...   )Жанр: Heavy Metal, Power MetalФормат: CD, AlbumПродолжительность: 01:03:43
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485950   (100111) от 21.04.2012
+
+Pizza Killers - С Зеленью и Грибами. (2012) [MP3|320 kbps]<Punk Rock, Hardcore Punk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Все как один (0:49)
+02. Пацаны ваще ребята (1:57)
+03. Бери в ротацию (1:51)
+04. Красть (0:46)
+05. Без тебя (1:48)
+06. Верь (1:11)
+07. Панк рок песня (1:21)
+08. Скажи зачем (2:11)
+09. Ненавижу вооружённые силы (0:11)
+10. Мясом наружу (1:47)(   Читать дальше...   )Жанр: Punk Rock, Hardcore PunkПродолжительность: 00:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C543E2A0C3025B70447289DA7D129E70A959E9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485934   (100110) от 21.04.2012
+
+Проект BrainScaleS приближается к созданию синтетической копии биологического мозга.
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+В научной фантастике зачастую роботы рассматриваются как более интеллектуальные устройства, чем их создатели, люди. Но, для того, что бы приобрести весьма развитый искусственный интеллект, и, возможно, даже эмоции, схожие с человеческими эмоциями, роботам потребуется заиметь в своей голове синтетический или электронный аналог биологического мозга. В настоящее время множество международных групп ученых ведут разработки синтетического мозга, и с точки зрения многих экспертов, наибольшего успеха удалось добиться ученым проекта BrainScaleS. В состав группы проекта BrainScaleS входят ученые из 15 различных научно-исследовательских институтов и организаций, а их конечной целью, как можно догадаться, является создание электронных аппаратных средств, которые в своей работе подражают работе различных участков головного мозга человека.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485948   (100109) от 21.04.2012
+
+Пять стихий Сергея Шойгу (2012.04.21) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+В фильме, основанном на интервью Сергея Шойгу, которое он дал сразу после назначения на пост губернатора Московской области - рассказ о том, с чего начиналось МЧС, и как работают спасатели в наше время.
+
+17 апреля 1991 года Сергей Шойгу был назначен руководителем российского корпуса спасателей. В апреле 2012 он после 21 года бессменного руководства Службой спасения России покидает этот пост.
+
+Как лично он и его министерство, все эти годы боролись с четырьмя стихиями: "огнем" – пожарами, "водой" – наводнениями, "воздухом" -ураганами и "землей" - землетрясениями? Почему "пятой стихией" Шойгу называет зависть?
+
+В фильме Антона Верницкого, основанном на интервью Сергея Шойгу, которое он дал сразу после назначения на пост губернатора Московской области - рассказ о том, с чего начиналось МЧС, и как работают спасатели в наше время. А также реальные истории о землетрясении в Нефтегорске в 1995, борьбе с "мафией" в затопленном Ленске, пожарных на небоскребе "Москва-Сити", (   Читать дальше...   )Жанр: ТелепередачаРежиссёр: Антон ВерницкийПродолжительность: ~ 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646022ED7426F391933804724E4295D57B4F0935
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485562   (100108) от 21.04.2012
+
+TJ Kong & Modular K - Dream Cargoes (2012) [MP3|320 кб/с]<Tech / Deep House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. TJ Kong & Modular K - Chronopolis (06:33)
+02. TJ Kong & Modular K - The Last World Of Mr. Goddard  (07:36)
+03. TJ Kong & Modular K - Dream Cargoes  (08:46)
+04. TJ Kong & Modular K - The Delta At Sunset  (05:50)
+05. TJ Kong & Modular K feat. Edward Capel - End-game  (09:17)
+06. TJ Kong & Modular K - Now Wakes The Sea  (08:22)
+07. TJ Kong & Modular K - Studio 5, The Stars (08:46)
+08. TJ Kong & Modular K - The Sound-sweep (08:02)
+09. TJ Kong & Modular K - Memories Of The Space Age (06:39)
+10. TJ Kong & Modular K - Now: Zero (08:59)2012Жанр: Tech / Deep HouseПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29334F274C63865CCBD45DF0E0F3EEDF3F2429AF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485637   (100107) от 21.04.2012
+
+[Wallpapers] Space Wallpapers (21.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_100107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0613C7B7B222EE86E52B321F7EA328D8F2C67EB3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486188   (100106) от 21.04.2012
+
+Waldheim - Fight Against Time (2008) [MP3|152-239 кб/с]<Melodic Death Metal, Gothic Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Fight Against Time (05:21)
+02. Bridge Of Sand (06:24)
+03. Lost In The Rain (05:48)
+04. Break The Silence (01:46)
+05. March Of Empty Souls (04:59)
+06. We Will Fall Together (04:29)
+07. Illuminati (05:56)
+08. Memories Of Fate (instrumental) (05:33)
+09. Valzer Infinito (05:06)
+10. Forest Ending (03:49)2008Жанр: Melodic Death Metal, Gothic MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498451100490C1F16DB973AA47B99749C3C825D4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486107   (100105) от 21.04.2012
+
+VA - TMP: Trance Harmony 064 (2012) [MP3|320 kbps]<Trance, Uplifting Trance, Dream Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_100105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
+02. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix)
+03. Super8 - Cre8 (Mike Saint-Jules Remix)
+04. Squarz Kamel - Crystal (Original Mix)
+05. Steve Allen - Dont Leave Me (Pro-gtr Remix)
+06. Cressida & Natalie Paris - Easy To Forget (Club Mix)
+07. Arty vs. Imogen Heap - Seek Zara (SHato & Paul Rockseek Mashup)
+08. Stana - Sonya
+09. Straight Up - The Sky Is Not The Limit (Original Mix)
+10. Blue Tente feat. Aelyn - You're Not Mine (Balearic Mix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18814D2D27C521860E98F901759D1A6567C42B4F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486092   (100104) от 21.04.2012
+
+Обои для рабочего стола - Девушки [1680x1050 - 1920x1080] [160шт.] (2012) JPG
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_100104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДевушкиФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90C4FBAD005F29CD63054B4BA68B7EA9059B4B3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486232   (100103) от 21.04.2012
+
+[Wallpapers]45 Wonderful Planes
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_100103.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers]45 Wonderful Planes
+Название: 45 Wonderful Planes
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpegВремя раздачи: до 5 скачавших
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6016503E29F8C4981DAB037E4CFEFAE3E8797625
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485635   (100102) от 21.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (21.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_100102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29D6C787DB0320228B9AF50F01D0A56DC1CEDC8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486135   (100101) от 21.04.2012
+
+Penthagon - Penthagon (2012) /2012, Punishment 18 Records/ [FLAC|Lossless]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Trap Box (5:07)
+02. All I Guess (5:17)
+03. In The Name Of Peace (7:00)
+04. Ash In My Hands (6:36)
+05. Asleep Or Awake (5:40)
+06. No Way Out (4:15)
+07. Labyrinth Of Fear (4:32)
+08. Shine Like The Sun (5:03)
+09. Innuendo (5:58)Жанр: Thrash MetalПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485638   (100100) от 21.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (21.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_100100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D731611FCCA882AC8713791F93686B41BA4078B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485781   (100099) от 21.04.2012
+
+Chromium 20.0.1112.0 Portable [Multilanguage (Russian)]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Chromium – мощный, но простой в использовании браузер с открытым исходным кодом, который был создан специально для обеспечения более безопасного, быстрого и удобного веб-браузинга. Многие пользователи считают Chromium оконным менеджером с вкладками, однако это полноценный браузер, а вкладки – легкий способ управлять группами приложений. HTML5 имеет расширенный набор функций, таких, как автономный режим фоновой обработки уведомлений и многое другое. Еще одна интересная функция – предоставление списка наиболее часто используемых приложений и инструментов.Название программы: ChromiumЯзык интерфейса: Multilanguage (Russian)
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485336   (100098) от 21.04.2012
+
+Mustasch - Sounds Like Hell, Looks Like Heaven (2012) [FLAC|Lossless]<Stoner / Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_100098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speed Metal (3:07)
+02. The Challenger (3:46)
+03. It's Never Too Late (5:21)
+04. Cold Heart Mother Son (3:07)
+05. Morning Star (4:00)
+06. Dead Again (4:30)
+07. Your Father Must Be Proud Of You (3:07)
+08. Destroyed by Destruction (2:40)
+09. I Don't Hate You (4:03)
+10. Northern Star (1:26)Жанр: Stoner / Heavy MetalПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485985   (100097) от 21.04.2012
+
+Рестлинг / WWE Superstars (19.04.2012) WEBRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Superstars — профессиональная рестлинг шоу от международной федерации рестлинга WWE.Жанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0B619A3552F2A0BD5A429FCCC3B722DF331A21
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486043   (100096) от 21.04.2012
+
+Sumatra PDF 2.1.6388 (Pre-release) + Portable [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -файлов, быстро работает, имеет очень простой дизайн, не загружает систему, может запускаться с внешних USB-карт. Минималистский дизайн программы с лихвой искупается ее очень шустрой работой, что выгодно отличает Sumatra PDF от того же Adobe Reader. В этой версии улучшена обработка документов, добавлен диалог настроек, улучшена обработка юникода, добавлена возможность не вести историю просмотренных файлов, улучшена поддержка SyncTeX, введена новая иконка для PDF-файлов и исправлены ошибки. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486155   (100095) от 21.04.2012
+
+Профессия  репортер. Святой для братвы (2012.04.21) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Жестокий бандит, иноверец, без пяти минут вор в законе — он решил покаяться и понес слово божье ворам и убийцам.
+Но жить по заповедям оказалось опаснее, чем по по понятиям.
+Невероятная история жизни и смерти первого русского святого для братвы.
+«Святой для братвы» — фильм из цикла «Профессия — репортер»Жанр: ДокументальныйПродолжительность: ~ 00:24:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73130E42A077FFB1D8A706C0F5CB18F826D347F4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485440   (100094) от 21.04.2012
+
+Synergic - Forgotten Rituals EP (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Forgotten Ritual 6:39
+ 02. Physiologic 8:07
+ 03. Drifting Away (In Outer Space Remix) 7:01
+ 04. Drifting Away (Original Edit) 7:12Жанр: Psychedelic / ProgressiveПродолжительность: 00:27:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59168510F2AB683B27166F9B9B29B8CF52CB0013
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485726   (100093) от 21.04.2012
+
+Mixed Wallpapers 0.8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_100093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD6F19F5FF780DFE2D6EB2E1DB80E9CC8EA46DA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485567   (100092) от 21.04.2012
+
+Steven Campodonico - Schwarze Grapefrucht LP (2012) [MP3|320 кб/с]<Dark Techno, Minimal Techno, Minimal, Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. A Late Lunch (08:36)
+02. Cosmic Sentance (08:31)
+03. Bad Day (07:24)
+04. Eye 4 1 Have Won I (07:25)
+05. Ceremonial Garb (07:41)
+06. Question Mark (07:44)
+07. Mista' Bones (07:30)
+08. Bring Pain (07:29)
+09. In Infinate (07:36)2012Жанр: Dark Techno, Minimal Techno, Minimal, TechnoПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C1926E83396A9BB63EACB8A02E4E47CB0D004F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

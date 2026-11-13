@@ -1,0 +1,731 @@
+###  Публикация: 1011247   (797031) от 27.04.2016
+
+Forteba - Stereoform (2012) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Magnetik Fluid
+03. Breath
+04. Linoleum(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A370CD87ED04236B7364C0573FED4D478A587C6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011346   (797030) от 27.04.2016
+
+RightFont 3.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управление и быстро найти шрифты ; интегрируется с Photoshop и Sketch
+RightFont - менеджер шрифтов с  красивым интерфейсом. RightFon предлагает различные возможности, которые помогают Вам легко управлять всеми своими шрифтами.
+
+Возможности:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 апреля 2016Разработчик: Markly TeamПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BE159F4C06E192ADD9061D375599722D4854C6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011427   (797029) от 27.04.2016
+
+Magic Sam Blues Band - Black Magic (1969),2015,Delmark Records [FLAC|Lossless|tracks + .cue] <Blues, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Want A Little Bit (03:04)
+02. What Have I Done Wrong (03:11)
+03. Easy, Baby (04:24)
+04. You Belong To Me (04:08)(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8471A7609FC2172B78E3CF71F48F8EFFD7FA0E36
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011251   (797028) от 27.04.2016
+
+Bill Evans - Some Other Time: The Lost Session From The Black Forest (1968) 2CD, 2016, Resonance Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797028.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.You Go To My Head [05:01]
+02.Very Early [05:15]
+03.What Kind Of Fool Am I? [05:24](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BBB0D40CC2F156C858EB556928408B0A05B3AC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010031   (797027) от 27.04.2016
+
+Мария Аделаида Амарал | Жестокий ангел (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллионы женщин с наслаждением смотрят знаменитый бразильский сериал `Жестокий ангел`, радуются и надеются, любят и страдают вместе с его героями, вместе с ними разгадывают семейные тайны и борются с жестокими и коварными врагами. Для всех, кому хочется еще раз встретиться с уже полюбившимися персонажами, - послушайте эту книгу, написанную по легендарной теленовелле...Жанр: Остросюжетные любовные романыПродолжительность: 12:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8951C3553EA6666A7389E5D48971B42A68102E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011285   (797026) от 27.04.2016
+
+VA - Styles Ultimate Tech Vocals (2016) [MP3|251-320 кб/с] <Funky, Soulful, Deep House, Tropical, Bigroom>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vangelis Kostoxenakis - Show Me Some Skin (Original Mix) 06:16
+02. Tony Romera, Jeremy Pianelli - Back To You (Carl Nunes Remix) 04:13
+03. Sick Individuals Feat. Kaelyn Behr - Never Fade (Original Mix) 05:50
+04. Klaas - The Gallery (We Are One) (Club Mix Edit) 02:53(   Читать дальше...   )Жанр: Funky, Soulful, Deep House, Tropical, BigroomПродолжительность: 06:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269828D2F59DD43FCAE7461A61F2AA4ECEB2EDF3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011429   (797025) от 27.04.2016
+
+VA - Ibiza 2015. Soulful Deep-House. Vol.2 В клубах (2015) [MP3|253-320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AusLex - Nepal  05:57
+02. Asadinho - Jaslemere (V1)  08:30
+03. Erasmus & Krieger - Monday Mood (Soukie & Windish remix)  06:48
+04. Dan Rubell - Do That Funk (DJ Fopp remix)  07:32(   Читать дальше...   )Жанр: HouseПродолжительность: 05:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95612B619A937E95D9B2DF52862D552C1573DA8D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011267   (797024) от 27.04.2016
+
+Константин Масальский | Осада Углича (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797024.jpg" />
+</div>
+
+
+###  Подробнее
+
+В повести "Осада Углича" рассказывается о неудачной попытке поляков захватить русский город Углич в период Смутного времени.
+Константин Масальский — популярный русский писатель середины XIX века — был широко известен как автор многочисленных исторических романов. Его роман «Стрельцы» воссоздает перед нами события конца XVII и начала XVIII веков, времена (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 02:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A2099D9F2430B7980AFD1D7E9C763846FD0367
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011276   (797023) от 27.04.2016
+
+Frank Sinatra - Blue Skies (1999) [APE|Lossless|image + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Skies
+02. Ol' Man River
+03. Take Me
+04. You'll Never Know(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD08A7AA7C7E6CCB51FACFAB5DC25AFCE0D2375F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011287   (797022) от 27.04.2016
+
+Sieren - Transients of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See You (04:08)
+02. Marbles (04:27)
+03. Hold On (06:15)
+04. Chroma (07:16)(   Читать дальше...   )Жанр: Deep House, AmbientПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87496E14B7BAB5A3A58320AD86BF7ED52FE0F83B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011495   (797021) от 27.04.2016
+
+Осторожно, мошенники! Нехорошая квартира (2016.04.26) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, каждый хоть раз становился жертвой мошенников: будь то игра в "моментальные" лотереи, приобретение ненужных, а иногда и вредных пищевых добавок или общение с вымогателями денег по телефону, для пополнения мобильного счёта бедного чада, оставшегося без связи. В помощь нежелающим наступать на старые грабли зрителям на канале "ТВ Центр" (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE8B7092EDC37A1AF859B3D1A2021A7175A5F81
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011289   (797020) от 27.04.2016
+
+VA - Romantic Flight In A Dream (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenny Dickenson - Goldenflower
+02. Florito - Funny Valentine
+03. Nova Casa - You Get Me (feat. Nathalia)
+04. Jan Liesefeld - Americana(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, RelaxПродолжительность: 03:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FAC07987CDA5C3CE4FB590D0EF7EE3A9CC7FB5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011473   (797019) от 27.04.2016
+
+Политика (2016.04.27) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельное общественно-политическое ток-шоу с Петром Толстым - в прямом эфире и на самую актуальную и интересную тему недели - задумано как «пьеса- конфликт» про политику в трех частях. Разговоры о политике в России вновь становятся актуальными. Каждый четверг вечером на Первом канале представители власти, оппозиционеры, депутаты и приглашенные эксперты спорят (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A282AD4F0063EA65922AB51A796335256C3C5F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011329   (797018) от 27.04.2016
+
+TagScanner 6.0.8 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797018.jpg" />
+</div>
+
+
+###  Подробнее
+
+TagScanner - мощная программа для организации и управления музыкальными архивами. TagScanner переименовывает музыкальные файлы различных форматов так, чтобы в их имени содержалось информация из тэгов. Также программа позволяет сгенерировать тэг по имени файла/директории или изменить значения необходимых полей в пакетном режиме. Программа имеет широкие возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E691442D3C562842833E03D0FA0934F9050860
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011235   (797017) от 27.04.2016
+
+VA - BacauHouseMafia vol.12 (2016) [MP3|128-320 кб/с] <House, Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797017.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 4Handz -  Build It Up (Original Mix)  4:38
+002. Adam B -  Alamo (Original Mix)  4:56
+003. After12 -  Mamacita (Original Mix)  4:15
+004. Ahzee & Faydee -  Burn It Down (Extended Mix)  3:40(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 13:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB65513B0B9E8173FE55CBF821E40855B75EB8C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011438   (797016) от 27.04.2016
+
+VA - Laserdance-Covers and Mixes (2016) [MP3|256-320 кб/с] <Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ernesto - Into The Night (Laserdance Cover) (08:31)
+02. Spiral - Around The Planet (Laserdance Cover) (04:01)
+03. Galactic Warriors - You And Me (Laserdance Cover) (05:33)
+04. Amateras - New Adventure (Laserdance Cover) (05:33)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907F3D0EE96364EAEFAC4E734BE1266CAEF9FB68
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011232   (797015) от 27.04.2016
+
+Чжоу Юань-Бин | О скромности и высокомерии (1958) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коммунистические и рабочие партии, верные учению марксизма-ленинизма, всегда выступали и выступают против зазнайства, высокомерия и самодовольства в своих рядах, воспи­тывают трудящихся в духе скромности и простоты.
+
+В этой брошюре Чжоу Юань-бин на ярких примерах, взятых из истории китайской революции, показывает, к каким последствиям приводят чрезмерная самоуверенность (   Читать дальше...   )Жанр: История, философия, этика, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24ECDB1705D5157782EA1F2988420E9F3753BB8A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200109   (797014) от 19.01.2018
+
+Биатлон. Кубок Мира 2017-2018. 6-й Этап. Антхольц-Антерсельва (Италия). Женщины. Спринт (18.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797014.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 января 2018 года, четверг. 16:15 МСК
+6-й этап Кубка Мира по биатлону 2017-2018. Антхольц-Антерсельва (Италия)
+Женщины. Спринт 7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428537E44B8E58CBFA58CA5BDE627A226242780D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011295   (797013) от 27.04.2016
+
+VA - Говори Мне Говори (2016) [MP3|256 кб/с] <Шансон, Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797013.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юрий Комар - Не Моя Ты
+002. Раиса Отрадная & Катерина Голицына - Подруга
+003. Белое Золото - Настоящая Любовь
+004. Дмитрий Суслов - Мадам Морячка(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 12:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8EA3112DB662C4CB05BA12D52BDD9589B4F04C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199903   (797012) от 19.01.2018
+
+VA - Club House - Selected Works Vol.01 (2008) [FLAC|Lossless|tracks] <House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Axwell/Dirty South - Open Your Hear (Vocal Mix) (8:57)
+02.John Claudes Ades; Vincent Thomas - Shingaling (7:04)
+03.Style of Eye - Girls (7:04)
+04.Franky Rizardo - Flutetest (Tony Chacha & Paco Ramon 'Put It in the Air' Mix) (5:41)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E00251411702A5EF92CA6682CF85D6A148B6BB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011342   (797011) от 27.04.2016
+
+И. Сабуро | История японской культуры (1972) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открывая «Историю японской культуры» Иэнага Сабуро, следует иметь в виду, что она написана для японского читателя, причем написана, как мы видели выше, с совершенно определенной целью — помочь делу переосмысления истории японской культуры с прогрессивных, демократических позиций и этим способствовать правильному формированию будущей культуры Японии. Задача эта необыкновенно (   Читать дальше...   )Жанр: История, политология, культурология, искусство, археологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A3867517DB5E6DE2CC44FD69E6B2CA695F6226
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199985   (797010) от 19.01.2018
+
+VA - Street King Presents Winter 2018 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tuccillo - Lovery (feat Amor - D.Y.a & Kalyma remix) (08:13)
+02. Alex Ranerro - Endless (06:18)
+03. Lonya - Achromatic (Breky remix) (07:25)
+04. Tiger Stripes - Song For Edit (feat Kerri Chandler - Black Loops remix) (07:07)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280F2ECFA6C0F702EEA019457A2B90176FEAF78C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011277   (797009) от 27.04.2016
+
+External Editors For Photos 1.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797009.jpg" />
+</div>
+
+
+###  Подробнее
+
+External Editors For Photos добавляет расширение к приложению Photos, которое позволяет редактировать фотографии с помощью любого редактора изображений на вашем Mac.
+
+Отредактированные изображения сохраняются немедленно обратно в Photos и ваши оригинальные фотографии обновляются на месте при этом будут сохранены все метаданные. Откройте ваши импортированные файлы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 апреля 2016Разработчик: Karsten BrunsПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7680064AAA9B99B2C4E99B6A4F7D101DEDB4358
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200156   (797008) от 19.01.2018
+
+VA - The Best Of Progressive Trance (2018) [MP3|320 Kbps] <Progressive, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797008.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andre Visior & Daniel Kandi - Freedom (Original Mix)
+002. Alizera - Galaxy
+003. Paul Hawcroft - Your Eyes (Original Mix)
+004. Hoof - Heart and Zeal (Original Mix)(   Читать дальше...   )Жанр: Progressive, TranceПродолжительность: 09:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5B7AB5902914687E8DE7BFF98A157074BA9460
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200066   (797007) от 19.01.2018
+
+VA - AVA Seasons Selected By Somna - Winter (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Moor, Somna & Diana Leah - There Is Light
+02. Holbrook & SkyKeeper - Time Of The Long Shadows (extended mix)
+03. Somna & Melissa Loretta - Brave
+04. Fahjah & Michele C - I Choose You(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF26A45173275BE0EA59CFEF109B2D3F865F6F5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011356   (797006) от 27.04.2016
+
+Дмитрий Иванов | Глэм-капитализм (2015) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_797006.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлена оригинальная концепция общества начала XXI века, объясняющая тенденции в экономике, политике, социальной структуре тем, что гламур, или коротко – глэм (glam), задает фундаментальную и универсальную логику деятельности и формирует новую версию капитализма – глэм-капитализм. В книге проанализированы тенденции превращения гламура из стиля жизни (   Читать дальше...   )Жанр: Философия, культурологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C85B17050979BE36C3D99A8814DBBE6CD3A6EC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

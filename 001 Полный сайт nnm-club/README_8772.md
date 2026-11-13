@@ -1,0 +1,722 @@
+###  Публикация: 1490419   (861095) от 24.09.2021
+
+Эван Всемогущий / Evan Almighty (2007) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эван Бакстер, которого всемогущий босс Брюс заставил лепетать всякую чушь во время прямого эфира новостей, уходит с работы на телевидении. Но жизнь его сразу же пошла в гору: он стал конгрессменом. И тут вновь появился Господь Бог, который открыл перед Эваном ужасы грядущего и попросил срочно приступить к строительству ковчега, беря пример с Ноя.Производство: США / Columbia Pictures, Original Film, Relativity Media, Shady Acres Entertainment, Spyglass Entertainment, Universal PicturesЖанр: фэнтези, комедия, семейныйРежиссер: Том ШэдьякАктеры: Стив Карелл, Морган Фриман, Лорен Грэм, Джонни Симмонс, Грэм Филлипс, Джимми Беннетт, Джон Гудман, Ванда Сайкс, Джон Майкл Хиггинс, Джона ХиллПеревод: дублированный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61FF88B3524F1F28F014CC0BCC86E56177EA6C41
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497790   (861094) от 24.09.2021
+
+FanControl V93 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861094.jpg" />
+</div>
+
+
+###  Подробнее
+
+FanControl – cвободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C771418D261C472D7E2858DE891391F9659E2E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496826   (861093) от 24.09.2021
+
+Вьетнам, до востребования / Vietnam (1987) DVDRemux (сезон 1, серии 1-10 из 10) ОРТ
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала происходит с 1964 по 1972 год. Показана жизнь одной австралийской семьи на фоне участия страны во Вьетнамской войне. Глава семейства работает советником в правительстве и причастен к решению об отправке австралийских войск во Вьетнам, сын призывается в армию и попадает на войну, а дочь участвует в антивоенных демонстрациях.Производство: Австралия / Kennedy Miller ProductionsЖанр: драма, военныйРежиссер: Джон Дайган, Крис НуненАктеры: Бэрри Отто, Николь Кидман, Николас Иди, Вероника Лэнг, Джон Полсон, Грэйс Парр, Марк Ли, Полин Чан, Вирджиния Хей, Алисса-Джэйн Кук и др.Перевод: Многоголосый профессиональный (ОРТ)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB8914E32F002AC94DDE2C2967571252D59761F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108895   (861092) от 26.02.2017
+
+VA - The Groove Lounge Vol.11 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mika Olson - What I Need - Radio Cut 4:08
+002. Moe Turk - Outta My Head - Andrey Kravtsov Remix 6:41
+003. Popartlive - The Spell - Miguel Campbell Soul Edit 5:17
+004. DJ Friction - Do You Feel - Pete Herbert Remix 7:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DFBC03AE28FE65AFE283F68175EFEF3C7CC06E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497817   (861091) от 24.09.2021
+
+Адский ад / Bloody Hell  (2020) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший военный Рекс зашёл в банк, и после на отделение напали вооружённые грабители. Как-то так получилось, что парень завладел оружием и перестрелял всех злоумышленников, но в процессе погибла сотрудница банка. Рекс получил 8 лет, а когда вышел, то обнаружил всё ещё пристальное внимание к своей персоне: кто-то считает его героем, а кто-то — опасным психопатом. Парень (   Читать дальше...   )Производство: Австралия, США /  Eclectik Vision, Entertainment Squad, Heart Sleeve ProductionsЖанр: Ужасы, комедияРежиссер: Алистер ГрирсонАктеры: Бен О'Тул, Мэг Фрэйзер, Кэролайн Крэйг, Мэтью Сандерлэнд, Трэвис Джеффри, Джек Финстерер, Дэвид Хилл, Джошуа Бреннан, Эшли Лоллбэк, Софиа Эмберсон-БэйнПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (SDH), английские (Full, SDH)Продолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917AAC6EF6EC2EE8BBA634C16EB9907F162D6605
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497876   (861090) от 24.09.2021
+
+Пикник - Всё перевернётся (2021) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Всё перевернётся
+2. Всё перевернётся (Unplugged version)
+3. Всё перевернётся (Rhythm-and-blues version)
+4. Всё перевернётся (Industrial breakbeat remix)Жанр: RockПродолжительность: 00:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F77EBD4940E3A422C5B22EE60C4B9E9223BC213
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490379   (861089) от 24.09.2021
+
+День матери / Mother's Day (2010) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое братьев-налётчиков, один из которых получил ранение в перестрелке, уходят от преследования и скрываются в доме своего детства. Но их старый дом уже два месяца принадлежит новым хозяевам. Начинается жестокое противостояние, раскрывающее тёмные тайны каждой стороны.Производство: США / Farpoint Films Inc., LightTower Entertainment, Rat EntertainmentЖанр: Триллер, драма, криминалРежиссер: Даррен Линн БоусманАктеры: Ребекка Де Морнэй, Джейми Кинг, Патрик Флюгер, Уоррен Коул, Дебора Энн Уолл, Бриана Эвиган, Шон Эшмор, Фрэнк Грилло, Кэндис МакКлюр, Лайрик БентПеревод: Профессиональный многоголосыйСубтитры: Русские (Full), английскиеПродолжительность: 01:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DAEBC7F8571C7ADEF2B85BDB426B32A03BF377
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108741   (861088) от 26.02.2017
+
+VA - Winter Break 2: The Chill Lounge Edition (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861088.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peter Pearson - Under the Charm 4:39
+002. Michael E - Peace 6:05
+003. Lazy Hammock - You Were the One 4:14
+004. Aime Sol - Sail Into the Sun 6:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8186D75D359A8AF26405718693050F198190FE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446853   (861087) от 24.09.2021
+
+Bass Guitar Tutor Pro ver.Feels (134) [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bass Guitar Tutor Pro - приложение, с помощью которого вы будете учится играть на бас-гитаре! В приложении содержится около 150 песен, а также гибкие настройки бас-гитары под вас. Для начала используйте тренажер для новичков, отрегулируйте высоту грифа и ширину. Освойте шаблоны - регги, хард-рок и пр. Изучайте гаммы и пробуйте импровизировать в любой тональности.Тип издания: Paid / Pro с МаркетаРелиз состоялся: 23.09.2021Разработчик: Learn To MasterПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998691CE5FC0F2F6EC4E9AC1AB745AB538DF972E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108972   (861086) от 26.02.2017
+
+Juan Gonzalez, Julio Simon, Rey Delis, Oscar Ruiz - Cuarteto de Saxofones de Santiago (1998) Auvidis [FLAC|Lossless|image + .cue] <World Fusion, Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Afro sensual [03:26]
+ 02.Zapateo Cubano [02:19]
+ 03.Altura de quintero [05:54]
+ 04.Longina [03:28](   Читать дальше...   )Жанр: World Fusion, Cuban JazzПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FF47FCB1669F55ABD336395B9EDE88698DF536
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497859   (861085) от 24.09.2021
+
+Главный герой / Free Guy (2021) BDRemux [H.264/1080p] [EN / EN, multi Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861085.jpg" />
+</div>
+
+
+###  Подробнее
+
+У сотрудника крупного банка всё идёт по накатанной, пока однажды он не выясняет, что окружающий его мир — это часть огромной видеоигры, а сам он в ней — всего лишь второстепенный персонаж. Хватит ли у него духу переписать свой код, обратить на себя внимание прекрасной девушки и, наконец, спасти мир? Одним словом, получится ли из него главный герой?Производство: США, Канада / 20th Century Studios, Berlanti Productions, 21 Laps EntertainmentЖанр: фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Шон ЛевиАктеры: Райан Рейнольдс, Джоди Комер, Лил Рел Ховери, Джо Кири, Уткарш Амбудкар, Тайка Вайтити, Аарон В Рид, Бритни Олдфорд, Камилль Костек, Марк ЛайнерПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские, французские, немецкие, голландские, датские, финские, норвежские, шведскиеПродолжительность: 01:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD04A7E02FF4DF196811047C2B592C3256497560
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494150   (861084) от 24.09.2021
+
+К-19 / K-19: The Widowmaker (2002) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальных событиях, произошедших с первой атомной советской подводной лодкой, которая потерпела аварию из-за неполадок в атомном реакторе в 1961 году. К-19 - это зримое свидетельство героизма русских моряков, которые служили на этой подводной лодке. Фильм демонстрирует героизм капитана Алексея Вострикова, который в разгар холодной войны берёт на себя (   Читать дальше...   )Производство: Великобритания, Германия, Канада, США / First Light Production, IMF Internationale Medien und Film GmbH & Co., Produktions KG, Intermedia Films, K-19 Film ProductionЖанр: триллер, драма, военный, историяРежиссер: Кэтрин БигелоуАктеры: Харрисон Форд, Лиам Нисон, Питер Сарсгаард, Сэм Спруэлл, Тим Вудворд, Стив Николсон, Питер Стеббингс, Лекс Шрэпнел, Джон Шрэпнел, Лев ПрыгуновПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A591E5643866DA3C5F2C6FE2B81485D6EFA9E5DE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108886   (861083) от 26.02.2017
+
+VA - House Ladies Vol.1 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861083.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amorhouse - Habla! - Amorhouse & Fennel Club Vocal 5:48
+002. Discorescuers - Pasticcino - Discorescuers Dub Vocal 7:19
+003. Antony Fennel - Je T'aime - Club Mix 6:38
+004. Fabietto Cataneo - Saxy Fashion - Instrumental Mix 4:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3C9ED270A1A030FEA044DEDD606F877726F1D1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109086   (861082) от 26.02.2017
+
+Quazax - Terrestrial Planet (2017) [MP3|320 Kbps] <Trance,Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biokinetix - Bad Boys (Quazax remix) (06:38)
+02. Wormhole (07:42)
+03. Acid Time (09:11)
+04. Afterlife (08:58)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FADDEA79E5AA12CF068C3FDF1D5DD7171EC23D1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497735   (861081) от 24.09.2021
+
+Адский ад / Bloody Hell (2020) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший военный Рекс зашёл в банк, и после на отделение напали вооружённые грабители. Как-то так получилось, что парень завладел оружием и перестрелял всех злоумышленников, но в процессе погибла сотрудница банка. Рекс получил 8 лет, а когда вышел, то обнаружил всё ещё пристальное внимание к своей персоне: кто-то считает его героем, а кто-то — опасным психопатом. Парень (   Читать дальше...   )Производство: Австралия, США / Eclectik Vision, Entertainment Squad, Heart Sleeve ProductionsЖанр: Ужасы, комедияРежиссер: Алистер ГрирсонАктеры: Бен О’Тул, Мэг Фрэйзер, Кэролайн Крэйг, Мэтью Сандерлэнд, Трэвис Джеффри, Джек Финстерер, Дэвид Хилл, Джошуа Бреннан, Эшли Лоллбэк, Софиа Эмберсон-БэйнПеревод: Дублированный (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Русские (SDH - без цензуры!), Английские (full, SDH)Продолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC1982F8F28E1C41CB47FFDAB910A74A6F993FC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108519   (861080) от 26.02.2017
+
+Семен Ласкин | Вечности заложник (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861080.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе "Вечности заложник" рассказывается о трагической судьбе ленинградского художника Василия Калужнина, друга Есенина, Ахматовой, Клюева...
+«Если бы не Семен Борисович, то этот художник пропал бы. Все его работы валялись в Мухинском училище где-то между дверьми, и никто не знал, куда их деть: хотели их даже выкинуть...»Жанр: РоманПродолжительность: 06:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CC092B6CBFB01A4B7EA99149836297BAA5C265
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108645   (861079) от 26.02.2017
+
+VA - Night Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Sannny - Ghost Ship (Original Mix)  6:24
+02.  Diam - Auto Breaks (Original Mix)  4:07
+03.  DJ Yuri Button - Ghost In The Town (Original Mix)  6:02
+04.  DJ Max Brendy - Snowy (Original Mix)  4:46(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D68E919BB733317D5F6088CFF68B7AF2BE64323
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108824   (861078) от 26.02.2017
+
+BBEdit 11.6.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861078.jpg" />
+</div>
+
+
+###  Подробнее
+
+BBEdit - популярный текстовый и HTML редактор. Эта программа специально разработана для удобного редактирования текста, поиска, трансформации, создания HTML-тегов, написания и правки кода программ в различных языках программирования. BBEdit создан непосредственно для программистов и разработчиков, то есть для людей, которым приходится иметь дело с кодами программ (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 февраля 2017Разработчик: Bare Bones Software, Inc.Поддерживаемая ОС: OS X 10.9.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1D28CD3D7624C4DFD7A964DAB49F158EA5AB58
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108743   (861077) от 26.02.2017
+
+VA - Deep House Connection Vol.2 Night Selection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zhukhevich - Flowers Energy 3:44
+002. Chris Coulen - S.M. 4:21
+003. Andrey Butuzov & 7Sky Project - Empty Streets - Original Mix 4:05
+004. The Mord - New Year in City Deep 4:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01A5F9C1B2056DEFCE827D0DE192A6F30F3DACB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108665   (861076) от 26.02.2017
+
+VA - Winter Dream Lounge Spa Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Caribbean Dreams
+02. Enrico Donner - Wind of the Spirit
+03. Cane Garden Quartet - Ageless
+04. Arrojas - Destinations(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC2AC2C1B5F64467E302BBA11896F3271C4A902
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108889   (861075) от 26.02.2017
+
+VA - Lounge System Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga - Yellow Leaves
+02. Steen Thottrup - Waterdrops
+03. Vega Ray - Track in Rhythm
+04. Jack Izzard - Deep Relax - Chillin' Groove Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B002C03F5A3A2D4390334F0E9E325C1E722F40
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108735   (861074) от 26.02.2017
+
+VA - Chillout De Paris (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861074.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arrojas - Cala de Piedras 5:58
+002. Rey Salinero - Recuerdos 5:59
+003. Lamar Ensemble - Stay Sharp 5:37
+004. Diario - Ancient Stone Steps 5:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4C8629B8E0F3DDAD1C7F5FCC987931918B0774
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108893   (861073) от 26.02.2017
+
+VA - Midnight Lounge Vol.28 Lounge Experience (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861073.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yiorgos Magoulas - Terra nostalgica 5:03
+002. Andrew Lousianin - Rainy Season 3:45
+003. Bruce Maginnis - Eastern Sunset 3:38
+004. Francesco Gazzara - Balearic 4:57(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0599B4E9CAC8EFAFE0EB4B7DA546CB24B0AB85F4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109004   (861072) от 26.02.2017
+
+VA - Proper Vibes (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Huf - Rise to It (05:58)
+02. Edemin - Jungl (03:49)
+03. Luck Bravo - Liberty (05:10)
+04. Richi Giges - With Chocolate (04:36)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E8DDA41F2B345C1F464DC96D2275C39CB00B48
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108903   (861071) от 26.02.2017
+
+VA - Sirup Deep Anthems Dubai (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nora En Pure - Lake Arrowhead - Radio Mix 3:36
+002. Sons Of Maria - Chimera - Radio Mix 4:07
+003. Kyle Watson - Sink Deep 3:35
+004. Croatia Squad - Do It Again - Radio Mix 3:20(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36910875697E9AC3FB00D4D38F68C3C1150CA540
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108962   (861070) от 26.02.2017
+
+Pristine - Reboot (2015) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_861070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Derek (3:50)
+02. All Of My Love (2:51)
+03. All I Want Is You (6:17)
+04. Bootie Call (2:05)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF29C05BC90D1CE91D5E7ABE4E5EDFBD59529A9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

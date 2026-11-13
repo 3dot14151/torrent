@@ -1,0 +1,723 @@
+###  Публикация: 983768   (941773) от 07.02.2016
+
+В.Г. Щербаков, Д.Г. Щербаков | Ловля на поплавочную удочку и донку (2003) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941773.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной брошюре мы хотим рассказать о многочисленных способах улучшения спиннинговых приманок, позволяющих значительно расширить их возможности. Все мысли авторов наглядно иллюстрированны многочисленными схемами и фотографиями.Жанр: РыболовствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2306EB0BD31AFEDA0DEB0F06391FE0F69EB0B8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983720   (941772) от 07.02.2016
+
+Виктор Суворов | Аквариум (2016) [PDF]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое издание, исправленное и переработанное.
+ "Аквариум" - первая и единственная в своем роде книга об одной из самых могущественных и самых закрытых разведывательных организаций в мире, классический образец остросюжетного шпионского романа, который захватывает с первых же строк и читается запоем, на одном дыхании. Это откровенный рассказ о том, как была (   Читать дальше...   )Жанр: Политические детективыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8BE2F44D712EFBAC70E29E1CE3A8BEBD8BB6F4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983662   (941771) от 07.02.2016
+
+Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juice Newton - Angel of the Morning (04:13)
+02. Junkie XL - Maximum Effort (02:08)
+03. Junkie XL - Small Disruption (01:13)
+04. Salt-N-Pepa - Shoop (04:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA873D8DFB92F99667F6B461A0694E56BDE26FD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983661   (941770) от 07.02.2016
+
+Леонид Леонов | Пирамида (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонид Леонов, девяностопятилетний великий русский писатель, автор всемирно известных романов «Русский лес», «Вор», «Барсуки», «Соть» и др. Над романом «Пирамида» он работал около сорока пяти лет. По оценкам ведущих русских писателей, роман «Пирамида» — самое выдающееся произведение Леонида Леонова, одно из величайших творений второй половины XX века.
+Действие романа (   Читать дальше...   )Жанр: Роман-наваждение. В трёх частяхПродолжительность: 66:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6293926D5D1C35419EC30424CE0D9CECB0FDE9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091814   (941769) от 10.01.2017
+
+Трио Льва Кушнира (The Lev Kushnir Trio) - Летучий Голландец (1994) Aprelevka Sound Production[APE|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.How Deep Is The Ocean [09:19]
+ 02.Polina's Waltz [06:11]
+ 03.Tones For Joan's Bones [05:36]
+ 04.Sing, Sing, Sing [04:36](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2630C96B76B478B566CB3377015C8EF859625751
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091844   (941768) от 10.01.2017
+
+Direct Message for Instagram Pro 4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправка и получение прямых сообщений для Instagram с вашего Mac. Первое и единственное приложение для Mac, которые может это сделать!
+
+Примечание: Аккаунт Instagram требуется для использования этого приложения. Если его у вас нет, пожалуйста, зарегистрируйтесь из Instagram приложения на вашем смартфоне.Тип издания: macOS SoftwareРелиз состоялся: 06 января 2017Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8B42F068F0E0932ABF3360DEA6C2BE63663E16
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091717   (941767) от 10.01.2017
+
+VA - New Metropolitan Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bananaquit - Hold Me Up  6:21
+02.  Boring Sax - Hand In Hand  6:09
+03.  Enrico Donner - Xonado Por Vocк  5:55
+04.  Cane Garden Quartet - Love Goddess  5:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A07FBBD0779FAB5E8CFD5CE1BA3201301F040E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091813   (941766) от 10.01.2017
+
+Art Pepper with Duke Jordan - In Copenhagen 1981 (1996) 2CD, Galaxy[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941766.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Blues Montmartre [14:12]
+02.What Is This Thing Called Love? [09:46]
+03.Over the Rainbow [07:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 02:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD5EF706F1F4F1E69A23B0F781954203A90CB70
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091898   (941765) от 10.01.2017
+
+В. Езерский | Стуки стуки стук (1929) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живая природа - в стихах и картинках.Жанр: СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871428C68FF6062EE411D24247CC8FF461F05C75
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092022   (941764) от 10.01.2017
+
+VA - Freaky Lounge Vol. 1 (Cool Grooves & Relaxed Sounds) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sunyata Project - The Journey Begins  3:42
+02.  Svendaq - Expressions & Passions  6:08
+03.  Roberto Sol - Tu (feat. Ines) (Remix)  4:19
+04.  Svendaq - La Chill Fusion  3:46(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A13A711D31EE3D3019A4194C2A67F932B50150
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091603   (941763) от 10.01.2017
+
+Petsch Moser - Johnny (2010) [FLAC|Lossless|tracks + .cue] <Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ego Tripping [0:01:54.37]
+02. Blender [0:03:51.42]
+03. Geräusche Deiner Wohnung [0:03:18.70]
+04. Johnny Cash [0:03:50.38](   Читать дальше...   )Жанр: IndieПродолжительность: 0 0:43:04.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58127F1AA5712137212CD9B74B544876AD8BE2D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091831   (941762) от 10.01.2017
+
+Machiavel - Colours (2013) [FLAC|Lossless|image + .cue] <Eсlectic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colour damage (3:27)
+02. Going down (3:39)
+03. Every single day (3:51)
+04. Carry me home (5:11)(   Читать дальше...   )Жанр: Eclectic ProgПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FDE8385D2093E5756B93A8485C453ADA09D043
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091759   (941761) от 10.01.2017
+
+VA - Chillout Metropolitan Life (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)  7:00
+02.  Don Gorda - Festa do Sol (Funk Edit)  4:48
+03.  Enrico Donner - Yearning For More  5:26
+04.  Cane Garden Quartet - 2 Steps To The Sun  5:43(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5B982E2BB8F041E0192758220B9256E8AD5A2B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091767   (941760) от 10.01.2017
+
+Санжара Байдыев | Санчир (1973) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник стихотворений для детей дошкольного возраста.Жанр: СтихиПеревод: Леонид Яхнин (с калмыцкого)Формат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F9964CF40C5E9631F774465AA6F13EE93952D1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091818   (941759) от 10.01.2017
+
+GoodTask 3 v3.2.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941759.jpg" />
+</div>
+
+
+###  Подробнее
+
+У многих из нас каждый день настолько плотный график, такое количество важных задач, которые нужно выполнить, что ненароком, можно о чем-то случайно забыть.
+
+GoodTask — это элегантная и мощная напоминалка, которая прекрасно взаимодействует  со стандартным приложением Reminders и Календарем. Какую бы заметку вы в нем не оставили, она тут же будет отображаться в GoodTask. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 января 2017Разработчик: haha interactiveПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A94B16CD33849147B3619B9B0209700AB600427
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091997   (941758) от 10.01.2017
+
+DropDMG 3.4.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый простой способ для создания собственного образа диска в среде Mac и работа с ним.
+DropDMG — это очень простая, но функциональная утилита для создания .dmg, .img, .smi, .sitx, .tar и .zip. Если вам требуется создать один из перечисленных в заголовке статьи видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 января 2017Разработчик: C-Command SoftwareПоддерживаемая ОС: Mac OS X 10.6.8 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D0011C00B72EA47F4845B0D3D8EE1495266583
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091824   (941757) от 10.01.2017
+
+VA - Lemongrassmusic In The Mix: Ethnosphere 2 (Mixed by Jasmon) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  MoShang - Weeping Willow  03:55
+02.  Eskadet - Asian Dream  07:16
+03.  Mirage Of Deep - Watu Wazuri  06:54
+04.  Carlos Yebra - Percsuations  05:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572C883340110C5F21AE99D61FFFFF33F80AEB70
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091587   (941756) от 10.01.2017
+
+The Sean Webster Band - Long Time Coming (2003) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Story Of My Life  (04:17) 
+02|  What Was His Name  (06:14) 
+03|  Just Walk Away  (05:07) 
+04|  I'll Be Gone  (03:55) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BD6A257BC39B9BA9CCEFFA8618ED0BCDB08FEA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091971   (941755) от 10.01.2017
+
+Starkill - Shadow Sleep (2016) [FLAC|lossless|image + .cue] <Melodic Death Metal, Power Metal, Symphonic Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Through Fire (03:38)
+02. Burn Your World (03:55)
+03. Through The Darkness (03:42)
+04. Shadow Sleep (03:25)(   Читать дальше...   )Жанр: Melodic Death Metal, Power Metal, Symphonic MetalПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA786F6B172721C9F770F0CD662B8380E21B782
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751833   (941754) от 02.02.2014
+
+Vimana - Galactic Guidance [EP] (2013) [FLAC|Lossless]<Full-On, Morning>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Vimana - Speeder (07:59)
+ 02. Chromosome - Reality Engineer (Vimana Remix) (08:38)
+ 03. Vimana - Forces Of Life (08:10)Жанр: Full-On, MorningПродолжительность: 00:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC03E9F2CA2A2F2AC10D6A3E3B73CB1D90DAA8D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090832   (941753) от 10.01.2017
+
+Морис Леблан | Канатная плясунья (2014) [MP3, Наталия Литвинова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средневековая Англия. Страну раздирают междоусобные войны. Молодая девушка, танцовщица на канате, скитается по дорогам вместе с труппой бродячих артистов. Ее ежедневно преследуют голод, побои, издевательства. Но однажды на ее пути встречается умный, добрый и красивый человек – странствующий менестрель, с которым она познает радость и сладкие муки зарождающейся любви. (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 07:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066CB446A248D87CCF27D019F26A213E37BFF467
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091973   (941752) от 10.01.2017
+
+Amanda Fish Band - Down In The Dirt (2015) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  I'mma Make You Love Me  (04:09) 
+02|  Player Blues  (04:28) 
+03|  Wait  (04:58) 
+04|  Guess I'll Lay Down  (03:46) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9A0D54780E433041E49D733F0ED2B00CF14F96
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091840   (941751) от 10.01.2017
+
+PDFpenPro 8.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941751.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFpen Pro - Программа для создания и редактирования PDF-документов. С помощью PDFpen Pro вы сможете добавлять тексты, картинки, подписи, заполнять формы, делать исправления, добавлять, удалять и изменять порядок страниц. Помимо этого вы можете создавать собственные формы и таблицы контента.
+
+Так же PDFpen Pro умеет распознавать отсканированные документы для последующего (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 января 2017Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: OS X 10.10  +Язык интерфейса: Английский, Испанский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3264B2240A01BE3B3328E373E5E13A03887A2F50
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752085   (941750) от 02.02.2014
+
+Ученым удалось сгенерировать магнитные спин-волны, способные эффективно переносить информацию и энергию
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Новый метод, разработанный учеными из Нью-Йоркского университета и описанный в одном из последних выпусков журнала Nanotechnology, позволяет сгенерировать особый вид колебаний магнитных полей. Эти колебания, которые получили название спин-волн, очень быстро перемещаются в пределах магнитных материалов и могут служить новым эффективным методом передачи информации и переноса энергии, что открывает перспективу для использования такого вида волн в области телекоммуникаций, для обработки и передачи информации в пределах компьютерных чипов и в других электронных устройствах.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092013   (941749) от 10.01.2017
+
+Журнал | Цветники в саду №6 (июнь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_941749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто действительно любит жизнь, для всех ценителей красоты и любителей цветов, будь то садоводы-любители или профессионалы, владельцы небольших участков или современных коттеджей. Журнал станет незаменимым помощником при проектировании и разработке цветников, поможет вам правильно подобрать цветы и растения для оформления участка и послужит основой (   Читать дальше...   )Жанр: ЦветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9763DC6B1D9702BE17EFE7E1CB02BEC82DB0E47
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752686   (941748) от 02.02.2014
+
+Г. А. Шпажников | Религии стран Африки. Справочник (1981) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит сведения об этническом и религиозном составе населения Африки, деятельности различных церквей, сект, орденов, миссионерских и других клерикальных организаций. Второе издание (первое вышло в 1967 г.) пополнено новыми сведениями о религиях в Африке в целом и по отдельным регионам. Включена также характеристика синкретических христианско африканских церквей и сект. Приводится обширная библиография.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E33CB3B16A01F46453948D338251B6A09D85D1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

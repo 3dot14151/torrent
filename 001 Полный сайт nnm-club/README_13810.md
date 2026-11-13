@@ -1,0 +1,743 @@
+###  Публикация: 1128045   (730107) от 23.04.2017
+
+Биатлон. Чемпионат России 2017. Уват (Россия). Индивидуальная гонка (28.03.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730107.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 марта 2017 года, вторник
+Чемпионат России по биатлону 2017 года. Уват (Россия)
+1. Женщины. Индивидуальная гонка 15 км
+2. Мужчины. Индивидуальная гонка 20 км(   Читать дальше...   )Телекомпания: АСН “Тюменская арена"Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:40 - 01:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5A703A87273F2BF7E55FC2A15DCD9B7AF54636
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127851   (730106) от 23.04.2017
+
+Биатлон. Чемпионат России 2017. Уват (Россия). Гонка преследования (26.03.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730106.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 марта 2017 года, воскресенье
+Чемпионат России по биатлону 2017 года. Уват (Россия)
+1. Женщины. Гонка преследования 10 км
+2. Мужчины. Гонка преследования 12.5 км(   Читать дальше...   )Телекомпания: АСН “Тюменская арена"Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:54:37 - 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C565A7DDBA2567513210AB63945D515A2B8DF7A6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128211   (730105) от 23.04.2017
+
+Тяжелая атлетика. Чемпионат Европы 2017. Сплит (Хорватия). Мужчины, до 56 кг, группа А. Финал (02.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730105.jpg" />
+</div>
+
+
+###  Подробнее
+
+96-й Чемпионат Европы по тяжёлой атлетике 2017 прошёл в городе Сплит (Хорватия) c 2 по 9 апреля 2017 года. Были разыграны награды в 8 весовых категориях у мужчин и в 7 категориях — у женщин.
+02 апреля 2017 года, воскресенье. 18:00 МСК
+Чемпионат Европы среди мужчин и женщин-2017. Сплит (Хорватия).
+1-й соревновательный день:(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5291A108AF0A4DA6D389F86F16935509ED3EC04
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127980   (730104) от 23.04.2017
+
+The Fabulous Dizzy Gillespie - Pleyel Jazz Concert 1948 (2016) Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Round About Midnight [08:46]
+02. Algo Bueno (Woody'n You) [03:18]
+03. I Can't Get Started [03:48]
+04. Ool-Ya-Koo [05:11](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E996E683203E73DD02068F1B5A3B382C5AD29C61
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128038   (730103) от 23.04.2017
+
+Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). Финал. Россия — Канада (26.03.2017) IPTV [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730103.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 марта 2017 года, воскресенье
+Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай)
+Финал
+Россия — Канада(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FA5DF1EA422CD466BA58A9266C0150E5BF31BA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127923   (730102) от 23.04.2017
+
+PullTube v0.9.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещенном на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио
+Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.
+
+PullTube предлагает Вам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.04.2017Разработчик: MyMixAppsПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE732E30862371E66C75EDED680EAF192A16FD27
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127991   (730101) от 23.04.2017
+
+The Duke Edward Kennedy Ellington - I'm Checkin' Out, Goom Bye (1939) 2CD, 2004, Membran Music [APE|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730101.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dance Of The Goon [02:37]
+02. Good Gal Blues [03:00]
+03. Finesse [02:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50441524EDCF4DC32A1BD160F34D80C1426BE3C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284123   (730100) от 20.02.2019
+
+Before The Rain - Frail (2011) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And The World Ends There (10:39)
+02. Shards (11:52)
+03. Breaking The Waves (17:32)
+04. A Glimpse Towards The Sun (8:56)(   Читать дальше...   )Производство: Avantgarde Music – AV205Жанр: Doom MetalПродолжительность: 01:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC32607818CB046F2716F3B74BB811F070C269A1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284185   (730099) от 20.02.2019
+
+RapidWeaver 8 v8.1.5 (20654)[En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730099.jpg" />
+</div>
+
+
+###  Подробнее
+
+RapidWeaver 8 - очень популярный WYSIWYG-редактор, по праву заслуживший множество наград от таких известных изданий как: MacFormar, MacWorld и MacUser. В отличие от других WYSIWYG-редакторов, он действительно не требует знания HTML, используя для построения сайта множество готовых шаблонов.
+
+RapidWeaver отлично подойдет тем, кто ищет ПО для разработки красивого веб-сайта. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.02.2019Разработчик: Realmac Software LimitedПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CEC653E3C9A1370BBDCFE1DB4129F4C237A4E2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284157   (730098) от 20.02.2019
+
+VA - Progressive Trance Vol.6 (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel & Rimsky feat. Diana Leah - One Last Time (Vadim Bonkrashkov Extended Remix) 05:46
+02. Roman Messer - Lost (Ruslan Radriges Extended Remix) 05:16
+03. ThoBa feat. Kate Miles - Your Love (Extended Mix) 05:31
+04. Jordy Eley - Cosmic Colors (Original Mix) 04:04(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEDE601170FA4F0069055EDF3A7860435BAAB41
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284022   (730097) от 20.02.2019
+
+Foxwarren - Foxwarren (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Be (02:54)
+02. Lost In a Dream (02:55)
+03. Everything Apart (04:16)
+04. In Another Life (02:59)(   Читать дальше...   )Жанр: Alternative Rock, Folk, Indie RockПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CDD081FB20EF4E4BDD576632B2153FEBE404D32
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284134   (730096) от 20.02.2019
+
+Studies 1.6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Studies - это приложение, чтобы помочь вам освоить ваши исследования - какими бы они ни были - на MacOS и IOS. Есть Studies для Mac, iPhone и IPad, и они прекрасно синхронизируются с помощью ICloud. Начало учебы в классе с Studies для Mac, продолжить в автобусе домой с Studies для iPhone, и закончить на диване с Studies для IPad.
+
+Некоторые вещи в жизни просто должны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2019Разработчик: The Mental FacultyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87C50FC01589947B7578F9517F6501315C2738C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284186   (730095) от 20.02.2019
+
+Зачем Америке биатлон?. Специальный репортаж (2019) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Насколько самый популярный зимний вид спорта востребован по ту сторону океана? И нужен ли он Америке?
+3-й раз за последние 8 лет Кубок мира выезжает за океан. Не так давно завершился этап в канадском Кэнморе, скомканный из-за лютых морозов, а теперь биатлонная элита перебралась в столицу Олимпиады-2002 — Солт-Лейк-Сити.
+Корреспондент «Матч ТВ» Илья Трифанов решил (   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: Документальный, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD69C19923E7B86EDA3CB177B4B67837405122D5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284159   (730094) от 20.02.2019
+
+VA - The Journey: The Best Remixes Vol.01 (2019) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.Weo - Lazy Weekend (Soty & Seven24 Remix) 06:20
+02. Moussa Clarke - Astra Aurora (Nio March Remix) 05:08
+03. ZANIO - Will (I-Vision Remix) 08:11
+04. Sunlight Project - Back To Me Somehow (Kana 'Back 2 The 80s' Remix) 06:27(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA452B5E6402697CCC70C725628383E0467D8DD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284151   (730093) от 20.02.2019
+
+VA - Trance Mission (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindsoundscapes - Grasping Life (Radio Cut) 03:19
+02. Dreamy - Scar (Radio Cut) 04:04
+03. George Harrold - Ayuhuasca (Radio Cut) 03:46
+04. Artra & Holland - Mountains (Radio Edition) 03:11(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD118563DEB4DB153A16205026B7B1433B306A4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284305   (730092) от 20.02.2019
+
+OCRKit 19.2.15 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730092.jpg" />
+</div>
+
+
+###  Подробнее
+
+OCRKit представляет собой простое и рациональное приложение для конвертирования файлов формата PDF и графических изображений в PDF-файлы с возможностью поиска по тексту на компьютерах Macintosh. В приложении OCRKit задействована технология оптического распознавания знаков (OCR, Optical Character Recognition), позволяющая распознавать текст в рамках графического изображения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2019Разработчик: ExactCODE GmbHПоддерживаемая ОС: macOS 10.6 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED016427561B1ED932D7B4E099B829D83B347E9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284195   (730091) от 20.02.2019
+
+Keytty 1.2.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте мышью с помощью клавиатуры!
+Перемещение, клик, прокрутка, перетаскивание и многое другое с помощью нескольких нажатий клавиш.Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: KeyttyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55683A37DAD0DFEC5B9CAFC1C2A56B8979C47DFD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284116   (730090) от 20.02.2019
+
+Radare - Im Argen (2015) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Let Me Come into the Storm / Luke (10:06)
+02. Das einsame Grab des Detlef Sammer (4:09)
+03. Burroughs (6:36)
+04. The Queue (4:22)(   Читать дальше...   )Производство: Golden Antenna Records - GOLDEN-034Жанр: Doom Jazz, Dark Jazz, Experimental, RockПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8F360CAF4F2E96D5AAE98CF1B611A34FAB5494
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284197   (730089) от 20.02.2019
+
+Биатлон. Кубок Мира 2018-2019. 8-й Этап. Солт-Лейк Сити - Солджер Холлоу (США). Одиночная смешанная эстафета. Супермикст (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730089.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 февраля 2019 года, воскресенье. 20:10 МСК
+Кубок Мира по биатлону сезона 2018-2019.
+Этап 8. Солт-Лейк Сити - Солджер Холлоу (США):
+Одиночная смешанная эстафета. СупермикстТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2121C6672E8C8A95892B6197A76B72FD3F2A13
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284325   (730088) от 20.02.2019
+
+Vellum 2.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
+
+Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: 180gПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0F32BC35F38274B41A9699CD0FA666122A958F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284208   (730087) от 20.02.2019
+
+VA - Colorful Downbeats Vol . 2 (2019) [MP3|320 Kbps] <Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GMO - Journey into Sound (7:24)
+02. Zen Baboon - Full Moon (Nibana Remix) (9:22)
+03. Kill The Geek - High and Low Places (5:48)
+04. Koan - Dazed (6:56)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75DCE6CBE1224ECEB6322A72D546F7E4D09D333
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284122   (730086) от 20.02.2019
+
+Au Pairs - Sense And Sensuality (1982) Remaster, 2002, Castle Music [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stepping Out of Line (6:01)
+02. Sex Without Stress (4:32)
+03. Instant Touch (3:00)
+04. That's When Its Worth It (4:07)(   Читать дальше...   )Жанр: Alternative Rock, Punk, Post RockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D6FFCF41C3F55F69DE880E1F7DCAC925D11609
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284126   (730085) от 20.02.2019
+
+Au Pairs - Playing with a Different Sex (1981) Reissue, 1992, RPM Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Post Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're So Cool (03:29)
+02. Love Song (02:51)
+03. Set-Up (03:21)
+04. Repetition (Written-By)Жанр: Alternative Rock, Punk, Post RockПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0898ED1E72BF6FC80D97DB5012B16A54EEC78336
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127986   (730084) от 23.04.2017
+
+Luke Sellick - Alchemist (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:01)
+02. Q-Tippin (6:45)
+03. Brothers (4:48)
+04. Hymn (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEF24C15CC2EC89FF23C65CAB99F4690D4D1B86
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128054   (730083) от 23.04.2017
+
+Главное. Итоговая программа (23.04.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое воскресенье в 18.00 ведущая программы Ника Стрижак подводит информационные итоги недели. В этом ей помогают авторитетные собеседники, ведущие авторских рубрик и команда корреспондентов Пятого канала.В этом выпуске: Расстрел французских выборов. За два дня до голосования в сердце Парижа убивают полицейских. Власть беспомощна перед разгулом террора. С чем идут на участки французы? За кого будет голосовать сытый истеблишмент и кому отдадут свои голоса те, кто пережил атаки в Париже и Ницце?
+Американский слон в посудной лавке. Можно ли считать импульсивное поведение Трампа новым (   Читать дальше...   )Телекомпания: Пятый каналЖанр: ТелепередачаПродолжительность: 01:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A946A0E24A47E11C0D9C9E9C2EA6D9EDA741017
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127895   (730082) от 23.04.2017
+
+Night Demon - Darkness Remains (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_730082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Night (3:53)
+02. Hallowed Ground (3:24)
+03. Maiden Hell (2:46)
+04. Stranger In The Room (4:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B63A91344598BD8088D6E8E40730859457757A0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

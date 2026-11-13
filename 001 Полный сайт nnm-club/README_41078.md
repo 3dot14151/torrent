@@ -1,0 +1,740 @@
+###  Публикация: 1798282   (17541) от 21.05.2025
+
+Кунг-фу панда: Лапки судьбы / Kung Fu Panda: The Paws of Destiny (2018-2019) WEB-DL [H.264/1080p] (сезон 1-2, серии 1-26 из 26) Пифагор
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будучи знаменитым Воином Дракона, По прошел через множество опасных испытаний, однако он еще не догадывается, что самое величайшее из них ждет его впереди. Дело в том, что четыре юные панды из Затерянной деревни случайно приобретают в магической пещере древнюю и могущественную силу мастеров энергии ци. И теперь им надо научиться ее контролировать. Ну а в этом им (   Читать дальше...   )Производство: США / DreamWorks Animation TelevisionЖанр: мультфильм, боевик, приключения, комедия, Семейный, фэнтезиРежиссер: Лэйн Луэрас, Джеймс Вуттон, Джонни КастучианоАктеры: Мик Уингерт, Лайя ДеЛеон Хэйес, Макана Сай, Гуннар Сайзмор, Хейли Тджу, Эми Хилл, Кристофер Свиндл, Джеймс Хун, Петр Вальчук, Чериз БуфПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (SDH)Продолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B7875EE4DC2FF118EF51E221CFAEAE920E8AD9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810216   (17540) от 03.08.2025
+
+Военная тайна с Игорем Прокопенко (02.08.2025) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/save_picture_17540.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97056A4B00E66E2ACD6CAD689529E6BD962854BF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810251   (17539) от 03.08.2025
+
+Разборки в Бангкоке / Bangkok Dog (2024) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/save_picture_17539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент Эндрю Кан отправляется в Таиланд с тайной миссией: он должен внедриться в преступную сеть торговцев людьми, которую возглавляет садист Доминик Месиас, и уничтожить её. Эндрю знает уличные законы, владеет боевыми искусствами и вскоре завоёвывает авторитет среди местных гангстеров. Но чем ближе он к раскрытию дела, тем больше он рискует.Производство: Таиланд / Bleiberg Entertainment, Rock Solid Creative StudiosЖанр: боевик, криминалРежиссер: Чайя СупаннаратАктеры: Дайра Сао, Беар Уильямс, Сахаяк Бунтханакит, Брайан Лэ, Рон Смуренбург, Байрон Бишоп, Тофан Пирани, Ярослав Швец, Чарльз Онкен, Чатчаван КамонсакпитакПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B43C1CD389AE650FD366E27FD6D074F9CCEF6E7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810235   (17538) от 03.08.2025
+
+Child Sized Coffin - Feast (2025) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/save_picture_17538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feast from the Cavity
+02. Wife Chopped Your Cock Off
+30. Blood Flood
+04. Forced Contortion(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECD5D61E8EEB81837F1D1689D0A436954FDA87A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798192   (17537) от 21.05.2025
+
+Citadel - Descension (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17537.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Veil 09:14
+2. Sorrow of the Thousandth Death 09:15
+3. Crescent Dissentient 10:30
+4. Under the Primrose 06:55(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4987827D8CD0853F044DED8B33DD13ABFADB23C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798283   (17536) от 21.05.2025
+
+Mississippi Shakedown - Play You Now, Dig You Later (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Gotta Make a Whole Lotta Money (4:10)
+02.  Mississippi Boogie (4:17)
+03.  Dyin' Dyin' Dyin' (3:50)
+04.  Ask Me No Questions (And I'll Tell You No Lies) (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F8AE157376781C43277315860A23B45633675A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798076   (17535) от 21.05.2025
+
+Omegaman - Pillow Talk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Trip Hop, Nu-Soul, Chill>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Love Me, Love You
+02 – Pillow Talk
+03 – Candy
+04 – Whisper(   Читать дальше...   )Жанр: Electronic, Trip Hop, Nu-Soul, ChillПродолжительность: 00:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8EC160A4A884411EB26D1B7FB09FD6BEE53888
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798275   (17534) от 21.05.2025
+
+Carolyn Wonderland - Truth Is (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sooner Or Later (4:13)
+02.  I Ain't Going Back (2:54)
+03.  Truth Is (3:39)
+04.  Let's Play A Game (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068A7ADF73F39D28963436FA52B2B0A36D7285FD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798193   (17533) от 21.05.2025
+
+Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain
+02. Shining Kingdom
+03. Angel's Decay
+04. My Saviour(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2468F6BBB35BE34D3D4BE5A749CDE8902495FB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798066   (17532) от 21.05.2025
+
+Djrum - Under Tangled Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Broken Beat, IDM, Jungle, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – A Tune for Us
+02 – Waxcap
+03 – Unweaving
+04 – L’Ancienne(   Читать дальше...   )Жанр: Modern Classical, Ambient, Broken Beat, IDM, Jungle, TechnoПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE2FAF75C81E688CA200EE4044EEB4A686C7407
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798287   (17531) от 21.05.2025
+
+Resurrection Blues Band - GENESIS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Broke Down In Clarksville (3:52)
+02.  Blame Game (4:05)
+03.  Sugar Daddy (4:05)
+04.  Good, Bad, & the Blues (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077FD9B2B97CAD934407F1E6D1A986D644E028FB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798288   (17530) от 21.05.2025
+
+Ruzz Guitar's Blues Revue - Between Two Worlds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  10-31 (3:44)
+02.  Casting My Spell (2:38)
+03.  Sweet Lovin (4:00)
+04.  Cry Baby (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BE48C0469C275E15B92AFDA2563E2F1F422F40
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798077   (17529) от 21.05.2025
+
+mclusky - the world is still here and so are we (2025) [FLAC|Lossless|tracks + .cue] <Noise Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. unpopular parts of a pig (2:21)
+ 02. cops and coppers (2:03)
+ 03. way of the exploding dickhead (2:49)
+ 04. the battle of los angelsea (1:55)(   Читать дальше...   )Жанр: Noise RockПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394A3EE5994ECF7BB060A2BE6397F1EF81D0EEB7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798184   (17528) от 21.05.2025
+
+Monolith - Magnum Opus (2025) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro #13
+02. Degrees of Ignorance
+03. The Fear
+04. N.F.L.T.G.(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559BF17FF42F0BC67ADDA97EFF3AC10CCC0C4E4F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797691   (17527) от 21.05.2025
+
+Алексей Беркут - Два сердца (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Два сердца [00:03:33]
+02 - Любовь на двоих [00:03:29]
+03 - Рай на двоих [00:03:30]
+04 - Запах черёмухи [00:03:24](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80E93FD8CEF9806AA256B61F1369344B87CBFFD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798229   (17526) от 21.05.2025
+
+НХЛ. Кубок Стэнли 2025. Восток - Финал. 1-й матч. Флорида Пантерз - Каролина Харрикейнз (20.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17526.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 мая 2025, среда. 03:00 МСК, 1/2 финала. 1-й матч. Стадион: Леново Центр (Роли, США), 18 944 зрителя (99% при вместимости 19 041)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0716F9667DB174B447DAA130B2E028C225168B6D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798227   (17525) от 21.05.2025
+
+Гильерме Фигейредо | Лиса и Виноград (Радиоспектакль) (2007) [MP3, Василий Топорков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Гильерме Фигейредо (1915–1997) – бразильский прозаик, драматург, театральный критик.
+Радиоспектакль МХАТ СССР им. Горького по одноимённой пьесе Гильерме Фигейредо.
+Трагедия Гильерме Фигейредо «Лиса и виноград» – одна из трактовок жизнеописания древнегреческого баснописца Эзопа, жившего в VI веке до н.э.(   Читать дальше...   )Жанр: Зарубежная литература, классика, драма, пьесаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACFA5F1507BE047FB5642AE3F2AFBD5800D0DA2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798177   (17524) от 21.05.2025
+
+Norah Jones - Come Away With Me (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Know Why    [0:03:06.12]
+02. Seven Years    [0:02:25.20]
+03. Cold Cold Heart    [0:03:38.45]
+04. Feelin’ the Same Way    [0:02:57.28](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5096AE79046541D2DC837708D92BD5E317E0B644
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798206   (17523) от 21.05.2025
+
+VA - Running To The Ocean (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Ztoned - Tipi Tipi Shakalaka (Radio Edit) (03:00)
+02. Laurent M - I'll Be Back Ibiza (03:30)
+03. Sunlover - Dreamer (02:50)
+04. Skaei - Okay (02:56)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E91D15131F3A750D9ED50A0DF0D126E4A1A280B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798003   (17522) от 21.05.2025
+
+Виктор Третьяков - В гостях у весны (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Улица Весенняя [00:02:28]
+02 - Проводник [00:02:40]
+03 - Эдик (Тюбик-2019) [00:01:43]
+04 - Чебурашка [00:03:05](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE20E0EF9EA50736C848572E7E75CFC72045C99
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797692   (17521) от 21.05.2025
+
+Вадим Кузема - 4 Albums (2024, 2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Вадим Кузема (2024) 50 лучших песен
+Вадим Кузема (2025) Святая ложь
+Вадим Кузема (2025) Ты будешь жалеть(   Читать дальше...   )Жанр: ChansonПродолжительность: 4 CD, 03:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF437B1EDE4EBFB5D8AE1BC9A09691CEC43416B9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797229   (17520) от 21.05.2025
+
+Юрий Кузнецов-Таёжный - Дальнобой (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дальнобой [00:03:22]
+02 - Мать моего ребёнка [00:03:08]
+03 - Падаю вниз [00:04:00]
+04 - Всё дело не в сексе [00:03:01](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF7AC5F93A415C1288707CDDB195568BACD3A28
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798191   (17519) от 21.05.2025
+
+VA - Beach Mode ON! (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chico40 - Don't Call Me (03:05)
+02. Danil Dee - Easy (Radio Edit) (02:28)
+03. Chico40 - I Don't Care (03:34)
+04. Mert Yonar - Without Your Love (03:18)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D040296E29A3DD7B504A9B0D9D64BA0BB3420421
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797523   (17518) от 21.05.2025
+
+Прожект БАМ - Первая любовь (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Первая любовь [00:03:19]
+02 - Собака породы, бульдог [00:02:19]
+03 - Длинноносые туфли мои [00:03:39]
+04 - Свяжи мне, Шурочка, носочки [00:02:36](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A615EE5E9F7FFC69607D97AB0D263FD37D56DFD5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798099   (17517) от 21.05.2025
+
+Eric Clapton - Me and Mr Johnson (2004) [FLAC|Lossless|tracks + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You Got a Good Friend    [0:03:20.32]
+02. Little Queen of Spades    [0:04:57.70]
+03. They’re Red Hot    [0:03:25.08]
+04. Me and the Devil Blues    [0:02:56.37](   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7C0189EED70F3DA1ECEC847DDD6C4516081E66
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798211   (17516) от 21.05.2025
+
+Газета | Загадки истории №21 (647) (2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_17516.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6A591713659A28667E35B002047ADA54633AC7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,0 +1,730 @@
+###  Публикация: 504359   (260183) от 01.06.2012
+
+Журнал | Садовод и огородник №10 (302) [май 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«Садовод и огородник» - это множество практических советов по садоводству и огородничеству, ландшафтному дизайну, содержанию животных. В журнале даны практические советы по уходу за садом и огородом. Специалисты и читатели журнала делятся своим опытом.май 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E18B5FEB9BF7F85FA6500597EA0F0EEBE4CFE5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504117   (260182) от 01.06.2012
+
+Журнал | Women's Only №5 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Женское здоровье. Консультации врачей. Секс и отношения. Питание и диеты. Красота и стиль. Советы дизайнеров, визажистов, фитнес-тренеров. Все это и многое другое в журнале2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFF06B2956F10837F072D423B0AF07251C22E7F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504274   (260181) от 01.06.2012
+
+Космический корабль Dragon компании SpaceX успешно вернулся на Землю и приводнился в Тихом океане.
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Вчера, члены экипажа 31-й экспедиции на борту Международной космической станции (МКС), астронавты Андрэ Кауперс и Джозеф Акаба, используя роботизированную руку-манипулятор космической станции Dextre, отсоединили космический корабль Dragon от стыковочного узла модуля станции под названием Harmony и отвели космический корабль от станции на безопасное расстояние. После этого космический корабль, произвел серию коротких включений маневровых двигателей и около 14 часов по московскому времени покинул пределы 200-метровой запретной зоны вокруг станции, тем самым начав процесс возвращения на Землю.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504204   (260180) от 01.06.2012
+
+[Wallpapers 16+] Gilrs Wallpaper Collection (01.06.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1440х900 - 3888х2592
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D12785A7150876DE47294A6D82ED41A9A6BB321
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504259   (260179) от 01.06.2012
+
+Алекс - В Небо (2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_260179.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Буч
+2. В Небо
+3. Детство
+4. Государство
+5. Безымянные Могилы
+6. Последняя Осень
+7. Нарекаю Тебя Рок
+8. Дорожная Валькирия
+9. Королева Минета
+10. Крутые Бобры(   Читать дальше...   )2012Жанр: Heavy MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19B190E6A65E989384677BC47F1169FD1C5B23B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504203   (260178) от 01.06.2012
+
+[Wallpapers 16+] Wallpapers Sexy Girls Pack (01.06.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_260178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 3888x2592
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5742B7DF87EE1AA179C575C810F20C0D4CBF259A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504195   (260177) от 01.06.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (01.06.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C486C4B60061F80D397C6ADE7AEF9B2B4D3EA0CA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504206   (260176) от 01.06.2012
+
+[Wallpapers 16+] Girls Wallpapers (01.06.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_260176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 3872х2581
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06348D1DCF77A4663047AAFA6DF6DDDA159B88E3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504174   (260175) от 01.06.2012
+
+[Wallpapers 16+] Wallpapers Sexy Girls Pack (31.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_260175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5945120AEEB230FEA269A4EAFEC8726EECDBBBC7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504168   (260174) от 01.06.2012
+
+[Wallpapers] Best HD Wallpapers Pack (31.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_260174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9AB7DE1F43BBC6FBAABCE4F088DD912A2738C6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504338   (260173) от 01.06.2012
+
+VA - Euphonic Classics Vol 1 (01.06.2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Ronski Speed - The Space We Are (John OCallaghan Remix)
+02. Kyau Albert - Walk Down (Club Mix)
+03. Mirco De Govia - Epic Monolith (Original Mix)
+04. Cressida - 6am (Kyau Albert Remix)
+05. Stoneface Terminal - Super Nature (Original Mix)
+06. Marc Marberg - Guarana (Original Mix)
+07. Aly & Fila - Eye Of Horus (Ronski Speed Remix)
+08. MarkSun Brian - Gran Rey (Ronski Speed Remix)
+09. Sonorous - Glass Garden (Original Extended)
+10. Spacewalker - Baywatch (Ole Svens Railway Remake)01.06.2012Жанр: TranceПродолжительность: 01:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A278589D356ABF197B0BFA9ED2125D84944A71
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504202   (260172) от 01.06.2012
+
+[Wallpapers 16+] Sexy Girls Pack Wallpapers (01.06.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_260172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A3335BED7D7C908E31F7BD97F44C5215836A39
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504214   (260171) от 01.06.2012
+
+Журнал | Тайны ХХ века N25 [июнь 2011] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Журнал Тайны ХХ века определил перед собой задачу собрать как можно больше сведений упоминающее чего либо необычного и когда либо случившееся, то что до сих пор является тайной и не объяснимой загадкой двадцатого века. Проклятие мумии. 22 потерпевших от гробницы Фараона. Поиски сокровищ, пропавших без следа кораблей и самолетов, беседы с экстрасенсами и рассказы свидетелей о встречах с инопланетным разумом...июнь 2011Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4DA89A97B6E77F111156FBBD6C1221D7F0B5BE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504196   (260170) от 01.06.2012
+
+[Wallpapers] Best HD Wallpapers (01.06.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C6AB996B4D07922EF44860FBBAA40700A84F90
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504167   (260169) от 01.06.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (31.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2178FCA345A66DB0F2FA7D73F8C26EEA1BB18F3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504170   (260168) от 01.06.2012
+
+[Wallpapers] Mix Wallpapers (31.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30CB90688FF7E21927C468A53083C2D8BD3F351
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504175   (260167) от 01.06.2012
+
+[Wallpapers 16+] Desktop Girls Wallpapers (31.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4320х3240
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00679FFECFAC741C0AD97EBBFC47FF9F385F8FA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504235   (260166) от 01.06.2012
+
+VA - Клубные Новинки Vol.85 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_260166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadmau5 feat. Chris James - The Veldt (8 Minute Edit)
+02. Liquid Soul - Devotion (Protoculture remix)
+03. Colombo - Folding (Original Mix)
+04. Cromby - Feed Those Hoes (Original Mix)
+05. Chris Schweizer - When Love Is Not Enough (Original Mix)
+06. Tommy Vee & Miss Patty - Press Play (Federico Scavo Remix)
+07. ATB - Apollo Road (ATB with Dash Berlin)
+08. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)
+09. Orjan Nilsen feat. Kate Louise Smith - The Thunder (Album Mix)
+10. Solarstone feat. Clare Stagg - Jewel (Original Mix)2012Жанр: Club, DanceПродолжительность: 05:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B98A0D22A2105098B74B872C92DDC964A95604
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504231   (260165) от 01.06.2012
+
+VA - Зарубежные Новинки Vol.53 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_260165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.o.B feat. Morgan Freeman - Bombs Away
+02. Jennifer Lopez feat. Flo Rida - Goin' In
+03. Far East Movement feat. Bill Kaulitz - If I Die Tomorrow
+04. Ellise - Follow My Dreams (Dance Version)
+05. 3OH!3 - Do Or Die
+06. Karmin - Brokenhearted (Mixin' Marc & Tony Svejda Radio Edit)
+07. Andrea feat. Gabriel Davi - Only You (Radio Edit)
+08. Adam Lambert - Chokehold
+09. Coldplay feat. Rihanna - Princess Of China (Invisible Man Remix)
+10. Daniele ft. David Ferrari & Yazz - Tunnel Of Time.2012Жанр: PopПродолжительность: 02:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64AF37504BD9A97BC6B3C83024C521282675F98
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504198   (260164) от 01.06.2012
+
+[Wallpapers] Interior Wallpapers (01.06.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_260164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8BB249E9F6AD1170B812DDD2B13DF2C9AF1CB3D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504404   (260163) от 01.06.2012
+
+Журнал | Корреспондент №21 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Корреспондент» – лидирующий новостной журнал, который пишет для широкого круга читателей об актуальных и интересных темах. «Корреспондент» стремится предсказывать то, что случится завтра и отражать то, что произошло вчера. «Корреспондент» интересуют люди, их идеи и действия, а не события сами по себе. Все статьи в первую очередь рассказывают о человеке. «Корреспондент» поддерживает идеи, а не партии или политиков, стремится к тому, чтобы на его страницах публиковались самые яркие и оригинальные фотографии.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECCFC850B8E1154DF79534B7D3F32993DAD87B6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502831   (260162) от 01.06.2012
+
+Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_260162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colder
+ 02. Learn To Love The Dark
+ 03. Wasted Heart
+ 04. Vultures
+ 05. Not Coming Back
+ 06. No Love Song
+ 07. I Got Nothing
+ 08. Standing Still
+ 09. St Jude
+ 10. Our Lost History(   Читать дальше...   )2012Жанр: Indie RockПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E081DF319FDFA31C7C926CF1B7A30DCAEA2857B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504245   (260161) от 01.06.2012
+
+VA - Super Хитовый №2 from AGR (2012) [MP3|320 кб/с]<Pop, Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Moor & Ashley Wallbridge feat. Gabriela - World To Turn (Club Mix)
+02. Matvey Emerson feat. Sopheary - Wasted
+03. Ваня Романов - Москва-Нью-Йорк (CJ Alexey Lavrentev Remix)
+04. Greg Parys - The Girl Is Mine (Extended Edit)
+05. DJ Сателлит & Marlena feat. PolCox - Почему (Tonada Club Mix)
+06. Dj Viduta - The World Of Souls (Original Mix)
+07. Matvey Emerson - Slow
+08. Nick Kamarera feat. Alinka - Nada Mas (Pego Pego) (Club Extended)
+09. PlomBear - Долгая Ночь
+10. Ga.Ma - Crazy World (Extended Mix)2012Жанр: Pop, Club, DanceПродолжительность: 05:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3A86792FCE75DA0AF7A442920C3C523666BE3D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503875   (260160) от 01.06.2012
+
+Захват с множеством "колючих пальцев" позволит роботу проводить бурильные работы на астероидах.
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+В последнее время мы видим множество изобретений в области робототехники, но лишь немногим из них удается выйти за пределы лабораторий и найти полезное практическое применение. Профессор Аарон Парнесс (Aaron Parness), работавший в свое время в Стэндфордском университете над проектами роботов Stickybot и Spinybot, способных подниматься по вертикальным поверхностям, перешел вместе со своим опытом и наработками в Лабораторию НАСА по изучению реактивного движения (NASA Jet Propulsion Laboratory, JPL), где он занимается разработкой устройства, с помощью которого исследовательские роботы смогут надежно закрепляться на поверхности астероидов и других космических тел.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504176   (260159) от 01.06.2012
+
+[Wallpapers 16+] Girls Wallpaper (31.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4256х2832
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896CE305231D9CA5FAC97B793606448B6D2CAE1C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504173   (260158) от 01.06.2012
+
+[Wallpapers 16+] Sexy Girls Pack Wallpapers (31.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_260158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AE974E79E9854EBD34B48511CABA75CA25202F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

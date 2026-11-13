@@ -1,0 +1,725 @@
+###  Публикация: 1658102   (190656) от 10.09.2023
+
+Elderseer - Drown in the Shallowness (2023) [MP3|320 Kbps] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gilded Shackles [00:09:24]
+02 - Under a Dark Sky [00:07:05]
+03 - This Aesthetic Life [00:07:36]
+04 - Drown in the Shallowness of It All [00:10:07](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B79A2CBC67E8E8BDA118AF7147B34309136E5D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589139   (190655) от 08.11.2022
+
+Black Expression - Nada Es El Fin Vol. 1-2 (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Envuelto En Misterio (Return) [00:06:10]
+02. Lake Of Sanity Pt1 Assembly Line [00:05:16]
+03. Lake Of Sanity Pt2 Lost In All [00:10:21]
+04. Lake Of Sanity Pt3 The Circle Completes [00:04:17](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 2 CD, 01:21:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68F58E3A4335C63F167025ACD602D8EDC94D0A2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658961   (190654) от 10.09.2023
+
+Mats Karlsson - The Time Optimist (2019) [FLAC|Lossless|image + .cue] <Melodic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_190654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bumping Along (4:19)
+02. A Natural High (4:15)
+03. Megalo Seitani (4:14)
+04. I Believe (4:27)(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E0F3C66BBAA4060AD2E409CD0A9CFA6195DC47
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589153   (190653) от 08.11.2022
+
+ScreenFlow 10 v10.0.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190653.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScreenFlow - создаем свои скринкасты.
+Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его «свежекупленном» маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
+Простая, но крайне мощная утилита для захвата и записи (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2022Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DE9018596F7895183D8CDBAA48D0FB33853DD0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658299   (190652) от 10.09.2023
+
+Mustang - Beyond Raging Thunder (2023) [MP3|320 Kbps] <Speed, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Odyssey [00:01:17]
+02 - Children of Thunder [00:07:00]
+03 - Cosmic Rage [00:04:16]
+04 - Queen of Red Light [00:06:38](   Читать дальше...   )Жанр: Speed, Heavy MetalПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E33613C14B8FC17276D5A5A8B2E4A35B54DA440
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589228   (190651) от 08.11.2022
+
+В краю охотников за головами / In the Land of the Head Hunters (1914) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это никак не документальный фильм, он постановочный. Фильм относится к так называемой восстановительной этнографии, т.е. такому способу фиксирования прошлого, который в своем стремлении "спасти" его приметы зачастую может игнорировать настоящее. Например, когда Кёртис снимал фильм про охотников за скальпами, никаких скальпов индейцы уже не снимали.
+Сочетая (   Читать дальше...   )Производство: США / Канада, Seattle Film Co.Жанр: драма, история, этнографический, немое киноРежиссер: Эдвард С. КёртисАктеры: Stanley Hunt, Sarah Constance Smith Hunt, Mrs. George Walkus, Paddy 'Malid, Balutsa, Kwagwanu, Francine Hunt, Bob Wilson, Awidi, Alfred CharlieПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB669959B3FF262957117AA1D991CC356C7954A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658901   (190650) от 10.09.2023
+
+Якорь - Дорога к счастью (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорога к счастью [00:04:57]
+02. Ой тяжел ремень, бляха чёрная... [00:04:48]
+03. Последняя агония [00:03:49]
+04. Не здесь и не сейчас [00:04:20](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06DF4715F26EAA5C1BFD4802569A1BE7438F4BB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589077   (190649) от 08.11.2022
+
+Grimoire Apocalyptica - The First Reclaimers (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Melodic Death Meta>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Dreamer (03:08)
+02 - The Grimoire's Lament (03:02)
+03 - The Pact (07:29)
+04 - The Butcher (03:22)(   Читать дальше...   )Жанр: Experimental, Melodic Death MetaПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC42623B17EA22B630544BCC7752A610EFC68C2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658899   (190648) от 10.09.2023
+
+Iced Earth - I Walk Among You (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Setian Massacre (2008 Remixed & Remastered) [00:03:35]
+02. A Charge To Keep (2008 Remixed & Remastered) [00:04:19]
+03. The Clouding (2008 Remixed & Remastered) [00:09:03]
+04. Dark Saga (Live at Graspop Metal Meeting 2008) [00:03:35](   Читать дальше...   )Жанр: Power, Thrash MetalПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A63AE564F185AE17031BBC02409D68A2E6BC1E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589194   (190647) от 08.11.2022
+
+Аэронавтика - Воздух (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эпиграф [00:00:57]
+02. 1000 рек [00:04:13]
+03. Мёртвые города [00:00:32]
+04. Дороги [00:05:05](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62068AB06C5F1A65AB840C3D0A83DBC097EEC42
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589174   (190646) от 08.11.2022
+
+Александр Дитрих | Как игрушки пошли учиться (1981) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести-сказки, объединенные общим героем, посвящены различным темам: палеонтологии, физике, технике... Герой книги Владик Чудобыльский, попадая в различные сказочно-фантастические истории, знакомится с разными по профессии людьми и постигает в итоге истину — человек в наше время должен разбираться в любом деле, и чем больше ему удается попробовать своими руками, (   Читать дальше...   )Жанр: Сказка, повестьФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C7430B7B975B63464F128E0FBFDB2A9F1442E2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659157   (190645) от 10.09.2023
+
+NetWorker Pro 8.7.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190645.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 10.09.2023Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22A1DB3B05EE81D4D71F2A9091422E5701802E6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658935   (190644) от 10.09.2023
+
+Louis Hayes - Exactly Right! (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exactly Right! [4:40]
+02. Is That So? [6:38]
+03. Hand in Glove [6:45]
+04. So Many Stars [5:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4100B021AB5060AB7875EA11668DA1E45C1307B5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589157   (190643) от 08.11.2022
+
+Александр Дитрих | Белым по чёрному (1962) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она началась… в классе, ночью, когда в школе не было ни души. Она произошла с твоими старыми школьными знакомыми: мелком, тряпкой, авторучкой и глобусом… И, когда ты отправишься следом за ними в далёкие путешествия, ты многое увидишь. И то, что раньше было простым и даже скучным, окажется удивительным.Жанр: Приключения, сказка, повестьФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FBA82686729380B96DB66F93CAC603FE6B4C945
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658020   (190642) от 10.09.2023
+
+Loggins & Messina - Long Island 1976 (live) (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Introduction (live) [00:01:12]
+02 - Another Road (live) [00:02:27]
+03 - Danny's Song (live) [00:03:03]
+04 - At The Whiskey (live) [00:02:19](   Читать дальше...   )Жанр: RockПродолжительность: 01:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB157D4B77F177D36F2E5D6026B2B619937C7B62
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589214   (190641) от 08.11.2022
+
+Татьяна Степанова | Расследования Екатерины Петровской и К° (Книга 25). Пир на закате солнца (2022) [MP3, Ольга Прохорова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_190641.jpg" />
+</div>
+
+
+###  Подробнее
+
+В госпитале творятся странные вещи. Сотрудница пресс-центра ГУВД Катя Петровская сама тому свидетель. И эпицентр этой страшной истории полковник Олег Приходько – Троянец, которого едва живого привезли восемь месяцев назад из Албании. Но у него уже ничего не спросишь, он мертв. Мало того, его труп загадочным образом исчез из морга… Катя вспомнила полоумную медсестру, (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:921D7ADE3B333F836E9A01CCB714C17E3104C9A5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658296   (190640) от 10.09.2023
+
+King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms And Lava (2022) [MP3|320 Kbps] <Psychedelic, Garage Rock, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mycelium [00:07:35]
+02 - Ice V [00:10:15]
+03 - Magma [00:09:06]
+04 - Lava [00:06:41](   Читать дальше...   )Жанр: Psychedelic, Garage Rock, DoomПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC8AC77B9F7E9779F7773CD98BF5562151932AB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589291   (190639) от 08.11.2022
+
+Валле-д'Аоста: альпийская Италия / Val d'Aoste, l'Italie alpine (2021) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы расскажем вам об уникальном уголке Альп: области Валле-д'Аоста. Это самый французский край Италии. Он окружен одними из самых высоких горных вершин Европы, от Монблана до Монте-Роза. В этих долинах говорят на франкопровансальском, ставшем частью местной культуры, которая также нашла отражение в архитектуре и гастрономии. В отличие от французских долин Монблана, (   Читать дальше...   )Производство: Франция, TV5MONDE EuropeЖанр: документальный, путешествияРежиссер: Эрик БакоПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (Hiventy), английские, французские, немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AEA2470ADACC9D777EE86E17D708487CE002DB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589262   (190638) от 08.11.2022
+
+Сбор винограда / Vendanges / Harvest (2014) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виноградник Плажоль, Гайак, Франция. Помочь со сбором урожая приехали около 20 человек. Мужчины и женщины, молодежь и старики. Их привлекает природа, общение, а главное - деньги... Раньше работники приезжали из Испании, Польши, Марокко. А теперь временных работников можно найти и во Франции.Производство: Франция, Everybody on the Deck, Région Midi-Pyrénées, Centre national du cinéma et de l'image animée (CNC)Жанр: документальныйРежиссер: Поль ЛакостПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (Hiventy), английские, французские, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 01:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700FF2D57DC75877D2E8AFB4FEED784F9AE2DAD6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659078   (190637) от 10.09.2023
+
+Своя игра (10.09.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379AFADAC035BD93DDD39E99D25584AFD3FCEBCE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658993   (190636) от 10.09.2023
+
+OSI - Дискография (4 releases) (2003-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190636.jpg" />
+</div>
+
+
+###  Подробнее
+
+OSI — американская прогрессив-рок-группа, первоначально созданная гитаристом Fates Warning Джимом Матеосом в 2002 году.2003 - Office of Strategic Influence
+2006 - Free
+2009 - Blood
+2012 - Fire Make ThunderЖанр: Progressive MetalПродолжительность: 04:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589152   (190635) от 08.11.2022
+
+Юрий Самсонов | Максим в стране приключений (1963) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Максим случайно попадает в Волшебную страну, где правит злой волшебник Топус, создатель и господин живых мыльных пузырей.Жанр: Приключения, повесть, сказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D5F226A313EA0955F5A636B03E2E182E818B83
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658965   (190634) от 10.09.2023
+
+Total Stranger - Mean Season (1986-1990) Remastered, 2023, MelodicRock Classics [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_190634.jpg" />
+</div>
+
+
+###  Подробнее
+
+'Mean Season' (1990)
+01. Mean Season (3:25)
+02. All Or Nothing (4:23)
+03. Soap Box (4:05)(   Читать дальше...   )Жанр: AOR, Hard RockПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8EAA85BE6571BBE5DC86BCC931AD25E6320253
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589220   (190633) от 08.11.2022
+
+Татьяна и Анна Поляковы | Я и Владан Марич (Книга 6). Когда я вернусь (2022) [MP3, Юлия Бочанова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190633.jpg" />
+</div>
+
+
+###  Подробнее
+
+И даже в страшном сне я не могла себе представить, кем я стану самому главному врагу моей жизни. Мой бывший теперь на моих руках круглые сутки! А я – благодарная сиделка, помощница – которую он закрыл от пули своим телом, рискуя собственной жизнью.
+Забелин, конечно, не совсем беспомощен, но моя подруга Маринка и мой отец считают, что он ловко манипулирует мной в (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4EBB7F26F575B05340DD9E6D77EEA8D955B142
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659117   (190632) от 10.09.2023
+
+George Lynch - Guitars at the End of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_190632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Knowing [00:05:37]
+02. Psycho Beta [00:04:31]
+03. The Crucible [00:04:34]
+04. The Passage [00:04:48](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4A0A7B650715B878F743B144493BFC8C29D13E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589202   (190631) от 08.11.2022
+
+VA - SkyTop Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_190631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deep Lark, Makosh -  Sentimental Crying (Cosmonaut Dub)  (5:38)
+02.  QDream -  Ritual  (7:17)
+03.  Dowden -  Paladin  (7:00)
+04.  Envotion -  Aero  (7:37)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6FD4CC608864A83189B7E66291B7AC708A5CBF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

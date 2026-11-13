@@ -1,0 +1,734 @@
+###  Публикация: 455574   (93981) от 21.02.2012
+
+VA - Зажигайте вместе с нами Зимний 50/50 (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+2012Жанр: PopПродолжительность: 06:22:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EB0D6D2E2F07A6CDDFC26FD063CAF94436BE12
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455767   (93980) от 21.02.2012
+
+[Wallpapers] World Games Wallpapers 3 (21.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C621EDB8A877AB474033252EC7ACB703484C36
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454668   (93979) от 21.02.2012
+
+VA - Minimal Art v.2 (10.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_93979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abcdavid - No Chance (Original Mix) (6:32)
+ 02. Anna - Down Under (7:49)
+ 03. Aquabeat - Whisky (Louie Cut Remix) (5:48)
+ 04. Avrosse - Droplet (Original Mix) (6:01)
+ 05. Disco Dancer (Felix Bernhardt Remix) (7:52)
+ 06. Cristian Glitch - El Pito (Zeitspule Remix) (7:11)
+ 07. Cryteque - Acid Rainbow (original mix) (6:16)
+ 08. Damolh33 - Red Beauty (Original Mix) (6:01)
+ 09. Dani San - Clikity Clack (Marco Raineri Remix) (5:00)
+ 10. Desto feat. Kitt Kidoxx - Element (Talstrasse 3-5 Remix) (6:56)(   Читать дальше...   )10.02.2012Жанр: MinimalПродолжительность: 02:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2FBE53AD32B0B7372FDB419C7BCF234998E1F8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455831   (93978) от 21.02.2012
+
+[Wallpapers:]  Обои для рабочего стола - 40 Wallpapers Amazing Flowers Paintings (1600x1200)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Красочные художественные обои
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D29D3746449F49356B84E1CA8C7C190179AAF8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455803   (93977) от 21.02.2012
+
+[Wallpapers:]  Обои для рабочего стола - Mixed Desktop Wallpapers 1080p [Set 5]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Различная тематика обоев
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB62696BBE09363DC38266D41A210432AAAF5172
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455721   (93976) от 21.02.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (20.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FB8E23408DB45309772071422459E035232F11
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454629   (93975) от 21.02.2012
+
+NG: Африканский ушастый сокол / Talon: An Eagle Story (2000) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь вместе с натуралистом Полом Майбургом в путешествие по горам сказочного южноафриканского хребта Дрэкенсберг, чтобы поближе взглянуть на жизнь африканского ушастого сокола, одного из самых талантливых хищников в природе. Способный охотиться на животных, весящих в несколько раз больше него самого, ушастый сокол является первоклассным убийцей приматов.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92988C0A28B1F291B4D8FA8F007FD81AE92241C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455807   (93974) от 21.02.2012
+
+[Wallpapers:]  Обои для рабочего стола - Mixed Desktop Wallpapers 1080p [Set 8]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Различная тематика обоев
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF8BC17305FC728E5C434BE5753EEAA61E16FE0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455765   (93973) от 21.02.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (21.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2602F91DBC7F601A0956A87C1160263AEA90182
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455800   (93972) от 21.02.2012
+
+[Wallpapers:]  Обои для рабочего стола - Mixed Desktop Wallpapers 1080p [Set 4]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Различная тематика обоев
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E588FA41C206E77F8309BF656B66A1612ABF7D85
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455832   (93971) от 21.02.2012
+
+Улетное видео по-русски. Новый сезон  (2012.02.19) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1469CAD24CA1C65069734E73452BB1EE126C15
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455835   (93970) от 21.02.2012
+
+Дорожные войны  (2012.02.20) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал «Дорожные войны» рассказывает о работе сотрудников ГИБДД. Программа основана на материале, снятом видеорегистраторами патрульных машин, уличными камерами наблюдения и случайными очевидцами. Также присутствуют и собственные репортажи от съемочной группы ДТВ, выезжающей на дежурство вместе с экипажами ГИБДД.
+В целом, «Дорожные войны» посвящены двум извечным проблемам: дуракам и дорогам. Теперь, когда появились видеокамеры, можно оценить масштабы этих проблем. Сюжеты получаются разные: от смешных до трагических, от поучительных до просто вызывающих недоумение. Конечно, больше всего проблем на дорогах создают подвыпившие водители, но бывают и более интересные случаи. Например, съемочной группе выдалось заснять как наряд ГИБДД несколько кварталов гнался за… трактором! Водитель долго пытался скрыться, создавая угрозу на дороге — выезжал на встречную полосу и на тротуары. Когда трактор, наконец, удалось остановить, выяснилось, что он числиться в угоне, но водитель так и не смог объяснить, зачем (   Читать дальше...   )Жанр: Документальный сериал, криминалПродолжительность: ~ 00:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A93F86F6BFA783CAD8875D82BCCD6927CACD67C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455833   (93969) от 21.02.2012
+
+Улетное видео по-русски. Новый сезон  (2012.02.20) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE89F406080635A5EC543D452C3E7FA73CF79B9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455304   (93968) от 21.02.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (19.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3FAB39BB27C607EF0A1D859C8047BB68EE9D2E0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455307   (93967) от 21.02.2012
+
+[Wallpapers] Best HD Wallpapers Pack (19.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFD8FEC3D06268C9BEA30491B4B27EA8D4B6BF4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455764   (93966) от 21.02.2012
+
+[Wallpapers] Best HD Wallpapers Pack (21.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7360C2FFC6A03A630B0396E2B6BF34093F887CC9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455760   (93965) от 21.02.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (21.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BB22B41907967275C6DC5981A7D000DD6B232B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455958   (93964) от 21.02.2012
+
+Kalapana - Kalapana II (1976) [MP3|320 kbps]<Funk, pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Love 'Em (3:08)
+02. Freedom (3:56)
+03. (For You) I'd Chase A Rainbow (2:57)
+04. Way That I Want It To Be (4:09)
+05. Dorothy Louise (3:21)
+06. Play It Sing It (2:49)
+07. Moon And Stars (3:22)
+08. Black Sand (5:20)
+09. Lost Again (3:15)
+10. Wandering Stranger (4:00)(   Читать дальше...   )1976Жанр: Funk, popПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAA4575137687B41D419BDCEE387CFEE6B0A011
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455720   (93963) от 21.02.2012
+
+[Wallpapers] World Games Wallpapers 2 (20.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D50116FC353F62652A2F68E597A8C9AD7055FFD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455762   (93962) от 21.02.2012
+
+[Wallpapers] Girls Wallpapers Mix (21.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700B1478687926868F1CBEBA7B58E2298A1C9CB9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455716   (93961) от 21.02.2012
+
+[Wallpapers] Girls Wallpapers (20.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA32E90B1F3A2C5455E90202B2395095EA7075A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455443   (93960) от 20.02.2012
+
+Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_93960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe It`s You (05:13)
+02. Close My Eyes (05:51)
+03. Space Trip (05:12)
+04. Dons You (05:07)2012Жанр: Drum & BassПродолжительность: 00:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455630   (93959) от 20.02.2012
+
+VA - Ночь Любви на Муз ТВ (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Balan - Лишь До Утра
+02. Mylene Farmer - Lonely Lisa
+03. Филипп Киркоров - Даже Если Ты Уйдешь
+04. Brian Mcknight - What's It Gonna Be
+05. Даша Суворова - Я Пою Тебе
+06. Roxette - No One Makes It On Her Own
+07. Сергей Трофимов И Лайма Вайкуле - Я И Ты
+08. Seal - Kiss From A Rose
+09. Катя Бужинская - Нежный, Родной
+10. W. Houston, Kelly Price & Faith Evans - Heartbreak Hotel(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C0F5E8CE4ED7D77FDC5E76E5044984092A0A84
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454488   (93958) от 20.02.2012
+
+VA - US TOP 40 Single Charts (18.02.2012) [MP3|~201~272 kbps]<House, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01 Kelly Clarkson - Stronger (What Doesn't Kill You) 03:42
+ 02 Adele - Set Fire To The Rain 03:35
+ 03 Fun. Feat. Janelle Monae - We Are Young 04:12
+ 04 LMFAO - Sexy and I Know It 03:21
+ 05 Flo Rida - Good Feeling 04:07
+ 06 Rihanna Feat. Calvin Harris - We Found Love 03:36
+ 07 Whitney Houston - I Will Always Love You 04:31
+ 08 David Guetta Feat. Nicki Minaj - Turn Me On 03:20
+ 09 Tyga - Rack City 02:33
+ 10 Madonna Feat. Nicki Minaj & M.I.A - Give Me All Your Luvin' 03:22(   Читать дальше...   )18.02.2012Жанр: House, ClubПродолжительность: 02:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F778722F28AF8E06A8FA950DF904DFE2B87693D0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455166   (93957) от 20.02.2012
+
+DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_93957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah - Falling Away (Protoculture Remix) (ARMADA)
+02. DJ Feel feat Loona - Ill Find Myself (Original Mix) (ALTER EGO)
+03. Orjan Nilsen - Legions (Original Mix) (ARMIND)
+04. Mike Foyle feat. Refeel - Universal Language (Original Mix) (SOUNDPIERCING)
+05. Cold Blue - Coconut (Original Mix) (MONSTER TUNES)
+06. alexander popov - elegia (original mix)
+07. Robbie Rivera - Dance Or Die Series 2 - Makes Me Feel Good (JUICY)
+08. Marcel Woods - Everything (Marcel Woods 2nd Treatment) (MUSICAL MADNESS)
+09. Ferry Corsten feat Ben Hague - Aint No Stoppin (Original Extended) (FLASHOVER)
+10. Cosmic Gate & Arnej - Sometimes They Come Back For More (Stoneface & Terminal Remix) (BLACK HOLE)(   Читать дальше...   )25 Of January 2012Жанр: TranceПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B7CC9D64C5D6DAF3180429FF1EB8FB67A69C7E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455396   (93956) от 20.02.2012
+
+VA - Клубные новинки vol.2 (2012) [MP3|128-320 kbps]<Club, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. DJ Antoine feat. The Beat Shakers - Ma Chеrie (Raf Marchesini Remix)
+ 2. Hotel Stereo - Out Of My Mind (Extended Mix)
+ 3. Queen, Roul & Doors - We Will Assidulty (DJ Flight Secret Mash)
+ 4. Schoolboy - The Science Project feat Ricco Vitali (Original Mix)
+ 5. TON!C - Groundy (Original Mix)
+ 6. Bel Suono - Te Quiero (Jasper Forks Remix)
+ 7. Black Eyed Peas - Dj Veryty - The Time (Dub Remix)
+ 8. Bruno Barudi, Steklo - Fly Away (Original Mix)
+ 9. David Guetta - Love is gone (DJ Veryty) Remix
+ 10. DjPromElektron - Alfa & Omega2012Жанр: Club, ElectronicПродолжительность: 04:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B882F27974074C0D3276B82D04B0578532E7CE95
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,0 +1,724 @@
+###  Публикация: 1209013   (779533) от 25.02.2018
+
+VA - Subculture (Mixed By John O'Callaghan & Cold Blue) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John O'Callaghan  -  Permutations (Intro Mix Edit)  1:58
+02.  Liam Wilson  -  Always With Me (Edit)  5:37
+03.  Temple One feat. Deidre Mclaughlin  -  Reaching For A Dream (Edit)  3:33
+04.  John O'Callaghan  -  Choice Of The Angels (Edit)  5:34(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7790F72E6D0E0362B308D64C4ECE14D126F3904
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208583   (779532) от 25.02.2018
+
+Подборка книг | Звездочки [7 книг] (1912-1913) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок и рассказов для младшего и среднего школьного возраста.Жанр: Детская проза, СказкиФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC21ADBEA5637E6F0C0843DFB4FF158743662385
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209259   (779531) от 25.02.2018
+
+Trace Adkins (Трэйси Эдкинс) - The King's Gift: A Celtic Christmas Collection (2013) Caliburn Records [MP3|320 Kbps] <Country, Country Rock, Folk Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трэйси Эдкинс — американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. The Wexford Carol 3:53
+02. Tannenbaum 3:49
+03. O' Come Emmanuel 5:17
+04. Away In A Manger 3:20(   Читать дальше...   )Жанр: Country, Country Rock, Folk RockПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76524274F34BCEBF7CB0EE7748A0BE507BF557B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209210   (779530) от 25.02.2018
+
+VA - Empire Records - Deep Blue (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Judge - Kinda Love (David K. Remix)
+02. AJ Afterparty - Sound of Heartbreak (Original Mix)
+03. Tolga Mahmut - Alive (Original Mix)
+04. Lost Frequencies & Zonderling - Crazy (Denis First & Reznikov Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B786E1F4D78A11797B1F5EE2175790ACD460ECA8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209135   (779529) от 25.02.2018
+
+VA - PSY: Megapack Psychodelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blastoyz  -  Mandala (Original Mix)  5:58
+02.  Strange Blotter & Mystic  -  Ozrayen (Original Mix)  7:52
+03.  Mindwave  -  3 6 9 (Original Mix)  8:45
+04.  Spectrum Noise  -  Journey (Original Mix)  6:16(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 06:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199E2900D4566B36FFDC6A7F8189ABB7769B4F3F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209054   (779528) от 25.02.2018
+
+MegaDriver - Metalvania (2016) [MP3|192 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk 01:
+01 - Moonlight Nocturne (Castlevania: Symphony Of The Night)
+02 - Wicked Child (Castlevania)
+03 - Opposing Bloodlines (Castlevania: Rondo Of Blood)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592A5CACE87238CB5590E6EE99A37F8AFC777E65
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209130   (779527) от 25.02.2018
+
+В. Ф. Плетнев | Прав ли т. Троцкий [речи о пролетарской культуре] (1924) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тов. Троцкий, в связи с его выступлениями, за последнее время уделил много внимания пролетарской культуре и... Пролеткульту.
+
+В частности выступления тов. Троцкого на совещании в Агитпропе ЦК по вопросу о художественной литературе и на всероссийском Съезде клубных работников заключали в себе острую критику позиции пролетарской культуры. При чем, и в том, и в другом (   Читать дальше...   )Жанр: История, политология, культурологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10FFD175839F3537305A3507BF05D8F6620817D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209152   (779526) от 25.02.2018
+
+The Big Blue House - Binne my (2018) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liar (04:23)
+02. Moments of rain (05:25)
+03. Black eyes (06:34)
+04. Playing this tune (04:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7507A50ED230AAD7173E1542861E6D24639C63B8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208647   (779525) от 25.02.2018
+
+VA - Black Hole Presents Best Of Vocal Trance 2018 Vol 1 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate - Folded Wings 3:02
+02. Craig Connelly Feat. Kate Miles - Lost Without You 3:57
+03. Tiesto Feat. Christian Burns - In The Dark (First State Remix) 3:47
+04. Ferry Corsten - Wherever You Are 2:48(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEB9CF2B7C7F96A86B96FD6B900ADD24C21C5D7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208695   (779524) от 25.02.2018
+
+VA - Vocal Hits Vol.4 (2018) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
+02.  Attila Syah pres. Gamma feat. Cari  -  Every Goodbye (Original Mix)  4:31
+03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
+04.  Three Faces feat. Christian Zechner  -  Lost In Time (Steve Allen Radio Edit)  4:23(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2024338DE8D81F407F6B7EAEED5820D9F90FD303
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209080   (779523) от 25.02.2018
+
+Movavi Video Editor 5 Plus 5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам нужно больше инструментов для создания фильмов, скачайте Movavi Видеоредактор Плюс. В этой программе есть все функции обычного Видеоредактора, а также новые дополнительные возможности – например, анимация объектов.Тип издания: macOS SoftwareРелиз состоялся: 26.12.2017Разработчик: MovaviПоддерживаемая ОС: Mac OS Х 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A0BB73B5E36CBE8603B2F665142ED6417FE639
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208997   (779522) от 25.02.2018
+
+ActivePresenter Professional Edition 7.1.0 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779522.jpg" />
+</div>
+
+
+###  Подробнее
+
+ActivePresenter — программа для создания презентаций и интерактивных обучающих видеоуроков. С помощью её вы сможете осуществлять захват изображения с экрана и сохранять эту информацию в различные форматы файлов. Весь процесс записи происходит в режиме реального времени.
+Для максимального удобства в программе есть возможность создания интерактивного оглавления. С (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A8C25E0DF772F6D6FB91556060733296A59393
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209073   (779521) от 25.02.2018
+
+Журнал | Дачные секреты №3 (34) (март 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779521.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дачные секреты» - это универсальный помощник всем садоводам и огородникам. В каждом номере: наиболее интересные советы читателей, мнение экспертов и рекомендации специалистов по благоустройству садового участка. Основные рубрики журнала: на огороде, работы в саду, плодовый сад, цветник, своими руками, будьте здоровы, дачные рецепты.
+
+Основные рубрики журнала: на (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43B8B98C04BCE02653FBEB4747F1AC9F038E3BF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209177   (779520) от 25.02.2018
+
+VA - Amazing Piano Music (2018) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenny Bern - Simple Piano
+02. Gregory Aigersson - De-Stress
+03. Daniel Philo - Life On the Line
+04. John Flame - Notice Me(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C23BB5C61E0529B0B0F13FE9EE43D94D5AB1C7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209191   (779519) от 25.02.2018
+
+Janiva Magness - Love Is An Army (2018) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To Blue
+02. Hammer (ft. Charlie Musselwhite)
+03. On And On (ft. Rusty Young)
+04. Tell Me(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB67500BE59FBC4E880E8680FC82D1033BAD9A9A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209203   (779518) от 25.02.2018
+
+Brian Culbertson - Funk! (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz, Funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Ready
+02. The Call
+03. Been Around The World
+04. Take It Up(   Читать дальше...   )Жанр: Smooth Jazz, FunkПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F63EF94BFBFCB26C71402266CCA872B68BA720
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209181   (779517) от 25.02.2018
+
+Trace Adkins (Трэйси Эдкинс) - The Definitive Greatest Hits: Til The Last Shot's Fired (2010) Hump Head, 2×CD, Compilation [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трэйси Эдкинс - американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. Ladies Love Country Boys 3:42
+02. Lonely Won't Leave Me Alone 3:06
+03. You're Gonna Miss This 3:44
+04. Muddy Water 3:54(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835169273A5E6EDC1E37A8897F90F4E1E440FC06
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209175   (779516) от 25.02.2018
+
+iRamDisk 3.6.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cамая функциональная программа для создание RAM-диска из свободного объема оперативной памяти. Поддерживает создание и управление более чем одним диском, автоматическое выполнением команд, автоматическое монтирование, скрытную работу, защиту дисков.
+
+Главное отличие от всех прочих решений — присутствует защита рамдиска от размонтирования в случае сна или падения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.02.2018Разработчик: Michaël ParrotПоддерживаемая ОС: OS X 10.6.6 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96ADCBA1EE2DC505A0E73BAD30A096656177998
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209118   (779515) от 25.02.2018
+
+Выходя / Walking Out  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городской подросток едет в Монтану к отцу-отшельнику, чтобы вместе отправится на охоту. Но захватывающее путешествие превращается в борьбу за выживание, когда отец с сыном сталкиваются с медведем гризли.Производство: США / Harbinger Pictures, Burba Hayes, Co-Op Entertainment, EFC Films, Grizzly Creek Films, Walking OutЖанр: триллер, драма, детектив, приключенияРежиссер: Алекс Смит , Эндрю Дж. СмитАктеры: Лили Гладстоун, Кен Уайт, Джош Уиггинс, Алекс Нюстадтер, Мэтт Бомер, Билл ПуллманПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247BEA6F3B728BA278B351B5EFFCAB5EF1AE19CC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209067   (779514) от 25.02.2018
+
+Газета | Народный совет №9 (февраль 2018) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4C6B4A3083F1A6E86F639EBCD617440FD34C66
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209106   (779513) от 25.02.2018
+
+Векторный клипарт - Honey bees and flowers vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Мед пчел и цветочный вектор
+10 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9D4EEE7B9BCF9E5860983E9552797ECDDFA5E5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209063   (779512) от 25.02.2018
+
+Голос. Дети (09.02.2018) WEBRip [H.264] (сезон 5, выпуск 02)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779512.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" представляет премьеру пятого сезона музыкального проекта "Голос. Дети". Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес "Первого канала", музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в слепых (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-шоуПродолжительность: 01:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A773868646A8C62FB93DCF825D94EBD7B23EA22
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209103   (779511) от 25.02.2018
+
+Векторный клипарт - Fotolia - Flower Background [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Цветочный фоны
+48 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F14CDDA3038FEE96A5204ED6095A5344CD7125
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209167   (779510) от 25.02.2018
+
+USDownloader 1.3.5.9 Portable (24.02.2018)  [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AFA7F78C9389E75832CBE494F851DDF020446B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209168   (779509) от 25.02.2018
+
+Social Media Lab - Templates 1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Social Media Lab - Templates for Pages от компании Jumsoft предлагает обширную коллекцию из сотен красивых и стильных шаблонов для ваших сообщений в социальных сетях - продвигайте свой бизнес, сообщайте о продажах, настраивайте и используйте изображения по своему вкусу.
+Сделайте Вашу персональную или деловую страницу уникальной, с сотнями профессионально разработанных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.12.2017Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995592CB41F56FF23071FAB0F76774AA42130831
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209065   (779508) от 25.02.2018
+
+Голос. Дети (16.02.2018) WEBRip [H.264] (сезон 5, выпуск 03)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_779508.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" представляет премьеру пятого сезона музыкального проекта "Голос. Дети". Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес "Первого канала", музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в слепых (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-шоуПродолжительность: 01:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C197A6BF903FE122CDC5219A34007998264CE8D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

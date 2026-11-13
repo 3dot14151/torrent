@@ -1,0 +1,725 @@
+###  Публикация: 1120252   (802855) от 30.03.2017
+
+Призрачная красота / Collateral Beauty (2016) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой работает в рекламном агентстве Нью-Йорка. Не так давно в его личной жизни произошла трагедия, ввергнувшая его в тяжелейшую депрессию. Коллеги пытаются помочь и разрабатывают нетрадиционный план по возвращению друга обратно на твёрдую почву, однако план срабатывает неожиданным образом.Производство: США / Anonymous Content, Village Roadshow PicturesЖанр: драмаРежиссер: Дэвид ФрэнкелАктеры: Уилл Смит, Эдвард Нортон, Кейт Уинслет, Майкл Пенья, Хелен Миррен, Наоми Харрис, Кира Найтли, Джейкоб Латимор, Лиза Колон-ЗайасПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (полные + форс.), английские (Full + SDH + SDH-Colored)Продолжительность: 01:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB127622B06A9FB366AD25D2D307E2545336DE50
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198857   (802854) от 14.01.2018
+
+York - Peace (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Farewell To The Moon  6:33
+02.  Angels Will Help You  5:32
+03.  The Awakening  5:05
+04.  Inmortal  6:21(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76F808CBB6B6F206C256CC64BD02469F44EB400F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120139   (802853) от 30.03.2017
+
+Скрытые фигуры / Hidden Figures (2016) HDRip [Line] [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_802853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда афро-американок проводит для НАСА ряд математических вычислений, необходимых для запуска первой космической миссии.Производство: СШАЖанр: Драма, Биография, ИсторияРежиссер: Тед МелфАктеры: Тараджи П. Хенсон, Октавия Спенсер, Жанель Моне, Кевин Костнер, Кирстен Данст, Джим Парсонс, Махершала Али, Элдис Ходж, Глен Пауэлл, Кимберли Куинн, Олек Крупа, Курт КраузеПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:09:06Реклама: Присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199118   (802852) от 14.01.2018
+
+Forces United - Egorov (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евгений Егоров, известный поклонникам рок-музыки как фронтмен power metal группы "Эпидемия" и участник мюзикла "Последнее Испытание" выпускает свой перый сольный альбом! Во многом это стало возможно, благодаря, неиссякаемой  энергии продюсера Кирилла Немоляева (Бони Нем, Слот), который в рамках своей международной музыкальной лаборатии Forces United (   Читать дальше...   )1. Beconing Heights
+2. Lie
+3. Facing The Storm
+4. Father To Son(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AE46AA4895AA22873736FB35A7177D31C3F111
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505704   (802851) от 28.10.2021
+
+Robert Fripp (ex-King Crimson) - The League Of Gentlemen-God Save The King (1985) Reissue, 1989 [FLAC|Lossless|tracks + .cue]<Electronic, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Save The King 13:13
+02. Under Heavy Manners 4:56
+03. Heptaparaparshinokh 2:07
+04. Inducrive Resonance 4:37(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CEFFAC02CF60E412459CF60FED52717F72EBD1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090627   (802850) от 30.03.2017
+
+Metal War Online: Retribution (2013) [Ru] (1.1.6.1.0.2146) License
+
+>>Win Игры
+>>Online Action (MMO)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metal War Online - это клиентская сессионная MMO-игра в Sci-Fi сеттинге. Cобытия, захлестнувшие мир MWO, основаны на противостоянии двух крупнейших корпораций Global Resource Network и Morgan Industries. Обе структуры боролись за особые месторождения, позволяющие производить синтетическую кровь невиданных доселе качества и свойств. Вскоре противостояние двух титанов (   Читать дальше...   )Тип издания: LicenseРазработчик: GD-Team LtdЖанр: Adventure, MMOFPS, Симулятор, Tanks, Online-gamesЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C203B1BE83541AFBF0364676F5E4CC224A0E34FC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198981   (802849) от 14.01.2018
+
+VA - Record Super Chart #519 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dankann  -  How Deep Is Your Love  2:55
+02.  Mark Sixma & Emma Hewitt  -  Missing (Andrew Rayel & Mark Sixma Remix)  4:32
+03.  Stadiumx & Metrush  -  Spacebird  3:53
+04.  Tom Crusher  -  Higher  3:51(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EDD777A8723DCEDC533325B0BA130E59C1C332
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505695   (802848) от 28.10.2021
+
+Кипелов - Отражение (2013) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сальери и его отражение (6:54)
+02. Ария Надира (4:33)
+03. Мертвая зона (6:19)
+04. Я свободен (7:14)Жанр: Heavy MetalПродолжительность: 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A90DF98850890A4BA7B71C7BDDAC04A9E2749A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120423   (802847) от 30.03.2017
+
+Advanced SystemCare Pro 10.3.0.739 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced SystemCare - программный пакет, содержащий множество модулей для оптимизации, настройки и повышения производительности компьютеров, на базе ОС Windows. Приложение позволяет очистить компьютер от шпионского и рекламного ПО, найти и ликвидировать возможные угрозы и бреши в системе безопасности ОС, исправить ошибки в системном реестре, очистить временные и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232F0A2A697DA51F762ECBE5D9B099FB3FB6DA3C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198997   (802846) от 14.01.2018
+
+Журнал | Садовод и огородник №1 (январь 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802846.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Только в «Садоводе и огороднике»: самые актуальные и полезные советы от ученых, а также проверенные толковые подсказки от садоводов-любителей. Журнал знакомит своих (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B010E48C9CF8DF160E737DD20BB627F22E80CD48
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505471   (802845) от 28.10.2021
+
+The Replacements - Sorry Ma, Forgot To Take Out The Trash (2021) 4xCD, Deluxe Edition [FLAC 2.0|96/24|tracks|WEB-DL] <Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc - 1:
+01. Takin a Ride (2021 Remaster) (02:24)
+02. Careless (2021 Remaster) (01:08)
+03. Customer (2021 Remaster) (01:30)(   Читать дальше...   )Жанр: RockПродолжительность: 03:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE65B61671F8444DA4EBD3CBD0232E24D22C6E55
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120149   (802844) от 30.03.2017
+
+Voxal Voice Changer Plus 2.0 [En]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Voxal Voice Changer - программа с помощью которой можно изменять голос, что достигается благодаря применению различных эффектов ( изменение высоты тона, добавление эха и др.) в режиме реального времени. Эффекты могут добавляться в любой последовательности, что позволяет до неузнаваемости изменить Ваш голос. Захват звука может осуществляться из разных источников, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FE868ED0A993747B429BF5780E651235F269C0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505337   (802843) от 28.10.2021
+
+VA - Synth of Waves 4 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альянс - На Заре (ИИ Gertrudda Edit) (8:59)
+02. Electric Youth - Modern Fears (Pilotpriest Come True Version) (4:03)
+03. DRYVE - The Fading Light (4:01)
+04. Turbo Knight & Vosto - Celestial (5:08)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3EA705A33AE9CC00C0E350478DC16C8893E755
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120219   (802842) от 30.03.2017
+
+Narcosis (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попробуйте выжить в беспросветных глубинах Тихого океана.
+Оказавшись на дне океана почти без света и инструментов, промышленный водолаз отчаянно борется за жизнь — подняться на поверхность надо прежде, чем кончится кислород и наступит безумие.
+Эта история выживания рассказана от первого лица изнутри «ходячего гроба» — суперсовременного скафандра весом в полтонны, (   Читать дальше...   )Тип издания: RepackРазработчик: Honor Code, Inc.Жанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E129E0608355C7017955CCEDDE1004F4F2B95746
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198940   (802841) от 14.01.2018
+
+Газета | Ждём гостей №12 (99) (2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие кулинарные рецепты на все случаи жизни - к торжествам и праздникам и повседневные блюда. Журнал поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.
+Каждый рецепт пошагово обьясняется с фото.
+
+Приятного аппетита!Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B34E780433471D70E3DB5F621683267B4E055B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505857   (802840) от 28.10.2021
+
+Hazell Dean - The Dean & Ware Collection (2CD) (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Pop, Dance-Pop, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judgement Day
+02. Nightlife
+03. Out of Control
+04. Whatever I Do (Wherever I Go)(   Читать дальше...   )Жанр: Euro-Disco, Pop, Dance-Pop, Hi-NRGПродолжительность: 02:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAB51D9C023D36EA45D7135A690B79155895076
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120393   (802839) от 30.03.2017
+
+JetBrains AppCode 2017.1 Build #OC-171.3890.9 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802839.jpg" />
+</div>
+
+
+###  Подробнее
+
+AppCode – умная IDE, предназначенная для разработчиков iOS/macOS приложений для устройств Apple, таких как Mac, iPhone и iPad. AppCode содержит полный набор необходимых средств для эффективной и удобной работы с языком Objective-C, Swift, C, C++ и на 100% совместима с Xcode.Тип издания: macOS SoftwareРелиз состоялся: 28.03.2017Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.11Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0AF0F07B647ADC9F166DB2C76ADC2571C76EA6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198850   (802838) от 14.01.2018
+
+Dirty Tricks - Night Man (1976) Reissue, 2004, Majestic Rock [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802838.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Night Man
+2. Weekend Raver
+3. Armageddon (Song For A Rainbow)
+4. Fun Brigade(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82D43024B155E525DB1678E4C2222CB1630EEFA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505368   (802837) от 28.10.2021
+
+VA - Synth of Waves 8 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. roadblok - DeLorean Heavy Kneedeep In Neon (Gertrudda Edit) (11:05)
+02. c152 - Romantic Night (feat. shiruku & chirrrex) (Gertrudda Edit) (6:16)
+03. Прожектор Перестройки - Lighting Strike (4:00)
+04. Maria Davis - Echo (3:55)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F83E0464970909DEDE628D2BFB7208F0CE71A9C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100946   (802836) от 30.03.2017
+
+Idol Jihen / Idol Incidents / Проблемы идола [2017, TV, 12] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увеличение разрыва в доходах, постепенное загрязнение окружающей среды, неразрешимые проблемы отходов, списки по уходу за ребенком в ожидании обсуждается без тех, кого это касается, коррупция... власти, размазанны из-за корыстных интересов, ничего не могу сделать против многих проблем и источников недовольства. Это в данной ситуации, с Японией, загнанной в угол, (   Читать дальше...   )Производство: Студия MAPPAЖанр: повседневность, музыкальныйРежиссер: Ёсида ДайсукэЯзык озвучки: Русский (Brigella)Субтитры: ОтсутствуютПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DD69EAA773E26590EFD061538BF822059805D0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199096   (802835) от 14.01.2018
+
+Endurance Antivirus 4.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Endurance Antivirus - Adware & Malware антивирус.
+" ... проведенное исследование группы независимых разработчиков, в области антивирусной безопасности, - атаки на системы с macOS в 2017 г. увеличились на 78% (что несомненно говорит, о все растущей популярности компьютеров Mac)."
+
+Приложение тщательно сканирует все файлы и папки в вашей системе. Уникальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2018Разработчик: EDELWEISS SRLПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F397A5A284A759729B43C217F84F763273408C3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505605   (802834) от 28.10.2021
+
+Elton John - The Lockdown Sessions (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802834.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Lockdown Sessions - четвертый совместный альбом английского певца и автора песен Elton John. Он был выпущен на лейблах EMI и Mercury Records (Interscope Records в США) 22 октября 2021 года. Альбом был записан во время пандемии COVID-19 после того, как Elton был вынужден приостановить свой тур Farewell Yellow Brick Road из-за пандемии. В альбом вошли три сингла: (   Читать дальше...   )01. Cold Heart (PNAU Remix) (with Dua Lipa) (03:22)
+02. Always Love You (with Young Thug and Nicki Minaj) (04:17)
+03. Learn To Fly (with Surfaces) (03:31)
+04. After All (with Charlie Puth) (03:28)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58052941865018C16C2D97C14D4DB72BCC10A01E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115605   (802833) от 30.03.2017
+
+Железный кулак / Iron Fist (2017) WEBRip (сезон 1, серии 1-13 из 13) Newstudio [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя годы после исчезновения, Дэниэл Рэнд возвращается в Нью-Йорк и начинает борьбу с криминалом, используя свои невообразимые навыки кунг-фу и способность вызывать силу Железного кулака.Производство: США / ABC Studios, Disney-ABC Domestic Television, Marvel EntertainmentЖанр: фантастика, боевик, криминал, приключенияРежиссер: Джон Дал, Фэррен Блэкберн, Ута БризвитцАктеры: Джессика Хенвик, Финн Джонс, Джессика Строуп, Розарио Доусон, Людовик Куто,Крэйг Джерати, Тихуана Рикс и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioПродолжительность: ~00:56:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8040708D2B50A5CF402A4324305A262AC3E711D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199153   (802832) от 14.01.2018
+
+Stephanie K. - A Word Before You Go (2018) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Word Before You Go
+02. Side Dish
+03. Ignorance Is Bliss
+04. Honu(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE98983F1CB5AE03F373624EB21DDD716B5CA43
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505694   (802831) от 28.10.2021
+
+В.Ю. Мишина, Е.Н. Стрельникова | ЕГЭ 2021. Химия: экзаменационные варианты (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание предназначено для подготовки учащихся к ЕГЭ по химии.
+Пособие включает 15 тренировочных вариантов, составленных в соответствии с демоверсией, и ответы ко всем заданиям.
+Книга будет полезна учителям химии, так как даёт возможность эффективно организовать учебный процесс и подготовку к экзамену.Жанр: ЕГЭ/ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2AE4487BC231818E1D928B311F02647F705DDE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198757   (802830) от 14.01.2018
+
+VA - EDM Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_802830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer, DJ Xquizit & OSITO  -  Empire Of Our Own (Original Mix)  3:56
+02.  Maria Milewska & Dennis Graft  -  Until (Original Mix)  2:42
+03.  Mantra, Ruslan Radriges & Lucid Blue  -  Take Me Higher (Original Mix)  3:33
+04.  LTN  -  Wind & Cloud (Original Mix)  3:21(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5EA59DA79D1F782FFAAB378CE0E0544348A7222
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

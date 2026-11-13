@@ -1,0 +1,730 @@
+###  Публикация: 994091   (891671) от 07.03.2016
+
+Футбол. Чемпионат Англии 2015-2016. 29 тур. Вест Бромвич - Манчестер Юнайтед. (06.03.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891671.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 марта 2016, воскресенье. 19:00 МСК
+29-й тур
+
+Стадион: Хоуторнс (Вест Бромвич, Англия) , 24 878 зрителей (89 % при вместимости 28 003)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE07B9AB27AA8A02CE4D059BEDE18B63F8E0A8B0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371383   (891670) от 30.03.2020
+
+Хизер Адкинс и др. | Создание безопасных и надежных систем. Лучшие практики для проектирования, внедрения и обслуживания систем (2020) [EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли считать систему действительно надежной, если она не является принципиально безопасной? Или это можно считать безопасным, если это ненадежно? Безопасность имеет решающее значение для проектирования и эксплуатации масштабируемых систем на производстве, поскольку она играет важную роль в качестве, производительности и доступности продукта. В этой книге эксперты (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2E92889AE70DB00E44675B38A73A2463F74E4C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371246   (891669) от 30.03.2020
+
+Антон Текшин | Не время для игр (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891669.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Не время для игр» – фантастический роман Антона Текшина, жанр ЛитРПГ, постапокалипсис.
+Данное произведение является вольным приквелом цикла «Размороженный» и рассказывает о зарождении технологии капсул виртуального погружения, когда Клим Денисов ещё находился в криостазе.
+Малаал не любит слабаков и ненавидит героев. Только тот, кто готов отдать всё, ради достижения (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 11:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4E4BE52E7D35FC6094D114044BEA14045618B8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994328   (891668) от 07.03.2016
+
+Хоккей. НХЛ 2015-2016. Чикаго - Детройт. (06.03.2016) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/011/save_picture_891668.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 марта 2016, понедельник. 01:00 МСК
+
+Стадион: Юнайтед-центр (Чикаго, США) , 22 247 зрителей (99 % при вместимости 22 428)
+Главный судья: Тим Пил (США)(   Читать дальше...   )Телекомпания: CSNЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB52BE188CAB79370E7EC26DF2CC62E82DB5C6C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371270   (891667) от 30.03.2020
+
+Готовый убивать / Fit to Kill (1993) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группе агентов ФБР поручено охранять богатого китайского бизнесмена Чанга на вечеринке в Мауи, где он должен встретиться с российским дипломатом Михаилом Петровым.
+Именно ему Чанг должен вручить знаменитый «алмаз Алекса», который в свое время был найден в Сибири, но попал к немецким оккупантам, а от них — к Чангу…Производство: США / Malibu Bay FilmsЖанр: Боевик, ТриллерРежиссер: Энди СидарисАктеры: Дона Спейр, Роберта Васкес, Брюс Пенхалл, Джеффри Мур, Тони Пек, Синтия Бримхолл, Джули Стрэйн, Родриго Обрегон, Аки Алеонг, Ава КаделлПеревод: Двуголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE63B5FADCD00EBFE2165B444A50CB5932A6D44
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993641   (891666) от 07.03.2016
+
+Krallice - Krallice (2008) [FLAC|Lossless|image + .cue] <Avant-garde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wretched Wisdom 10:14
+02. Cnestorial 10:42
+03. Molec Codices 09:35
+04. Timehusk 06:05(   Читать дальше...   )Жанр: Avant-garde Black MetalПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307E2CBEA8EF84DA445BBF1199E58FD5102FB8AD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370704   (891665) от 30.03.2020
+
+Прогулка по Риму / Una gita a Roma / An Outing to Rome (2017) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франческо исполнилось 9 лет, и семья подарила ему билеты в Рим, чтобы увидеть знаменитую Сикстинскую капеллу. Настал долгожданный день поездки, но непредвиденные проблемы заставляют вернуться из Рима раньше. Франческо не устраивает такой ход вещей, и он решает сбежать от мамы и самостоятельно добраться до Ватикана… Младшая сестра Мария следует за ним, и перед детьми (   Читать дальше...   )Производство: Италия / C'èЖанр: ПриключенияРежиссер: Карин ПройаАктеры: Стефано Амброджи, Фабрицио Аполлони, Лучия Батасса, Пино Борселли, Сильвана Бози, Раффаэль Буранелли, Tea Buranelli, Клаудия Кардинале, Francesca Luce Cardinale, Кьяра КонтиПеревод: Многоголосый профессиональный (ПилотКино)Субтитры: ОтсутствуютПродолжительность: 01:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5716E503AFA22B03DCBA0EB3C7E576330520B1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994139   (891664) от 07.03.2016
+
+Charlie Shavers - The Most Intimate (1955) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stella By Starlight [02:54]
+ 02.Ill Wind [02:55]
+ 03.Stormy Weather [03:43]
+ 04.Out Of Nowhere [03:50](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA24586614BF297231F959FE620EF080928652D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371149   (891663) от 30.03.2020
+
+Equalizer FX Pro 1.3.2 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любите слушать музыку? Так почему бы не насладиться ее отличным качеством? Приложение Equalizer FX Pro можно использовать для любого медиаплеера и даже на Вашем Android для регулирования громкости и улучшения качества звука, чтобы насладиться песнями различных исполнителей самых популярных жанров. Также оно визуализирует спектры и даёт возможность выбрать 1 из 6 (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.03.2020Разработчик: HowarJranПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A6C9AB3A07607D41CE0863829ACD26697CF7DB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994142   (891662) от 07.03.2016
+
+Freddie Hubbard - Keystone Bop: Sunday Night (1981) 1994, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Birdlike [15:23]
+ 02.The Littlest One Of All [10:26]
+ 03.The Intrepid Fox [16:03]
+ 04.Sky Dive [17:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786BF435CFBC6938FB903397A09ED95736889F4A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370821   (891661) от 30.03.2020
+
+Rammstein - Remixes (2020) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Harte>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. du riechst so gut (scal remix) (04:45)
+02. rammstein in the house (the timewriter remix) (06:24)
+03. du riechst so gut ('98) (04:24)
+04. du riechst so gut (remix by faith no more) (01:57)(   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche HarteПродолжительность: 05:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28DCB8A040E3E1B37FBC13C26546C266950CD39
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994250   (891660) от 07.03.2016
+
+Биатлон. Чемпионат Мира 2016. Осло-Хольменколлен (Норвегия). Спринт 7,5 км  Женщины (05.03.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по биатлону проходит со 2 марта 2016г. по 13 марта 2016г. в норвежском Холменколлене. Медали будут разыграны в 11 видах программы.Жанр: СпортПродолжительность: 01:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154FE7012A8CB0D4DAECF1108A785A01695C534B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371321   (891659) от 30.03.2020
+
+Ирина Галеева | Вынос мозга. Чудеса восприятия и другие особенности работы нервной системы (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что происходит с нашей нервной системой в течение дня? Как реагирует наш мозг на кофеин, алкоголь, влюбленность, сон? Можно ли силой мысли замедлить биение сердца или умереть от счастья? На все эти вопросы ответит книга врача-невролога и популярного блогера Ирины Галеевой.
+Вымышленный герой, в котором каждый может узнать себя, пройдет по лабиринту нервной системы (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно о медицинеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEA44C16436B2D7E20D7442D4A28A8EC2745DFC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994360   (891658) от 07.03.2016
+
+Brother Jack McDuff - Tobacco Road (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Teardrops From My Eyes [02:08]
+ 02.Tobacco Road [03:00]
+ 03.The Shadow Of Your Smile [03:56]
+ 04.Can't Get Satisfied [05:15](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-Funk, Hammond OrganПродолжительность: 00:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1263606C3C3C9D91DBE6C9596E99ECB38965FFD7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371327   (891657) от 30.03.2020
+
+CleanMyPC 1.10.6.2044 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891657.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanMyPC очищает компьютер от ненужных файлов, системного мусора, остатков ранее удалённых приложений и освобождает место на диске, а также обеспечивает более быструю работу Windows. Также продукт позволяет безопасно и без возможности восстановления удалять файлы с диска, управлять расширениями и плагинами браузеров, гаджетами рабочего стола, чистить реестр, очищать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99164F6CF8ACEE6E55EE2CFD4FA915D008DBABFB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993642   (891656) от 07.03.2016
+
+Jarra - Test of Faith (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Love
+02. Black Snow (The Final Sign)
+03. Pain
+04. Indian War Love Song (Deliver Me)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A754F755BACB2AA10B61A1992E8719A362BB8D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994342   (891655) от 07.03.2016
+
+Новости Euronews в 16_30 (07.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новости: Подробное изложение главной новости дня: анализ и интервью с самыми осведомленными собеседниками.
+Рынки: Международные и Европейские деловые новости, доступные в формате видео.
+Спорт: Обзор самых значимых событий спортивного мира.Телекомпания: EuronewsЖанр: ТелепередачаПродолжительность: 00:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43765C334978C8B6B9D4BF4A31555EAEF0741357
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994169   (891654) от 07.03.2016
+
+VA - Our All  Products In One Pack (2016) [MP3|218-320 кб/с] <House, Electro, Melodic, Progressive, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3LAU & Nom De Strip - The Night (Feat Estelle) (Ak9 Remix) [04:50]
+002. Austin Leeds And Redhead Roman - Werk (Original Mix) [04:19]
+003. Bart Claessen & Billy The Kit Feat. Maxine - Make It Happen (Radio Edit) [03:29]
+004. BouncerBros - DucKing (Original Mix) [05:02](   Читать дальше...   )Жанр: House, Electro, Melodic, Progressive, TranceПродолжительность: 13:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011EF45CC6E451D9B1B4075D5834C1A0BE6F676A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994174   (891653) от 07.03.2016
+
+VA - EDM Forever Soundset (2016) [MP3|253-320 кб/с] <House, Funky, Tropical, Soulful, Bigroom, Indietronica>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891653.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. IGMO - Nobody Sleeps 07:13
+002. Jota M - Baila mi acid house ((Latin Party Remix)) 02:47
+003. Low Steppa Feat. Kelli-Leigh - Runnin' (Extended Mix) 03:36
+004. Bleu Toucan - Le chant du cygne (Shinichi Osawa Remix) 05:16(   Читать дальше...   )Жанр: House, Funky, Tropical, Soulful, Bigroom, IndietronicaПродолжительность: 08:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D752E16EC5BA92F6D727C20DD40B2A7ECACA2582
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994148   (891652) от 07.03.2016
+
+Freddie Hubbard - Sweet Return (1983) 2001, Collectables[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sweet Return [09:25]
+ 02.Misty [05:59]
+ 03.Whistling Away The Dark [05:07]
+ 04.Calypso Fred [04:14](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8111960C1CDBC1811E35DCCEF9D6718F6CA8B96
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994173   (891651) от 07.03.2016
+
+VA - Xela - Boomkat Selected Mixtapes Volume 6 - Listen With Xela (2004) [FLAC|Lossless|tracks + .cue] <IDM, Experimental, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edward Artemiev - Solaris Part I (02:43)
+02. Carbon Framework - Krane (03:39)
+03. Spencer Moore - Driveway To The Cemetery (Night Of The Living Dead OST) (02:01)
+04. Goblin - Jane Mirror Theme (00:52)(   Читать дальше...   )Жанр: IDM, Experimental, AmbientПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBB19E89DD10688F43184B1902DF26118E17A1B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994258   (891650) от 07.03.2016
+
+Биатлон. Чемпионат Мира 2016. Осло-Хольменколлен (Норвегия). Гонка преследования  12.5 км Мужчины (06.03.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по биатлону проходит со 2 марта 2016г. по 13 марта 2016г. в норвежском Холменколлене. Медали будут разыграны в 11 видах программы.Жанр: СпортПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C9C004806B88B87D0ADAC62160DA702FF70B66
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994271   (891649) от 07.03.2016
+
+VA - Милым дамам к празднику весны (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Светлана Тарабарова - Главный Герой.mp3
+002.  Авиатор - В Твоих Глазах.mp3
+003.  SAHA - Всего Лишь Три Слова.mp3
+004.  Алекс Юлдашев - Сердцебиение.mp3(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856898FAFD325C7494054520C1A3A12714BC781E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993636   (891648) от 07.03.2016
+
+Paths Of Possession - Promises In Blood (2005) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Darklands
+02.The Butchers Bargain
+03.Bleed the Meek
+04.The Second Coming(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BDE8B5028203E3A86C096E12BFE86777F164E1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994281   (891647) от 07.03.2016
+
+VA - Armada Trice Miami (2016) [MP3|320 кб/с] <Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stadiumx, Dzasko feat. Delaney Jane - Time Is On Your Side (Rayven & Valexx Extended Remix) (05:56)
+02. Thomas Mengel - Nameria (Extended Mix) (06:04)
+03. Culture Code & Shanahan feat. Matthew Steeper - Anyway (Extended Mix) (03:59)
+04. Far Out feat. Joni Fatora - House Of Cards (Extended Mix) (06:05)(   Читать дальше...   )Производство: Armada TriceЖанр: Trance, Progressive HouseПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6475CE17B6212A546671D13E6488C6A3BFF9007E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993646   (891646) от 07.03.2016
+
+Dreamlike Horror - Delightful Suicides (2005) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_891646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Hunt
+02. The House That Breathes with Ghosts
+03. Moonshine
+04. Damien(   Читать дальше...   )Жанр: Atmospheric Black Metal, Gothic MetalПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7558CD4251B54AEAC4A76D0D2C8BAFC8C58469D8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

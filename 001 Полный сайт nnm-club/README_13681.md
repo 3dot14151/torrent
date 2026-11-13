@@ -1,0 +1,720 @@
+###  Публикация: 1399540   (733461) от 31.07.2020
+
+MarsEdit 4 v4.4.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 31.07.2020Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322709154BB94512BBFE346627FF4D5705017EF3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399385   (733460) от 31.07.2020
+
+Людмила Шелгунова | Храбрый лев (1905) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка для детей младшего школьного возраста.Жанр: Детская проза, СказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF75266720CE9F6A12329667A2DAB23A4DAF0509
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399448   (733459) от 31.07.2020
+
+VA - FSOE Top 20 -  June (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Distance - Smoke & Ash (Original Mix)
+02. Aly & Fila with JES - I Won't Let You Fall (Extended Mix)
+03. Aneesh Gera - Kryptonite (Extended Mix)
+04. Sean x Dee x Melody Stranger - Apollo (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA472B425610289A8AAA858691C7F5571A40E807
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399396   (733458) от 31.07.2020
+
+Default Folder X 5.5b2 (build 3488) [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.07.2020Разработчик: St. Clair SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399493   (733457) от 31.07.2020
+
+RapidCart Pro 4 v4.18.4 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733457.jpg" />
+</div>
+
+
+###  Подробнее
+
+RapidCart Pro - это мощный плагин  RapidWeaver для запуска интернет-магазина.Тип издания: macOS SoftwareРелиз состоялся: 23.07.2020Разработчик: ForegroundПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399463   (733456) от 31.07.2020
+
+VA - FSOE Top 20 -  July (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila with Susana & Roger Shah - Unbreakable (Sunlounger Remix)
+02. Nuera - Po (Extended Mix)
+03. 21Street & Burak KESKIN - La Sol Goa (Extended Mix)
+04. Paul Thomas & Fuenka feat. Eleonora - Come With Me (Sean & Dee Remix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:11:07
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399382   (733455) от 31.07.2020
+
+WebScraper 4.12.1[En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733455.jpg" />
+</div>
+
+
+###  Подробнее
+
+WebScraper использует механизм Integrity v8 для быстрого сканирования веб-сайта и может выводить извлеченные данные (в настоящее время) в виде CSV или JSON. Плюс загружайте изображения в папкуТип издания: macOS SoftwareРелиз состоялся: 30.07.2020Разработчик: PeacockMediaПоддерживаемая ОС: Mac OS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399429   (733454) от 31.07.2020
+
+Лев Кассиль | Швамбрания (1975) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка «Швамбрания»- это сказка о жизни двух мальчишек, которые очень любили приключения и придумали фантастическую страну Швамбранию, для того чтобы мечтать, играя, и играть, мечтая. Удивительно, но им это удалось! Игра, мечта и события  жизни так тесно переплелись и смешались, что стало совсем непонятно, где кончается реальность, и где начинается фантазия.Жанр: Детская литература РадиоспектакльВ ролях: Всеволод Абдулов, Татьяна Курьянова, Владимир Иванов, Маргарита Корабельникова, Эсфирь Кириллова, Всеволод Якут, Авангард Леонтьев, Валентин ГафтПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C767D1C01024343EA17FCDE3AE2099E85DDA029
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399473   (733453) от 31.07.2020
+
+iBarcoder 3.11.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 14.07.2020Разработчик: Cristallight SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6301BBEA5F9FDC5318B4B22EA6EBEAE42918EAA8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399554   (733452) от 31.07.2020
+
+The Three Prophets - Empty Vessels (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:10)
+02. Shit! I Still Love You (feat. Richard Fordham) (3:50)
+03. Girls' Night Out (6:32)
+04. Le Petit Parisienne/Malted Baguette (feat. Pamusic & Lorena Bobbitt) (6:48)(   Читать дальше...   )Производство: Three Prophets Label Ltd.Жанр: Hip-HopПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399563   (733451) от 31.07.2020
+
+Ragnar Grippe - Lost Secrets (1981) LP [MP3|320 Kbps] <Electronic, New Wave, Prog Rock, Disco>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Aztecs (6:10)
+02. Stonehenge (4:02)
+03. Babylon (4:51)
+04. Time & Space (4:38)(   Читать дальше...   )Жанр: Electronic, New Wave, Prog Rock, DiscoПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399401   (733450) от 31.07.2020
+
+SILKYPIX Developer Studio Pro 10 v10.0.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_733450.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro — мощное приложение, которое предназначено для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
+
+С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.07.2020Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8390FAFFDB90878D2A2358D0075DE278EB45215A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399460   (733449) от 31.07.2020
+
+FontExplorer X Pro 7 v7.1.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_733449.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontExplorer X Pro предоставляет пользователю всевозможные средства и инструменты, которые позволяют проводить любые операции: сортировать старые шрифты, искать и импортировать новые, проводить выборку из любимых шрифтов и множество других функций.
+
+Программа интересна не только своими организационными возможностями, а они действительно неплохи и включают в себя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2020Разработчик: Linotype Corp., Woburn, MassachusettsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCB92965504A01758045579A740DBDD4DA84C26
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399381   (733448) от 31.07.2020
+
+Elmedia Player Pro 7.13 (2220) [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+
+Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2020Разработчик: Eltima LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399383   (733447) от 31.07.2020
+
+Subtitle Studio 1.5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_733447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощное, ориентированное на пользователя приложение, которое позволяет быстро создавать, настраивать, редактировать и даже вставлять субтитры в фильмы.
+Subtitle Studio - единственное решение для субтитров, в котором вы будете когда-либо нуждаться: найдите, приспособьте, отредактируйте, создайте, включите. Все в одном приложении — и мы только начинаем.
+
+Замечательно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2020Разработчик: TheKeptPromiseПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB6BA3B4364F16981119F3A7156D78048644983
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399316   (733446) от 31.07.2020
+
+Celtic Frost - Vanity/Nemesis (1990) (1-st US pressing) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_733446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Heart Beneath (03:49)
+02. Wine In My Hand (Third From The Sun) (03:28)
+03. Wings Of Solitude (04:36)
+04. The Name Of My Bride (04:32)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A96B6D7B5BC0135B0871DF8A28C8D73E82D2E5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399486   (733445) от 31.07.2020
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 July (Extended Version) (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_733445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz feat. Jared Lee - Together (Rise Together Extended Mix)
+02. Ferry Corsten - Tomorrow (Extended Mix)
+03. Markus Schulz - Sunrise Over The Bay (Daxson Extended Remix)
+04. Kemal Vatansever & AVCI - The Dreamer (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64D2FFEB655508925C5CCD553FD39EDECFA23F1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399528   (733444) от 31.07.2020
+
+Формула 1. Сезон 2020. Этап 4. Гран-при Великобритании. Свободная практика 2 (31.07.2020) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_733444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Великобритании. Свободная практика 2
+Арена: Автодром Сильверстоун (Сильверстоун, Великобритания)
+31 июля 2020 года, пятница. 17:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162A1AB76B3A81078EAF5B8560419AEFFD3A9F05
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399360   (733443) от 31.07.2020
+
+Metal Priest - Bursting Out (The Beast Became Human)/Get It Now (2006) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_733443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bursting Out (03:28)
+02. MP (Metal Priests) (02:44)
+03. Startide Rising (03:54)
+04. Pyromania (03:11)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 01:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B836091124919A5A70D5C7FC51ACDD68D519A3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399474   (733442) от 31.07.2020
+
+TurboCollage 7 v7.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте великолепные коллажи изображений на вашем Mac. Настройте коллаж с рельефным центром картины, организуйте фотографии в регулярной сетке или создайте случайную картину. Свяжите приятные воспоминания вместе в великолепные мозаики изображений. Благодаря интуитивно понятному интерфейсу, TurboCollage дает вам полный контроль над вашим дизайном коллажа. TurboCollage (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.05.2020Разработчик: Gaurav AgarwalПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A70EE4AA62245BCDD50561EE9E9B3756AC94911
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399531   (733441) от 31.07.2020
+
+Формула 1. Сезон 2020. Этап 4. Гран-при Великобритании. Свободная практика 2 (31.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Великобритании. Свободная практика 2
+Арена: Автодром Сильверстоун (Сильверстоун, Великобритания)
+31 июля 2020 года, пятница. 17:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:39:00
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399556   (733440) от 31.07.2020
+
+Sadistik - Delirium (2020) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_733440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultra (2:32)
+02. The Plague (3:50)
+03. Hell Is Where the Heart Is (2:05)
+04. Pet Sematary (2:46)(   Читать дальше...   )Производство: Clockwork Grey MusicЖанр: Hip-HopПродолжительность: 00:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75173E5C0EA004E57A6A5AC6F0CC655790FB934
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399466   (733439) от 31.07.2020
+
+VA - A State Of Trance Top 20 July (Selected by Armin Van Buuren) - (Extended Versions) (2020) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_733439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & AVIRA feat. Be No Rain - Hollow (Extended Mix)
+02. Ferry Corsten & Ciaran McAuley - Mo Chara (Extended Mix)
+03. ARTY & NK - Who Am I (Original Mix)
+04. Elysian - Beyond The Comfort Zone (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E799349A3B3AF7888000542F71075C981AEC449
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399389   (733438) от 31.07.2020
+
+VA - A Decade of Chill Out Vocal Trance (2010 - 2020) [MP3|320 Kbps] <Trance, Organic House, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_733438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raz Nitzan & Moya Brennan - Find The Sun (Original Mix) 05:35
+02. Aurosonic & Kate Louise Smith & Denis Karpinskiy - They Wait For Us (Chill Out 06:12
+03. Tenishia & Ana Criado - Ever True (Chill Out Mix) 04:47
+04. Robert Nickson & Re Locate & Neev Kennedy - Not Made To Break (Chill Out Mix) 04:46(   Читать дальше...   )Жанр: Trance, Organic House, DowntempoПродолжительность: 02:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D983465F3AB5238F6893F619929A71A0F60C257
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399395   (733437) от 31.07.2020
+
+Grids for Instagram 6.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_733437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grids переносит лучшее из Instagram на ваш Mac.
+Grids for Instagram - простая и удобная программа имеющая чистый не отвлекающий пользовательский интерфейс на Русском языке, позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом между ними легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2020Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5487B786465B70F2EC75173F5180B314EFA37AB1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399392   (733436) от 31.07.2020
+
+Карл Ясперс | Духовная ситуация времени [Книга 2] (2008) [MP3]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_733436.jpg" />
+</div>
+
+
+###  Подробнее
+
+"СМЫСЛ И НАЗНАЧЕНИЕ ИСТОРИИ" ("Vom Ursprung und Ziel der Geschichte", 1949) - произведение Ясперса. Ясперс выдвигает концепцию всемирно-исторического процесса, ориентированную на обнаружение его единства. Данное единство трактуется не как результат саморазвертывания некоей тотальности по жесткой схеме, но как общий итог смысловых проблем человека. (   Читать дальше...   )Жанр: Философия, ИсторияПродолжительность: 08:08:30
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

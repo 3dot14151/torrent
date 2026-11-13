@@ -1,0 +1,722 @@
+###  Публикация: 1299595   (241512) от 15.04.2022
+
+Rainbow - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starstruck
+02. Catch The Rainbow
+03. L.A. Connection
+04. Fool For The Night(   Читать дальше...   )Жанр: RockПродолжительность: 03:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B159DD7718B0B0F5767837FD8606C9B40D16BDF9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569893   (241511) от 14.08.2022
+
+Безвыходная ситуация / No Way Out (2022) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пара, живущая в Лос-Анджелесе, настолько вовлечена в свои страстные отношения, наполненные риском и наркотиками, что они не замечают, в какой ситуации оказываются.Производство: США / Unified Pictures, ArtemisЖанр: Боевик, триллер, криминалРежиссер: Ази РахманАктеры: Майя Митчелл, Эшли Николь Уильямс, Гай Бернет, Кейтлин Пиппи, Ронни Джин Блевинс, Люк Брэндон Филд, Джои Бикиччи, Энди Коэн, Одри Нил, Marta PozzanПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:26:47Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446723C2033D036D3CCD0836A12B98CDAA47A2DE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378274   (241510) от 25.04.2020
+
+Harry Allen - Blue Bossa (2013) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Nice [4:36]
+02. A Felicidade [5:03]
+03. Begin the Beguine [4:40]
+04. No More Blues (Chega de Saudade) [5:42](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2874BAA87F3B87FD96627FF8B91D87A7B8E486
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625683   (241509) от 11.04.2023
+
+VA - Rock 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paramore - This Is Why  [03:28]
+02. All Time Low - Sleepwalking  [03:07]
+03. Red Hot Chili Peppers - Eddie  [05:42]
+04. Slipknot - The Dying Song (Time to Sing)  [03:24](   Читать дальше...   )Жанр: RockПродолжительность: 02:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F459D98AABA468969E27D9BABF15A46505B3CCE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114629   (241508) от 15.03.2017
+
+VA - Cafe Tropicana Vol.2 (30 Well Selected Lounge Tracks) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_241508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito - Shirabyoshi Love  4:22
+02.  Climatic - Everything  5:19
+03.  Alex Naevecke - Summerlove  4:11
+04.  Newton - Just One Touch  4:55(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9B0477D21C46DD977B91156CDACD379A09E57E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378373   (241507) от 25.04.2020
+
+Детская литература | Литературно-критический и библиографический ежемесячник [9 журналов] (1969) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал критики детской литературы. Журнал "Детская литература" рассчитан на писателей, научных работников по детской книге, педагогов, библиотекарей, студентов, пионер- вожатых. В библиотеке будут представлены выпуски 1936 - 2004 годов.Жанр: Образование, обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A240A5F681D952E5A2C6A7EBE808C85FE1AF0F8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625830   (241506) от 11.04.2023
+
+Photo Supreme 2023.1.1.4860 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051F2F18971639355569B5264ED00F29BF75A1E3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466108   (241505) от 14.08.2022
+
+Верьте мне, люди (1964) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241505.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам романа Юрия Германа "Один год".
+1956 год. По нелепому стечению обстоятельств Алексей Лапин совершает побег из лагеря за месяц до своего освобождения. Случайность спасает героя от розыска. Приехав в Ленинград, Алексей влюбляется в дочь рабочего, у которого снимает комнату, — и решает начать честную жизнь.Производство: СССР / Киностудия им. М.ГорькогоЖанр: Драма, экранизацияРежиссер: Владимир Беренштейн, Илья Гурин, Леонид ЛуковАктеры: Кирилл Лавров, Владимир Самойлов, Ирина Бунина, Станислав Чекан, Всеволод Кузнецов, Сергей Плотников, Валентина Беляева, Евгений Евстигнеев, Николай Парфенов, Иван РыжовСубтитры: ОтсутствуютПродолжительность: 01:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B200B8DC5DB7C6617B7172D4041AC02DF987E3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546835   (241504) от 25.04.2022
+
+InstaGrid 3.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241504.jpg" />
+</div>
+
+
+###  Подробнее
+
+InstantGrid - это быстрый и мощный инструмент для редактирования изображений для социальных сетей, позволяющий исправлять и добавлять эффекты к изображениям всего в несколько касаний.Тип издания: macOS SoftwareРелиз состоялся: 17.04.2022Разработчик: © 2021 Thomas CoomerПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFD7DDD2809B1D7408DB5A1B3BEE0884CFE8216
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624345   (241503) от 09.04.2023
+
+VA - The Best 50 of Romantic Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+02. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (7:52)
+03. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight II. Allegretto (2:30)
+04. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight III. Presto (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64CC2A4988139527B824224F330CE525CCE28405
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618086   (241502) от 12.03.2023
+
+Suicide Silence - Remember... You Must Die (2023) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Remember... (00:00:51)
+02 - You Must Die (00:02:42)
+03 - Capable of Violence (N.F.W.) (00:03:44)
+04 - Fucked for Life (00:03:53)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080444218A41A532864E8DB02E85D80A92DD0F70
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342708   (241501) от 15.04.2022
+
+Обитаемый остров: Схватка (2009) BDRip [H.265/1080p] [10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241501.jpg" />
+</div>
+
+
+###  Подробнее
+
+2157 год.Человечество создает космическую группу, названную ГСП — группой свободного поиска.Теперь любой землянин, получив космический корабль и зарегистрировав свой маршрут, волен отправиться к звездам.Так и поступает Максим Каммерер, не подозревая, что ему предстоит потерпеть крушение на далекой планете, попасть в плен и оказаться один на один с чужим враждебным (   Читать дальше...   )Производство: Россия / Арт Пикчерс Студия, Нон-стоп Продакшн, Канал СТСЖанр: Фантастика, боевик, экранизацияРежиссер: Фёдор БондарчукАктеры: Василий Степанов, Юлия Снигирь, Алексей Серебряков, Пётр Фёдоров мл., Гоша Куценко, Сергей Гармаш, Михаил Евланов, Андрей Мерзликин, Максим Суханов, Фёдор БондарчукПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA5A8C2B54D9E78100EFBE094332C5912614FE9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114617   (241500) от 15.03.2017
+
+VA - Makes Sense To Me Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  JB 59 - Postcard From Melecon  4:49
+02.  Thomas Lemmer - Peaceful  5:17
+03.  Marcus Koch - Whispering Birds  4:50
+04.  B.W.L. - Lullaby  5:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C894CF809B73B0CCE41597A2454A2CB2BD5F58
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378483   (241499) от 25.04.2020
+
+VA - Best Of Disco Balls Records 2019, Pt. 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St Jude - Nieghbourhood (6:04)
+02. Dan Aslow - Time To Rise (Discoslap Remix) (5:29)
+03. Chenandoah - Give Up On Love (Chujo's Afro Mix) (8:04)
+04. Dan Aslow - Time To Rise (Adam Sommer Discofeel Remix) (6:00)(   Читать дальше...   )Жанр: Electro, Techno, HouseПродолжительность: 02:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA5EB574BA3FD5E59CCE24BC0F6D1EDE15C7A81
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 83342   (241498) от 14.08.2022
+
+Пес из Лас-Вегаса / Rover Dangerfield (1991) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ровер - пушистый, упитанный пес, привык к роскошной жизни в блестящем Лас-Вегасе. Огни большого города, ласковая хозяйка-танцовщица, косточки из лучших ресторанов... Но превратности судьбы забрасывают Ровера на самую обыкновенную ферму! Здесь он узнает о жизни много нового: чтобы тебя кормили - нужно работать, а пасти овец он не умеет.
+
+Здесь не видели блестящих (   Читать дальше...   )Производство: США, Walt Disney PicturesЖанр: Детский, КомедияРежиссер: Джим Джордж, Боб СилиАктеры: Родни Дейнджерфилд, Сьюзэн Бойд, Ронни Шелл, Нед Льюк и др.Перевод: Одноголосый профессиональный (Юрий Живов)Субтитры: ОтсутствуютПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39C67F4351E7FEF47509C982DF4DE1B8EA69948
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629739   (241497) от 28.04.2023
+
+VA - Uplifting Only Top 15: April 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SounEmot - Nuestra Promesa De Amor (Intro Mix) [9:04]
+02. Alternate High & Lyd14 - You're A Star (Extended Mix) [6:57]
+03. Dmitriy Kuznetsov & Johannes Fischer - Watching The Waves (Extended Mix) [6:31]
+04. Sandro Mireno & Ria Joyse - Winter In Your Heart (Extended Dub) [6:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1FF54E0C4BB355C6327A678ABE959EC3BF7506
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544448   (241496) от 15.04.2022
+
+Игры агентов / Агентская игра / Игра в агента / Agent Game (2022) WEBRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офицер ЦРУ Харрис участвует в миссиях по захвату иностранных граждан и доставке их в секретное место для допроса. Харриса обвиняют в убийстве шефа и задержанного во время допроса и он вынужден бежать от группы оперативников, посланных за ним во главе с безжалостным двойным агентом Олсеном и его подручным Виссером.Производство: США / Taylor & Dodge, Project InfinityЖанр: Триллер, боевикРежиссер: Grant S. JohnsonАктеры: Мэл Гибсон, Джейсон Айзекс, Дермот Малруни, Адан Канто, Кэти Кэссиди, Баркхад Абди, Риз Койро, Энни Илонзе, Мэтт Риди, Блу КимблПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84459764EA5DBE06008CC3FFF599CE5696478338
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625703   (241495) от 11.04.2023
+
+Guru Guru - The Three Faces Of Guru Guru 1970-2021 (2023) 3CD [MP3|320 Kbps] <Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DISC 1:
+DISC 2:
+DISC 3:Жанр: KrautrockПродолжительность: 3 CD, 03:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B700738AFEAE0A0D81E3440A579441F3D74BF76
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625247   (241494) от 09.04.2023
+
+Rename Expert 5.29.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rename Expert - программа предназначена для быстрого и легкого переименования файлов и папок. Предлагается множество инновационных функций для создания последовательных и, прежде всего, понятных имен. Буквально в несколько щелчков мыши можно нумеровать файлы и папки, сокращать длинные имена файлов, переименовывать расширения и многое другое. Rename Expert поддерживает (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E389DE1450261B478641BC8593A824CA785DBB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114445   (241493) от 15.03.2017
+
+VA - WMC Miami 2017: Deep & Chill Beats (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Performative Mode - Pixelated  6:46
+02.  Chillelektro - Pag  5:54
+03.  Sixteenth Pulse - Crossing Thoughts  6:43
+04.  Unexpected Marvel - Plug And Play  6:36(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 02:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13ECC772EE9E53C8F409C2DDF9B305B83DAF1496
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378463   (241492) от 25.04.2020
+
+Paloma Faith ‎ - Do You Want the Truth or Something Beautiful? (2009) [FLAC|Lossless|tracks + .cue] <Indie Rock, Blues, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Cold Sober [02:54]
+02. Smoke & Mirrors [03:06]
+03. Broken Doll [04:08]
+04. Do You Want The Truth Or Something Beautiful? [04:36](   Читать дальше...   )Жанр: Indie Rock, Blues, AcousticПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1114BF7B69BAD76A7E271F59787825512483E599
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569419   (241491) от 14.08.2022
+
+«Сколково» и «Ростех» предложили собирать медицинскую информацию через носимые гаджеты
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241491.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России может заработать экспериментальный правовой режим, в рамках которого фитнес-трекеры, браслеты и умные часы будут собирать информацию о здоровье своих владельцев и передавать сведения в специальную информационную систему для профилактики заболеваний. ЭПР может вступить в силу до конца 2022 г. Одна из целей его реализации – развитие российской телемедицины.В (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618190   (241490) от 12.03.2023
+
+VA - Black Hole House Music 03-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BT - Kintsugi (Siskin Extended Remix) (07:21)
+02. HALIENE - Reach Across the Sky (Crystal Skies Remix) (04:03)
+03. Britt Lari & partywithray - The Controller (Club Mix) (03:26)
+04. Paul Sawyer - Eutocius (Wally Lopez Extended Remix) (06:28)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1471790A7E0F7BC757F311B258AEC7A5F9ED351C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546723   (241489) от 25.04.2022
+
+Nevercenter CameraBag Photo 2022.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241489.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
+Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2021 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7662197EB3EF80203D7819376E0AA6D099A60A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625108   (241488) от 09.04.2023
+
+Федор Достоевский | Братья Карамазовы (2023) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитое произведение русского классика, входящее в «великое пятикнижие Достоевского» и в «золотой фонд» мировой литературы. Внешне развиваясь по законам детектива, роман с первых строк вышагивает из заданных жанровых рамок. И пока мы бродим по провинциальному городку Скотопригоньевску и ждем ответа на классическое «Кто убийца?», автор мастерски обнажает метафизику (   Читать дальше...   )Жанр: классическая проза, литература 19 века, русская классикаПродолжительность: 35:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1886FEB522916441883402CC51C0C0411FD41B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625757   (241487) от 11.04.2023
+
+VA - Miami Downtempo Hits 2023 [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_241487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elysir - Never Gonna Give You Up (3:36)
+02. Selma Hernandes - Prá Nunca Mais (4:00)
+03. Mantra - Saint Thomas Experience (4:07)
+04. Bamboo - Rhythm Of Life (6:24)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341B4A61ACA8D58F601C0EA84B2C4343FABBE1AD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

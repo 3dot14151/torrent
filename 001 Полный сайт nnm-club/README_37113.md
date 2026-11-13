@@ -1,0 +1,731 @@
+###  Публикация: 1694861   (120633) от 27.01.2024
+
+Dymytry - Five Angry Men (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enemy List [00:04:40]
+02. Everything Is Black [00:03:39]
+03. Wake Me Up (Before We Die) [00:03:18]
+04. Legends Never Die [00:03:55](   Читать дальше...   )Жанр: Modern Heavy MetalПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F71D5D85B9FEC69164B7970565C6C3D7E2A3B65
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694913   (120632) от 27.01.2024
+
+Danielle Nicole - The Love You Bleed (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love On My Brain (4:33)
+02. Make Love (3:48)
+03. Right By Your Side (4:20)
+04. How Did We Get To Goodbye (4:39)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8442648FF846146649095589CB3654E119AC566D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694887   (120631) от 27.01.2024
+
+Mel Torme - An Evening With Mel Torme: Live from The Disney Institute (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One of Those Things/On Green Dolphin Street [4:59]
+02. You Make Me Feel So Young [4:23]
+03. A Nightingale Sang in Berkeley Square [4:31]
+04. Pick Yourself Up [4:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78EA06CD6267FF9E75CCD19753CB7FF6CBEE87F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694922   (120630) от 27.01.2024
+
+Лётная школа - Цели и средства (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. (не)вместе
+2. Бывает тепло
+3. Ты
+4. Про секс(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747A4A67F1BC4244C9FEC0C307F0D5F8DBA29AC9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695009   (120629) от 27.01.2024
+
+Живая еда с Сергеем Малозёмовым (27.01.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулебяки, расстегаи и курники: чем хороши традиционные русские пироги и почему многие из них незаслуженно забыты? Какие рецепты больше всего поражают иностранцев и как превратить производство русских пирогов в прибыльный бизнес?
+ Тайны главной кофейной профессии и секреты вкусного кофе с идеальной молочной пенкой.
+ Будет ли польза во фруктах, выращенных в квартире, (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45A600D5436147E2E9ED95C070432B7C4D11508
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695057   (120628) от 27.01.2024
+
+Мятеж в Гурии / Джанки (1928) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гурия один из регионов Грузии. В 1841 году часть местного дворянства решает присоединиться к восстанию, поднятому крестьянами Гурии. Основное их требование - сменить правительство, ограничившее привилегии родовой знати. Хасан-бек, глава дворянского сообщества, поддерживает требования крестьян, но он оказывается перед трудным выбором: принять условия правительства (   Читать дальше...   )Производство: СССР, Госкинпром ГрузииЖанр: драма, военный, история, немое киноРежиссер: Александр ЦуцунаваАктеры: А. Меняев, К. Эристави, И. Корсунская, Т. Гуриели, Тамара Болквадзе, Елизавета Черкезишвили, Дж. Мелиава, Т. Трапаидзе, Александре Цитлидзе, Сандро КанделакиПеревод: немой с интертитрами (Katrina TV)Субтитры: грузинские, английские (интертитры), русскиеПродолжительность: 02:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F54F02E6ECAF4C2F13C44C442A59C0010F3BBA3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694950   (120627) от 27.01.2024
+
+VA - Uplifting Only Top 15: January 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iberian - Preludio (George Crossfield Intro Remix) [6:53]
+02. Sandro Mireno & Jan Miller - Here Comes The Rain (Extended Mix) [6:07]
+03. Maratone & Lasse Macbeth with Emilya Buchan - Stronger (Extended Mix) [6:18]
+04. x-airlan & The Wavers - Re_Alive (Original Mix) [8:36](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FA3019E1FD1E8A24919D8B52007197073BCB42
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694897   (120626) от 27.01.2024
+
+PowerDirector – Video Editor v13.1.2 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25.01.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98FF2B8A682A085653D66C6BA76EF7D95D8BA207
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694868   (120625) от 27.01.2024
+
+4K Video Downloader + 1.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D496D2CE1215DB608E5FBFE133F5D19C5CB6C0B2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694947   (120624) от 27.01.2024
+
+Etta James - Late Night Etta James (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That’s The Chance You Take
+02. Welcome To The Jungle
+03. Too Tired
+04. I Just Wanna Make Love To You(Jimmy Smith Feat. Dr. John & Etta James)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B58A856A7C23B0801AF3A7646C97122348F8508
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694695   (120623) от 27.01.2024
+
+Erasure - The Neon (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synth-pop, Dance-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Joe 90) (Live) [00:00:52]
+02. Chorus (Live) [00:04:43]
+03. Hey Now (Think I Got A Feeling) (Live) [00:03:50]
+04. Fill Us With Fire (Live) [00:03:14](   Читать дальше...   )Жанр: Synth-pop, Dance-popПродолжительность: 01:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E0E85B9CF5CAE509200897551A1B87895E4885
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694881   (120622) от 27.01.2024
+
+Олеся Галькевич | Люби себя как котика (2024) [MP3, Мила Манышева]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько книг о любви к себе вы прочитали? Пять? Десять? И как, сработало? Стали добрее относиться к себе, или все благие начинания разбивались о внутреннего критика, который кричит «не заслужила!», «не твой уровень!»?
+То ли дело – любить котиков.Ведь они такие милые, и им можно все простить, услышав их мурчание. А что, если мы будем относиться к себе так, как к своим (   Читать дальше...   )Жанр: ПсихологияИздательство: ЛитРес: чтецПродолжительность: 04:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39E2AC67BFE81B553C7920B26C83F29A3BB6DFF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695079   (120621) от 27.01.2024
+
+Тед Рейнольдс | Проба (2024) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_120621.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Многие миллионы лет существует галактическое содружество. У землян было одно условие для вступления - отношения с каждым новым миром налаживаются с помощью "лотереи". Случайный выбор падает на двух представителей разных миров, которым предстоит на один год поменяться местами. Если честь родной планеты не будет посрамлена, выгодные отношения будут (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA83138959C8ACF9C279E160BDE080D599E0BD2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694924   (120620) от 27.01.2024
+
+Skrizhali - Дети огня (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_120620.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Гори
+2. Так говорила тишина
+3. Бегущие в огне
+4. Не спеши(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A2FB187AA26675A6344FC326FC9A984E3FA6E9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694863   (120619) от 27.01.2024
+
+Feline Melinda - Seven (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Welcome to the Show (03:46)
+02 - Blinded by the Beauty (03:33)
+03 - In the Shadow of the Moon (04:30)
+04 - Can You Feel My Eyes on You (03:37)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D628E766A5C842B1808A4089D59865BED11411
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694832   (120618) от 27.01.2024
+
+Bogobes - Катабасис (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened death metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Катабасис [00:02:25]
+02. Оставь надежду,всяк сюда входящий [00:04:38]
+03. Мрак столетий [00:04:07]
+04. Озеро Коцит [00:03:17](   Читать дальше...   )Жанр: Blackened death metalПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98818FE63537EDE3B87C87F85496713E6AF24D2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694918   (120617) от 27.01.2024
+
+Louis Mezzasoma - Good or bad time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funny boy (2:13)
+02. That rage inside (2:26)
+03. They're sick (4:02)
+04. Decent man (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495CE40EC59501E29D44946D850A7B4F8D03D883
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694866   (120616) от 27.01.2024
+
+4K YouTube to MP3 Pro for Mac 5.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120616.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2023 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C23B12C57E6E8AF4624D03EEB20C0A2EDC37CFB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695011   (120615) от 27.01.2024
+
+Oblivion - Called To Rise (2013) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_120615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblivion Part 1: The Chant Of Tyrants
+02. Black Veils Of Justice
+03. Between Suns Of Light
+04. Binary Souls(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2033DD58E7B294FF520BC71475C442A09474DA50
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694916   (120614) от 27.01.2024
+
+Dust & Bones - Mission Back to the Forbidden Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mission Start (0:32)
+02. UR R´N`R (2:56)
+03. Move (3:54)
+04. Remedy (2:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C728E7B62E8515B88780D47D9ACC121F957832E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694741   (120613) от 27.01.2024
+
+Charles Mingus - Four Classic Albums Plus (1954 - 1959) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nostalgia in Times Square [12:19]
+02. I Can't Get  Started [10:12]
+03. No Private Income Blues [12:51]
+04. Alice's Wonderland [8:58](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C278CBE8E0C9BB02FA1D4281C3811E0BD9A883F0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694904   (120612) от 27.01.2024
+
+Пятеро на одного (27.01.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731341B670216ABB6E2755C9DE10A816353CE5C4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694713   (120611) от 27.01.2024
+
+Sleater-Kinney - Little Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell [00:03:14]
+02. Needlessly Wild [00:02:51]
+03. Say It Like You Mean It [00:03:44]
+04. Hunt You Down [00:03:32](   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76E7DFFA9DF28707E84DDCE6AA0E3B67A6D899B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694716   (120610) от 27.01.2024
+
+Emerald Table - Book of illusion's fragments (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic, Doom, Alternative-Metal, Male-Female-Vocals>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The table [00:02:07]
+02 - Elements [00:02:20]
+03 - Blackwood [00:04:18]
+04 - Lost memories of life [00:04:52](   Читать дальше...   )Жанр: Gothic, Doom, Alternative-Metal, Male-Female-VocalsПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7F55300749D043FCE75F921D03F19A43AD0633
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695055   (120609) от 27.01.2024
+
+Самая маленькая из звезд / The Tiniest of Stars (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сентиментальная, душещипательная история о том как судьба разлучила музыканта со своей семьей. И семья, малолетние дети, без папы были на пороге нищеты. Но не беспокойтесь, все будет хорошо - та же судьба совсем неожиданно воссоединит семью.
+Две копии - черно-белая и колор.Производство: США, Thanhouser Film CorporationЖанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: Маргарит Сноу, Джеймс Круз, Мари Элайн, Хелен БэджлиПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709FF28E263651DB917895DC476BC5FE19959B6E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694690   (120608) от 27.01.2024
+
+Thunder - Live at Islington Academy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_120608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Loser (00:07:32)
+02 - River of Pain (00:03:53)
+03 - The Devil Made Me Do It (00:05:21)
+04 - Low Life in High Places (00:05:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043EFE4F8560474257AB0ECEB78397C5A56A5AC5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

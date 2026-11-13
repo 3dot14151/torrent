@@ -1,0 +1,725 @@
+###  Публикация: 1243479   (490231) от 28.08.2018
+
+MarsEdit 4.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 25.08.2018Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D548446F0C24175F67174AADB22922376DDA150C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243658   (490230) от 28.08.2018
+
+VA - Suanda Spring Vol.5 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Christina Novelli - Fireflies (Original Mix)
+02. Feel & Ruslan Radriges - Revival (Extended Mix)
+03. Mivase - Hypnotised (Extended Mix)
+04. Ahmed Helmy & Mhammed El Alami - Helena (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E7CAD4AA3A34A000858BF61EC6579D77328FCD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243577   (490229) от 28.08.2018
+
+Disincarnate - Dreams of the Carrion Kind (1993) [FLAC|Lossless|image + .cue] reissue 2006 <Death Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_490229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Profundus
+02. Stench Of Paradise Burning
+03. In Sufferance
+04. Beyond The Flesh(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243600   (490228) от 28.08.2018
+
+VA - RU.Electronic Two (2003) Lo Recordings [FLAC|Lossless|tracks+.cue] <Leftfield, IDM, Experimental, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonyx - Evening (04:06)
+ 02. Alexandroid - 000 BlueSky (05:45)
+ 03. SCSI-9 - Alectra (08:01)
+ 04. PCP - River (08:29)(   Читать дальше...   )Жанр: Leftfield, IDM, Experimental, AmbientПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A933DA34B9D9AEE8054BF4E716E575C29AD4EFC1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243643   (490227) от 28.08.2018
+
+VA - Big Room Sessions, Vol. 3 (2018) [MP3|320 Kbps] <Club, Funky, Progressive, Groove, Tribal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disfunktion - Wokkasaki (Rocking J Remix)
+02. Peter Brown, Ann Bailey - Let Me Go (Instrumental Mix)
+03. Reza, Nicole Tyler - Take Me Home (Original Mix)
+04. Jay Ronko, Josh Newson - Push (Original Mix)(   Читать дальше...   )Жанр: Club, Funky, Progressive, Groove, TribalПродолжительность: 05:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7702707C06532B91CCC4B7DE99835F8C8F864100
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243608   (490226) от 28.08.2018
+
+VA - Trance Revolution 8 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcania - This Means War (Radio Edit)
+02. Brent Rix - Hyper Drive (Radio Edit)
+03. Sven E - Horizons (Radio Edit)
+04. Skysound - Project X (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0657F88E77FE13FD30BED8412BEB00124DAA1A16
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243609   (490225) от 28.08.2018
+
+VA - Trance Anthems 7 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Delta - Back In My Life (DJ Osip Radio Edit)
+02. Brent Rix - Solar Flare (Radio Edit)
+03. Martin Soundriver & Skysound - Project X (Radio Edit)
+04. Arcania - This Means War (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D1073AB98FE2B513451F4F263B0B469AEAA640
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243450   (490224) от 28.08.2018
+
+VA - Dystopia: Minimal Techno Mix (2018) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490224.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dominik Schwarz - Destruction (Original Mix)
+002. Endymion & MYST - Waiting For Treason
+003. Christian Tibor - Klimaton
+004. Emanton - Sacred B (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7CA876E6B309358444756B101B905D879F9899
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243701   (490223) от 28.08.2018
+
+Deepest Blue - 7 Releases (2003-2008) [FLAC|Lossless|image + .cue] <House, Trance, Electro, Downtempo>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_490223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deepest Blue (Radio Edit) (3:28)
+02. Deepest Blue (Original) (7:35)
+03. Deepest Blue (E.Boutique Dub) (8:10)
+04. Deepest Blue (E.Boutique Vox) (8:41)(   Читать дальше...   )Жанр: House, Trance, Electro, DowntempoПродолжительность: 03:24:39
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243563   (490222) от 28.08.2018
+
+Contact Lost & Turrican - End Of Days / End Of Days (Synkro Remix) (2018) Eternia Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Techno>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_490222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of Days (06:07)
+02. End Of Days (Synkro Remix) (06:42)Жанр: Ambient, IDM, TechnoПродолжительность: 00:12:49
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243597   (490221) от 28.08.2018
+
+Eguana - A Decennary Of Eguana (2018) Plexus Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psybient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Sky (08:32)
+02. When We Have Met (05:00)
+03. Slides Of Recollections (03:14)
+04. The Elbowrooms of Cosmos (09:16)(   Читать дальше...   )Жанр: Ambient, Psybient, DowntempoПродолжительность: 01:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD8924BA90BAE56EB071F99AE99933F9E922102
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243567   (490220) от 28.08.2018
+
+Chad Elliott & The Redemptions - Rest Heavy (2018) [MP3|320 Kbps] <Blues>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_490220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rest Heavy (03:12)
+02. Shy of Shameless (05:23)
+03. Hills of Tennessee (03:29)
+04. Shining Stars (04:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243674   (490219) от 28.08.2018
+
+FileZilla 3.36.0 + Portable [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_490219.jpg" />
+</div>
+
+
+###  Подробнее
+
+FileZilla — это свободный многоязычный FTP-клиент с открытым исходным кодом для Microsoft Windows, Mac OS X и Linux. Он поддерживает FTP, SFTP, и FTPS (FTP через SSL/TLS) и имеет настраиваемый интерфейс с поддержкой смены тем оформления. Оснащен возможностью перетаскивания объектов, синхронизацией директории и поиском на удаленном сервере. Поддерживает многопоточную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243629   (490218) от 28.08.2018
+
+Jono - 4 Albums (2006-2017) [FLAC|Lossless|image + .cue] <Progressive Rock, Crossover Prog, Melodic Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_490218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа JONO состоит из пяти шведских музыкантов, живущих на острове Готланд. JONO фактически начал в качестве сольного проекта вокалиста Йохана Norrby (отсюда название JОNО - JОhan NОrrby). Запись была сделана и выпущена в 2006 году, с участием некоторых членов группы из настоящего состава. Все участники JONO с большим опытом работы в других знаменитых коллективах. (   Читать дальше...   )Список альбомов:
+2006 | JoNo
+2013 | Requiem
+2015 | Silence(   Читать дальше...   )Жанр: Progressive Rock, Crossover Prog, Melodic Rock |Продолжительность: 03:00:30 |
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243632   (490217) от 28.08.2018
+
+Trans Atlantic Crush - Remember | Sea of Dreams (2011, 2018) [MP3|320 Kbps] <Synth-pop>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_490217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember (4:15)
+02. Waiting On A Girl (4:23)
+03. Try (3:39)
+04. You Want A Friend (3:27)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:24:53
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243621   (490216) от 28.08.2018
+
+VA - Paradise Lounge V. 5 - 60 Fantastic Summer Tunes (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_490216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga, Nikolaj Grandjean - Carry You Home 4:44
+02. Gábor Deutsch, N'dea Davenport - Love With Desire 3:44
+03. Channel Two, Joy Jones - S'posed To Be (Deja-Move's Handsome Remix) 3:20
+04. Chris Le Blanc, Liz June - Enjoy Your Life 4:12(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:54:15
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243602   (490215) от 28.08.2018
+
+Святитель Симеон Солунский | Толкование на Символ веры (2017) [FB2, PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_490215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Символ веры всем нам хорошо знаком хотя бы потому, что мы постоянно слышим его пение в храме во время каждой литургии. Он нам привычен, и мы порой не задумываясь поём его вместе со всеми. Однако Символ веры — это прежде всего древний богословский текст, в котором содержатся все догматы и раскрывается сущность христианской веры и упования. Поэтому так важно понимать (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055029   (490214) от 21.09.2016
+
+СМЕТАНА band - В основном о женщинах (2016) [MP3|320 Kbps] <Comedy Rock, Alt. Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_490214.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Молодая мамочка
+2. Когда моя девушка курит
+3. Не бери трубку
+4. Клей и воровство(   Читать дальше...   )Жанр: Comedy Rock, Alt. RockПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054021   (490213) от 21.09.2016
+
+Р. Декарт | Правила для руководства ума (1936) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490213.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Правила для руководства ума» — одно из самых ранних произведений Декарта, в котором он дал первый очерк своей рационалистической теории познания. В особенности отчетливо Декарт развил в «Правилах» свое учение об интуиции, дедукции и индукции. «Правила» являются весьма важным материалом при изучении философии Декарта.Жанр: История, философия, науковедениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF0BDCACD697A5C65824089157A2D2A00CCCA26
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055049   (490212) от 21.09.2016
+
+Журнал | Автомир. Тест-драйв №20 (сентябрь 2016) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490212.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тест-Драйв» — это современный журнал большого формата, с новым взглядом на автомобильную тему. Главное преимущество издания — большое количество тестов, а также гаджеты, светская хроника, путешествия, интервью и многое другое.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1907EF92F33377E95FE6CCE9F7826E32BF806ED2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055026   (490211) от 21.09.2016
+
+Йорш - Держитесь (2016) [MP3|320 Kbps] <Punk Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка сильных
+02. Гражданин Мира
+03. Граффити
+04. Насилие(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD8A26D54CA53B602C8CB928E30A2C1E01D8944
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054968   (490210) от 21.09.2016
+
+Вениамин Колыхалов | Пурга (2016) [FB2]
+
+>>Художественная литература
+>>Историческая проза, Мифы и Легенды, Фольклор
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть на Оби небольшое сельцо под названием Нарым. Когда-то, в самом конце XVI века, Нарымский острог был одним из первых форпостов русских поселенцев в Сибири. Но быстро потерял свое значение и с XIX века стал местом политической ссылки. Урманы да болота окружают село. Трудна и сурова здесь жизнь. А уж в лихую годину, когда грянула Великая Отечественная война, стало (   Читать дальше...   )Жанр: Книги о войне, Великая Отечественная войнаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86CB04DFECE58A629DA579D87AE0B2981270790
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054710   (490209) от 21.09.2016
+
+Фанки - 3 альбома (2000-2005) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Только тебе
+02 - Игрушка
+03 - Птицы
+04 - Планета(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588DB0985CC6243093E553AFCCC4445E469DB690
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054948   (490208) от 21.09.2016
+
+Журнал | Дом №10 (октябрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Дом» - помощник для тех, кого интересуют практические вопросы, связанные со строительством, ремонтом и эксплуатацией индивидуального жилья – коттеджей, дачных и садовых домиков, а также надворных построек.Жанр: Архитектура, строительство, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBFA7F94165ADDD5C8AE6C7B9BB547CD08EE257F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055015   (490207) от 21.09.2016
+
+Ю.М. Казаринов (ред.) | Радиотехнические системы (2008) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_490207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены физические основы, теория и принципы построения радиолокационных радионавигационных систем, рассмотрены вопросы обнаружения и различения сигналов, оценки и фильтрации их неизвестных параметров, проанализированы методы местоопределения объектов на поверхности и в пространстве. Содержатся конкретные примеры построения и расчета радиолокационных и радионавигационных (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054994   (490206) от 21.09.2016
+
+GPU Caps Viewer 1.31.1.0 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_490206.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPU Caps Viewer - информационная утилита, позволяющая получить информацию о графической карте, провести несколько OpenGL и OpenCL тестов и вести мониторинг различных параметров GPU карт в реальном времени. Программа отображает OpenGL, OpenCL и CUDA информацию для всех графических карт имеющихся в системе, а также предлагает GPU мониторинг карт NVIDIA GeForce и AMD (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098FDD8901CD419F82F249E2CE36617AA44398EC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

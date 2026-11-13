@@ -1,0 +1,730 @@
+###  Публикация: 1253101   (387895) от 07.10.2018
+
+Лука Кайоли | Великое противостояние. Месси vs Роналду (2017) [FB2]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Им подражают миллионы. Лионель Месси и Криштиану Роналду — лучшие футболисты на планете. Каждый год они бьют свои же рекорды в погоне за титулом № 1.
+Это первая аналитическая биография, в которой подробно рассмотрены иконы футбола.Жанр: Биографии и мемуары; СпортФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCFB87D6796960E81E61FD14449A143EC3F039D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253066   (387894) от 07.10.2018
+
+Валерий Марченко | Афганский разлом. Истоки мирового терроризма (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор этой книги гвардии подполковник в отставке Валерий Григорьевич Марченко принимал участие в боевых действиях в Республике Афганистан, где командовал разведывательной группой 80-й отдельной разведывательной роты 103-й гвардейской воздушно-десантной дивизии, разведывательной ротой 350-го гвардейского парашютно-десантного полка (знаменитого «полтинника»), 3-м парашютно-десантным (   Читать дальше...   )Жанр: История; Политика; ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97DC1CABFDDE1318D42178A0C3B5C696D706F08
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414283   (387893) от 07.10.2020
+
+Obsidian Kingdom - MEAT MACHINE (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. THE EDGE [00:03:55]
+02. THE PUMP [00:04:24]
+03. MR PAN [00:05:38]
+04. NAKED POLITICS [00:04:05](   Читать дальше...   )Жанр: Post-MetalПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906E553F05B39CC30BED0190A4199D7C9CC88A4A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414288   (387892) от 07.10.2020
+
+Aisumasen - Tunguska (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge, doom, post metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Ray of Darkness [00:04:32]
+02. Auspice [00:06:50]
+03. The Diamond is There [00:09:43]
+04. Ocean Desert [00:08:25](   Читать дальше...   )Жанр: Sludge, doom, post metalПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17DA2B232E4488F8008C3AAF02B77D362941CC11
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414118   (387891) от 07.10.2020
+
+Kavee - Metempsychosis (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Psychedelic Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metempsychosis [00:07:52]
+02. The Loss of the Sun [00:06:26]
+03. Indian Summer [00:05:32]
+04. Like Morphine [00:03:53](   Читать дальше...   )Жанр: Doom Metal, Psychedelic FolkПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A92B6D6D68E95E2ED6EE76FE70ADE813AEBCD8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414210   (387890) от 07.10.2020
+
+Allen Farnham - Meets The RIAS Big Band (1996) 1998, Concord Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RIAS-ticity [7:25]
+02. Work Song, Part I [1:43]
+03. Work Song, Part II [6:55]
+04. Lost in Zurich (Verloren in Zurich) [7:57](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Big BandПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8EF9CD7CD4E5BEED224C99FFCA4FF50E57462F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414171   (387889) от 07.10.2020
+
+Louis Armstrong - Big Bands, Vol.2 (1931 - 1932) 1988, JSP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Again [3:13]
+02. Little Joe [3:12]
+03. I'll Be Glad When You're Dead, You Rascal You [3:12]
+04. Them There Eyes [3:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DF7FA6405EEA28D5F41FE03D8C788210A7A490
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414336   (387888) от 07.10.2020
+
+Ward XVI - The Art of Manipulation (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:02:01]
+02. Take My Hand [00:01:59]
+03. The Art of Manipulation [00:05:01]
+04. Interlude 1 [00:00:50](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B149D4BFD512DF0616AEF83A71F03775B057986
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414121   (387887) от 07.10.2020
+
+Dysylumn - Cosmogonie (2020) [MP3|320 Kbps] <Progressive Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:04:05]
+02. Apparition I [00:06:14]
+03. Apparition II [00:07:34]
+04. Apparition III [00:07:39](   Читать дальше...   )Жанр: Progressive Black Metal, Death MetalПродолжительность: 01:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7229B04E4AE265BC2C91098C3645DAD8120F56FB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414173   (387886) от 07.10.2020
+
+Ward XVI - Metamorphosis (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retrogression (feat. Chris Barton) [00:01:31]
+02. The Cradle Song (feat. Anabelle Iratni) [00:08:23]
+03. Mister Babadook [00:05:27]
+04. Daisy Chains [00:03:08](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CAA1478EACCAF0FDA447A1597FB0A7337A8231
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571888   (387885) от 07.11.2012
+
+Зал самоубийц/ Sala samobójców (2011) HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доминик — обыкновенный мальчишка. У него много знакомых, он дружит с самой красивой девочкой в школе, богатые родители, деньги на тряпки, гаджеты, развлечения, но однажды один поцелуй меняет всё. «Она» цепляет его в сети. Интригующая, опасная, хитрая. Вводит его в «Зал самоубийц», место, из которого невозможно убежать. Доминик, в ловушке собственных чувств, впутанный в смертельную интригу, потеряет то, что в жизни самое ценное…Жанр: Триллер, Драма, МелодрамаРежиссер: Ян КомасаАктеры: Якуб Гершал (Jakub Gierszal), Рома Гонщёровска (Roma Gasiorowska (в титрах: Roma Gasiorowska-Zurawska)), Агата Кулеша (Agata Kulesza), Кшиштоф Печиньский (Krzysztof Pieczynski), Bartosz Gelner, Данута Борсюк (Danuta Borsuk), Петр Новак (Piotr Nowak), Филип Бобек (Filip Bobek)Перевод: Любительский (одноголосый)Продолжительность: 01:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C539D9A768913E43CF0E1A5F3587642501F0C40B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414213   (387884) от 07.10.2020
+
+Peter Bernstein - Brain Dance (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brain Dance [7:41]
+02. Chant [6:41]
+03. Means and Ends [7:52]
+04. Dual Nature [7:09](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95023D8A1F2CED13CFC4798F176FD96F68CEBCB5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570337   (387883) от 07.11.2012
+
+VSO Media Player 1.0.1.427 + Portable by Noby.uCoz [Multi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+VSO Media Player — новая версия довольно симпатичного и простого в использовании медиаплеера.
+Основная его функция - это воспроизведение музыкальных и видео файлов основных популярных форматов (.avi, .divx, .mpg, .mkv, .wmv, .xvid, .m2ts, .mts, .ISO (DVD + AVCHD), .rm, .rmvb (Real video),.ac3, .dts, .mp3, .wav, .wma, .flac).
+VSO Media player работает сам по себе, нет необходимости устанавливать дополнительное программное обеспечение или кодеки.
+Этот бесплатный видео-проигрыватель имеет специальную поддержку чтения DVD и Blu-ray структуры.
+Интерфейс плеера простой, ничего лишнего, имеется только минимальное количество настроек.
+Есть главное окно, в котором Вы можете загружать список файлов для проигрывания, есть возможность изменить громкость и возможность изменить скин плеера.Название программы: VSO Media Player + PortableЯзык интерфейса: Multi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414136   (387882) от 07.10.2020
+
+Girls In Synthesis - Now Here's An Echo From Your Future (2020) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Post-Punk, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arterial Movements [00:03:31]
+02. Pressure [00:01:54]
+03. The Images Agree [00:02:44]
+04. Scrapped [00:02:35](   Читать дальше...   )Жанр: Noise Rock, Post-Punk, Post-HardcoreПродолжительность: 00:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077076646BA9A3E73D897D6C41BB036C93B2613D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571687   (387881) от 07.11.2012
+
+З. Василенко (ред.) | Белорусская кухня [1993] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается об истории белорусской кухни, традициях застолья, особенностях приготовления старинных национальных блюд. В широком ассортименте представлена современная кухня, даны советы по приготовлению различных блюд в домашних условиях. Описаны способы заготовки продуктов впрок.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414115   (387880) от 07.10.2020
+
+OHM RUNE - Gargantua (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temple [00:04:55]
+02. Adrift [00:04:10]
+03. The Great Dark [00:04:31]
+04. Event Horizon [00:03:53](   Читать дальше...   )Жанр: Doom Metal, Stoner MetalПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F49DC178B5A6BAFF1F547C2C623E3B5C6ACC13
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571562   (387879) от 07.11.2012
+
+Журнал | Нахлыст №3 [осень 2012] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387879.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Нахлыст" - ежеквартальный специализированный журнал для любителей ловли рыбы на искусственную мушку.
+Журнал "Нахлыст" посвящен всем аспектам нахлыста и направлениям его развития - вязанию мушек, технике забросов, тактике ловли рыбы, обзору снаряжения и аммуниции, новостям.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD04B6523D20484CBD6A0AB4A9B8CEA558A2731
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414216   (387878) от 07.10.2020
+
+Ian Hawgood - Peace Fragments (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387878.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fragment I 18:12
+2. Fragment II 40:06
+3. Fragment III 05:38Жанр: Ambient, Drone, MinimalПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7316D946771F1693DF40AA554F3125B3D049E65
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571786   (387877) от 07.11.2012
+
+Виктория Брежнева | Кремлевская диета [2006] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кремлёвская диета помогла избавиться от лишнего веса многим известным людям - политикам, звёздам кино и шоу-бизнеса. Сегодня этой замечательной диетой может воспользоваться каждый, кто хочет обрести стройную фигуру в кратчайшие сроки!Жанр: Диета, кулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D61B4EA379F7D3AA559B5DA53F76671CE3274F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414241   (387876) от 07.10.2020
+
+Mathieu Karsenti - Downstream Blue (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electrocoustic, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387876.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pales 06:24
+2. Loosen 05:36
+3. Further 05:12
+4. Only Light 04:42Жанр: Ambient, Electrocoustic, MinimalПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35879B58D8CAD3CAF473C2D8D20EEB5C59F7AA2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571693   (387875) от 07.11.2012
+
+В.В. Петроченко и др. | Рецепты французской кухни [1968] [RTF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая домашним хозяйкам книга содержит рецепты специфических французских блюд, приготовление которых в домашних условиях по кулинарным операциям не представляет трудностей. Многим домашним хозяйкам этот сборник поможет значительно разнообразить свой стол вкусными блюдами.Формат: RTF
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569195   (387874) от 07.11.2012
+
+Анна Старобинец | Живущий [2011] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387874.jpg" />
+</div>
+
+
+###  Подробнее
+
+После Великого Сокращения настала новая эра. Родился Живущий: человечество превратилось в единый, постоянно воспроизводящий себя организм. "Число Живущего неизменно", - так сказано в Книге Жизни.
+Живущий равен трем миллиардам - ни больше, ни меньше. Живущий счастлив. Живущий всеблаг. Живущий бессмертен... Ты тоже бессмертен. Живущий создал для тебя новый мир. В этом мире не важно, кто твой биологический предок - важно, кем ты был в прошлой жизни, до Паузы. В этом мире нет стран, городов и границ, религий и наций, войн и террора. Это дивный, стабильный мир, в котором у тебя всегда есть подключение к Социо.
+Глобальная сеть у тебя в мозгу - она делает тебя частью целого...
+Но вот однажды в этом мире появляется лишний. Младенец без прошлого, увеличивший численность на единицу. Кто он такой? Твой новый друг в Социо - или враг, который уничтожит Живущего?Жанр: Фантастика, фентезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7379B8F9498294A09C79F991CC04A2C94D33CBF3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571422   (387873) от 07.11.2012
+
+Заговор послов (1965) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387873.jpg" />
+</div>
+
+
+###  Подробнее
+
+О раскрытии чекистами под руководством Феликса Дзержинского и Якова Петерса заговора, который в 1918 году организовали послы нескольких стран во главе с англичанином Локкартом.Жанр: Детектив, ВоенныйРежиссер: Николай РозанцевАктеры: Улдис Думпис, Вадим Медведев, Игорь Класс, Маргарита (Рита) Гладунко, Олег Басилашвили, Лариса Данилина, Эдуард Павулс, Владимир Сошальский, Александр Кутепов, Валдемар Зандберг, Петр Савин, Юрий Дедович, Станислав Михин, Имантс Кренберг, Арнис Лицитис, Волдемарс ЗенбергсПродолжительность: 01:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A13390BD3F0E8DD4A474B15ADAB6EDC70681CD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414138   (387872) от 07.10.2020
+
+Molly Hatchet - Battleground (2019) 2xCD Live [MP3|320 Kbps] <Hard Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387872.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Bounty Hunter (Live) (03:11)
+ 02. Whiskey Man (Live) (03:46)
+ 03. Why Woun't You Take Me Home (Live) (03:20)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 01:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC17A6EF1E99F41965DC34E3595D74A8E0EFEB6F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571219   (387871) от 07.11.2012
+
+[Фотография] Фотостудия Iberian Black Arts
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6200E7CFD95B91B47C20E19EBF4C91B3BD5862C0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414145   (387870) от 07.10.2020
+
+William Shatner - The Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, AOTY>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_387870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Home Chicago [00:02:54]
+02. I Can't Quit You Baby (feat. Kirk Fletcher) [00:04:38]
+03. Sunshine of Your Love (feat. Sonny Landreth) [00:04:21]
+04. The Thrill Is Gone (feat. Ritchie Blackmore & Candice Night) [00:04:53](   Читать дальше...   )Жанр: Blues Rock, AOTYПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F641C4A400502E5635C1F90F3525E338ABEC21D3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

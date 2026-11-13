@@ -1,0 +1,729 @@
+###  Публикация: 1688119   (125313) от 28.12.2023
+
+Приключения волшебного глобуса, или Проделки ведьмы (1991) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125313.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Неаполе живёт маленький синьор - он дружит с феями, но об этом знают только дети. Голубая фея присылает ему удивительный подарок - волшебный глобус. С помощью глобуса человечек помогает бедным и добрым детям, однако злая ведьма разбивает глобус, и сразу у всех детей начинаются неприятности.
+Волшебный человечек просит бедного Мальчика из Неаполя Чиччо помочь ему (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: мультфильм, семейный, детскийРежиссер: Иван АксенчукАктеры: Маргарита Корабельникова, Александра Бабаева, Георгий Вицин, Евгений Весник, Юлия Юльская, Юлия Феоктистова, Александр Ханов, Ефим Кациров, Всеволод Ларионов, Алексей Консовский  и др.Субтитры: отсутствуютПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045DA1EEFFFF9534A8B9582828DDFED3C05A7F7E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688193   (125312) от 28.12.2023
+
+Мэтью Сайед | Принцип «чёрного ящика». Как превратить неудачи в успех и снизить риск непоправимых ошибок (2022) [MP3, Владимир Рыбальченко]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125312.jpg" />
+</div>
+
+
+###  Подробнее
+
+В современной культуре принято сосредоточиваться на достижениях и игнорировать провалы. Ошибки воспринимаются либо как цепь случайностей и незначительное отклонение от нормы, либо, напротив, они переоцениваются – тогда человек, принявший неверное решение, обвиняется в некомпетентности и клеймится позором. Британский журналист Мэтью Сайед утверждает, что такое отношение (   Читать дальше...   )Жанр: популярная психология, саморазвитие / личностный ростПеревод: Николай КараевИздательство: Азбука-АттикусПродолжительность: 11:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF30F9E3D7AA656B452BC529E7EA572543EABCEF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688141   (125311) от 28.12.2023
+
+HWiNFO 7.69 Build 5305 Beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125311.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03FD917389E2B010159B07A1F5114114E6F832FD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684725   (125310) от 28.12.2023
+
+Дом на площади / The House in the Square (1951) DVDRip  [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Учёный, одержимый прошлым, перемещается в Лондон 18-го века, где он влюбляется в прекрасную молодую женщину.Производство: Великобритания, США / 20th Century Fox Film CorporationЖанр: фэнтези, драма, мелодрамаРежиссер: Рой Уорд БейкерАктеры: Тайрон Пауэр, Энн Блит, Майкл Ренни, Деннис Прайс, Беатрис Кэмпбелл, Кэтлин Байрон, Рэймонд Хантли, Ирен Браун, Рональд Адам, Роберт АткинсПеревод: Одноголосый любительский (Andre1288)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD39B53ADB4DF219A62C2F02C6A136815B7B2320
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688177   (125309) от 28.12.2023
+
+EarthView 7.8.0 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125309.jpg" />
+</div>
+
+
+###  Подробнее
+
+EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DB1745CEA1437CF45ECE41E67AB0F4C182EC7B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688159   (125308) от 28.12.2023
+
+Taylor Newville and the Riders - Let the Good Times Begin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down in New Orleans (3:26)
+02. Mean Cold World (3:58)
+03. Baby Please Don’t Go Away (3:11)
+04. Wild Men Always Give You the Blues (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BCFC34CC65243D29DC46A8735D781B845F476B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688163   (125307) от 28.12.2023
+
+The Goosebumps Bros. - 21 Days (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I hate (3:28)
+02. The Right Track (5:49)
+03. My Shadow (3:56)
+04. Halfway From You (3:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:054052582DE88F8361B99007F663E6297BC4F028
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688114   (125306) от 28.12.2023
+
+Borgne - [∞] (2018) [FLAC|Lossless|WEB-DL|tracks] <Industrial Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La Porte du Chaos (07:17)
+02 - Peu importe si elle m'aura aveugle (07:12)
+03 - Un temps perit (06:03)
+04 - Comme si ca s'arretera Stone (10:20)(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3D6BB0082447521E762745876B452E2F2E5E60
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688174   (125305) от 28.12.2023
+
+The Tamaracks - Fool Me Once (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil Wears Black (3:38)
+02. Black Magic (4:24)
+03. Tale of a Traveler (6:02)
+04. Ashamed for Loving You (4:17)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40D3211F9F9D4EE09B4771C377401A48BDA4392
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688236   (125304) от 28.12.2023
+
+Jerusalem - Stygn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Gud finns visst (4:42)
+02. Jeremia (10:23)
+03. Stygn (5:37)
+04. Hur kunde vi (5:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A7235674259CCA700D30519C81FC98CB0268AB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688231   (125303) от 28.12.2023
+
+Jerusalem - Stygn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_125303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gud finns visst (4:42)
+02. Jeremia (10:23)
+03. Stygn (5:37)
+04. Hur kunde vi (5:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B0627EDDF82002974F174369CCFF9BA509261E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688270   (125302) от 28.12.2023
+
+Жан-Батист Мольер | Плутни Скапена (Радиоспектакль) (2009) [MP3, Евгений Весник, Зиновий Гердт и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Коллекция радиоспектаклей, Из архива «Гостелерадиофонда».
+Жан-Батист Мольер (1622-1673) – великий французский комедиограф, создатель классической комедии. Развлекательная пьеса в трёх действиях «Плутни Скапена» (известна также под названием «Проделки Скапена») была им написана в 1670 году. Главный герой этого весёлого фарса – простолюдин Скапен, слуга (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияИздательство: 1С-Паблишинг, ИДДКПродолжительность: 01:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A88A383386696582BD6B2CBE4D52FBFF70096DF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688276   (125301) от 28.12.2023
+
+Жан-Батист Мольер | Тартюф, или Обманщик (2012) [MP3, Алла Покровская, Борис Клюев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Шедевры мировой литературы.
+Жан-Батист Мольер (1622–1673) – французский поэт и актер, создатель жанра комедии эпохи Классицизма.
+Пьеса «Тартюф, или Обманщик» была написана Мольером 1669 году. Действие комедии разворачивается в Париже, в доме Оргона. В доверие к хозяину дома втирается молодой человек по имени Тартюф. У всех домочадцев на устах имя этого (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияИздательство: Радио России (запись эфира)Продолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE871A99E51C071CB2889C075F6A62E8F36C8E3C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687976   (125300) от 28.12.2023
+
+Мария Татар | Тысячеликая героиня (2023) [MP3, Екатерина Бабкова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозное исследование женских образов в мировой культуре, в котором гарвардский профессор, культуролог и литературовед Мария Татар бросает вызов каноническим архетипам, описанным Джозефом Кэмпбеллом.
+Она анализирует «путешествие героини» по пространству историй, чтобы убедительно доказать, что женщины – не только матери, супруги или богини-покровительницы героев. (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Альпина ДиджиталПродолжительность: 13:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06771652CB7180E02976727ECB8C9735B145885D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688115   (125299) от 28.12.2023
+
+Borgne - Y (2020) [FLAC|Lossless|tracks + .cue] <Industrial Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - As Far as My Eyes Can See
+02 - Je deviens mon propre abysse
+03 - A Hypnotizing, Perpetual Movement That Buries Me in Silence
+04 - Derrière les yeux de la création(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC550DD69E307DF78FBB11D1B52E64415A227C3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688160   (125298) от 28.12.2023
+
+Екатерина Барсова | Проклятие Титаника (2022) [MP3, Ирина Воробьева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125298.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1912 году потерпел крушение и затонул в холодных водах Атлантического океана знаменитый лайнер «Титаник». Ровно через сто лет в Средиземном море пошел на дно еще один лайнер, и многие тогда заговорили о «проклятии Титаника»…Ульяна Павлова приехала в Италию, в Рим, вместе со своим женихом, журналистом Дмитрием Дроновым. Неожиданно в одном из римских кафе Дмитрий (   Читать дальше...   )Жанр: детектив, триллерИздательство: Нигде не купишьПродолжительность: 08:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF25C925B8FED258A6713B08DC09A3E36D63F3C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688215   (125297) от 28.12.2023
+
+Анна Гарф | Вот какие наши руки (1961) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_125297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия рассказов для детей дошкольного возраста.
+Иллюстрации А.Кипарисова.Жанр: рассказИздательство: ДетгизФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5E7F80B31CDD30D3C073652EE968E0F7083A19
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688176   (125296) от 28.12.2023
+
+The Wayne Riker Gathering - Alphabetical Blues Bash, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Knows You When You're Down and Out (feat. Sandi King) (2:34)
+02. One Scotch, One Bourbon, One Beer (feat. Stacy Antonel) (3:39)
+03. Parchman Farm Blues (feat. Steve Gouveia) (2:06)
+04. Quarter To Three (feat. Shelle Blue) (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10C7EF4A9B3D2D92D09176A6E31FCAB6EB88AB2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688122   (125295) от 28.12.2023
+
+Laurent de Wilde Trio - Life Is A Movie (2023) Gazebo [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La vague [6:19]
+02. Back on the Beat [5:11]
+03. Life Is a Movie [6:03]
+04. Les paradis perdus [5:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC35047B627C293E75005FE027205A42875C9220
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688154   (125294) от 28.12.2023
+
+Boney James - Soulful Holiday Sax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleigh Ride
+02. Skating
+03. This Christmas
+04. Santa Baby(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B486C787130A3F61D7B8A73E3036CC69362BA417
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688118   (125293) от 28.12.2023
+
+Gerry Mulligan - Four Classic Albums (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chelsea Bridge [7:20]
+02. The Cat Walk [5:45]
+03. Sunday [7:23]
+04. Who's Got Rhythm [7:39](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43035CDA3E0611257655605582A219372D0134D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688125   (125292) от 28.12.2023
+
+The Kenny Clarke-Francy Boland Big Band - Latin Kaleidoscope, Cuban Fever (1968) 2011, MPS Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Graso de Areia [4:55]
+02. Duas Rosas [2:28]
+03. A Rosa Negra [1:59]
+04. Uma Fita de Tres Cores [4:02](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694338F5AC18071A3B5F74BA26DC2C83B34228ED
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687955   (125291) от 28.12.2023
+
+Рогатая Нога - Первая кровь, Часть 1-2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Punk, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2023 - Первая кровь, Часть 1
+2023 - Первая кровь, Часть 2Жанр: Heavy Metal, Punk, New WaveПродолжительность: 2 CD, 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C5D95C6186A7A006C0DC156CF62E412F66C278
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688168   (125290) от 28.12.2023
+
+The Mike Eldred Trio - First Recordi (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiger Man (4:24)
+02. Hello Baby (3:42)
+03. I Could Be That Man For You (5:02)
+04. Thin Line (5:45)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1623CBFED844A1D1108056634E2841DB135900CF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687948   (125289) от 28.12.2023
+
+Queen Kona - All Hail (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore, Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_125289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Flag [00:04:04]
+02. Atomic Diplomacy [00:02:38]
+03. Dreams of Calpurnia [00:04:18]
+04. Flat Six [00:03:21](   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8FBFA7C51DC4BF8B555FA7C697569A9D8370DF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688173   (125288) от 28.12.2023
+
+StormHammer - Never Surrender: 30 Years Of Power (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_125288.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Northman
+2. Road To Heaven
+3. Light In The Dark
+4. Dark Side(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8A1D866118716EBD972655D37BFBBD9793E770
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

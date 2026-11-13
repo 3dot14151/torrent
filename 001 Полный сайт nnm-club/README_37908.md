@@ -1,0 +1,752 @@
+###  Публикация: 484835   (99961) от 19.04.2012
+
+Улетное видео по-русски. Новый сезон  (2012.04.17) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA59451AA5B590C3317310BE71A563937641F97B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484740   (99960) от 19.04.2012
+
+VA - Trance Parade Vol.2 (17.04.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99960.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Parade Vol.2 (17.04.2012)
+Год: 17.04.2012
+Жанр: Trance
+Продолжительность: 03:27:39Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+1.Robert, The Martinez Brothers--Dreaming About Paprica (Dave Joy Remix)
+2.DJ Shog--Jelousy (Vocal Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D64CFC25903F489C7DD8BD0D244642BF5519D86
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484657   (99959) от 19.04.2012
+
+Mr Peculiar - Alternate Worlds (2012) [MP3|~249 кб/с (V0)]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. A New Machine (11:29)
+2. Psycho Disco Balls (8:41)
+3. Everything Remains (9:00)
+4. Infinity rmx (8:27)
+5. Another World (7:02)
+6. Mental Universe (7:42)
+7. Ascention (9:26)
+8. Pandora (10:17)
+9. Algarythm (7:49)2012Жанр: Psychedelic / Full OnПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE9F18E0E29E29B3B2A3E60A4FA64D2014E1C3C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485109   (99958) от 19.04.2012
+
+[Wallpapers]Различная тематика
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99958.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers]Различная тематика
+Название: Различная тематика
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200/2560х1600
+Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2246E38B1449DE84C2A4EDB381D767D337FADACA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484975   (99957) от 19.04.2012
+
+Величайшие автомобили: Cobra / Great Cars: Cobra (2004) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более сорока лет машины Керола Шелби поражают мир своей мощью и скоростью. Не важно был ли он за рулем или руководил гоночной командой - Шелби был обречен на победы. Не имело значения сколько машин он создал и сколько гонок он выиграл. Каждый раз главной его целью было сделать новый автомобиль еще лучше и быстрее.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1308EB9AF5DFF8430C562080EC5C705DF9556E1C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484944   (99956) от 19.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (19.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8D6807E34471ED13E88072F2D843A9BBF2E9B3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485106   (99955) от 19.04.2012
+
+[Wallpapers]Delicious Wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99955.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers]Delicious Wallpapers
+Название: Delicious Wallpapers
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200/2796x3567
+Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B5B74645798D3D477FDB53B2D48B929934C9C8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485210   (99954) от 19.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (20.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6C27810D8A7F7BB05DC00FF03A63FCE723FBF7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484478   (99953) от 19.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers №22
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1280
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FDA8F4B6E56827C0EBDA44B0D42952F1A1283E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484473   (99952) от 19.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers №21
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A8C77F0C31FD1885D9FC032A68BAAFCE7024C0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485211   (99951) от 19.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (20.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 2582х1849
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F898163FF83BDC099453AF9BB1FEA58F3A71E88F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484945   (99950) от 19.04.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (19.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4075x2288
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4115A14186D31D2E9A8F59E408CFE2CB2FC9F47C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485218   (99949) от 19.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers №23
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1280х1024 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7942913FBF52D0E77E4AD5DFA7F70189CE5EBB0D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484707   (99948) от 18.04.2012
+
+[wallpapers] 55 Best Impressive Full HD Wallpapers - 8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+[wallpapers] 55 Best Impressive Full HD Wallpapers - 8
+Название: 55 Best Impressive Full HD Wallpapers - 8
+Тип раздаваемого: wallpapers
+Разрешение файлов: 1920x1080-2560x1600
+Расширение (тип) файлов: Jpeg
+Скриншоты:Время раздачи: до 5 скачавших
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA1B1E2FB9715923CE1D690750A7D819DDA3370
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484009   (99947) от 18.04.2012
+
+[Wallpapers] Amazing Vector Nature HQ Wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Amazing Vector Nature HQ Wallpapers
+Название: Amazing Vector Nature HQ Wallpapers
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119C39314078E19AEC4E2D567A74319A4900D0A4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484411   (99946) от 18.04.2012
+
+VA - Радужное настроение. Лучшие Хиты (2012) [MP3|192-256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. Dj Rem & Mc Phil - Верю Я (S.L.V Original Mix) (4:00)
+2. Ани Лорак - Я Буду Солнцем (3:44)
+3. Девушки Эйнштейна - Suga (Radio Edit) (3:11)
+4. Иракли - Напополам (Sasha Tretyak Remix) (5:00)
+5. 5sta Family - Вместе Мы (DJ Amor Remix) (4:16)
+6. Русский Размер И Оксана Почепа - Ангел Дня (3:04)
+7. Влад Дарвин & Alyosha (Алеша) - Больше Чем Любовь (3:48)
+8. Дискотека Авария - Нано Техно (Alexander Bright Remix) (5:39)
+9. Vlad Bostan - Задыхаюсь (AlexCor Remix) (3:23)
+10. Елена Терлеева - Просто (5:20)2012Жанр: PopПродолжительность: 06:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B66DDDF8706F09BE98A14C3B75CBF4A122C765C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484829   (99945) от 18.04.2012
+
+[Wallpapers] Weapon [jpg]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для настоящих мужчин на рабочем столеФормат: jpg
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1652976E76AD2563027C2B601667161B94D99C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484677   (99944) от 18.04.2012
+
+Журнал | Современный дом и офис №1 [2012 февраль-март] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная информация о модных тенденциях и дизайнерских идеях на интерьерном рынке, помощник в решении практических вопросов строительства, ремонта и обустройства комфортного качественного интерьера. Журнал регулярно знакомит своих читателей с новинками рынка, рассказывает о наиболее авторитетных марках и производителях мебели, отделочных материалов, строительных компонентов.2012 февраль-мартФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5288B5EB49E4D87BD1C647E92D40A4AE9EA5C5FC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484869   (99943) от 18.04.2012
+
+[Wallpapers] Wallpapers Fantasy №5 (Pavel)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола 50 шт
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1253520E194C40624CB51401A4DAA038027FAEF8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484720   (99942) от 18.04.2012
+
+Журнал | Мир тайн и загадок №2 [апрель-май 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«Мир тайн и загадок» - журнал о непостижимых явлениях и величайших тайнах мира, интереснейших загадках природы, тайнах исчезнувших цивилизаций, эзотерических учениях.апрель-май 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D3DFE307113DB2FBE130AEEB8F47E4DF760A51
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484564   (99941) от 18.04.2012
+
+VA - MAXI. Русские новинки MTV (2012) [MP3|320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ради Славы & Katty - Целуй Меня
+02. Paralleli - Опасные
+03. Пыльца - Красная Пелена
+04. Nomad - Сколько Можно
+05. DMS - Давай Полетим
+06. Пара Нормальных - Невеста
+07. N.A.O.M.I. (Наоми) - Нежность)
+08. DJ Рублёв feat. Вячеслав Лопаков - Одиночество (DJ Denis Rublev Club Mix)
+09. Оля Полякова - Лепесток
+10. Monaco - Не Дети (Dj Denis Rublev Remix)2012Жанр: Pop,DanceПродолжительность: 05:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203C4FB9B7F6DEB73797292C0E54D74D81F84634
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484776   (99940) от 18.04.2012
+
+А.Д. Чернев | 229 кремлевских вождей [1996] [DJVU]
+
+>>Разное (категория книг)
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_99940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник кратких биографий высших партийных чинов: членов Политбюро, Оргбюро и Секретариата ЦК РКП(б) - ВКП(б) – КПСС. Любой уважающий себя россиянин знаком с такими фамилиями, как Берия, Троцкий, Жданов, Бухарин, Каменев, Зиновьев, Ворошилов, Молотов, Суслов, не говоря уже о властных лидерах Ленине, Сталине, Хрущеве, Брежневе и т.д. Загадкой до недавнего времени оставался коллективный потрет высшей элиты советского общества.1996Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56076B52D79D2FBEF96C3B079111B180001A2702
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484949   (99939) от 18.04.2012
+
+VA - Buddha Lounge & Chillout Selection (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Thors - Love And Tenderness (7:53)
+02. Collective Sound Members - The Spirit (5:11)
+03. Magdalena Chovancova - Andalusia Lounge - Maxi Single (7:09)
+04. Collective Sound Members - Midnight Skyline (4:49)
+05. The Sura Quintet - Fora Dagua (4:54)
+06. Christian Hornbostel pres. Zons of Zambesi - Zambesi - Danny Massure Rumba Re-Rub (4:52)
+07. Don Gorda Project - Feeling Free (5:41)
+08. Enrico Donner - On The Lake (5:16)
+09. Cesar Martinez Ensemble - Que Mas? (6:06)
+10. Kim And Buran - You Are The Sunshine (2:41)(   Читать дальше...   )2012Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC2B875A944BF7118D3900D4D01FD8B31DAAAFD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484763   (99938) от 18.04.2012
+
+VA - Sexy Trance #31 (17.04.2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)
+002. Sean Bay - At The End Of The World (Sean Bay Remix)
+003. Van Dresen - Back To Start (Orjan Nilsen ReChunk Mix)
+004. Sean Tyas feat. David Berkeley - Believe (Original Mix)
+005. Ummet Ozcan - Cocoon (Original Mix)
+006. Super8 & Tab - Cre8 (Mike Saint-Jules Remix)
+007. Robert Vadney - Fallen Angel's Symphony (Robert Vadney's 2011 Mix)
+008. Sensetive5 feat. Liek - I Cant Believe (Original Mix)
+009. Simon Patterson feat. Lucy Pullin - Keep Quiet (Original Mix)
+010. Shogun - Lotus (Original Mix)(   Читать дальше...   )17.04.2012Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230AE03FD9E3567302D718D0A7A226776B2C7D3B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484426   (99937) от 18.04.2012
+
+Naglfar - Teras (2012) [FLAC|Lossless]<Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_99937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teras 02:16
+02. Pale Horse 03:38
+03. III: Death Dimension Phantasma 04:15
+04. The Monolith 06:33
+05. An Extension of His Arm and Will 04:46
+06. Bring Out Your Dead 04:49
+07. Come, Perdition 05:43
+08. Invoc(H)ate 04:25
+09. The Dying Flame of Existence 08:12Жанр: Melodic Black MetalПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484485   (99936) от 18.04.2012
+
+Fedora 17 Beta [i386] (1xDVD + netinstallCD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Объявлено о выпуске бета-версии Fedora 17. Данный выпуск Fedora включает в себя множество функций, как видимых польхователю, так и скрытых. Для GNOME 3.4 введено множество улучшений, включая новые возможности поиска, улучшены темы и усовершенствована обработка документов и  взаимодействие приложений. Новое приложение, GNOME-boxes, обеспечивает легкий доступ к виртуальным машинам. Кроме того в GIMP 2,8 сделаны новые усовершенствования, такие как одно-оконный режим, группы слоев, и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C68D2BC03CD26EADDCA7A6C2BBBF982F7EBA4C0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,0 +1,753 @@
+###  Публикация: 1041768   (580659) от 11.08.2016
+
+Модифицированные бактерии могут стать производителями наноэлектроник
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_580659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если человеку ввести вещество под названием триптофан, то он почувствует сонливость и быстро заснет. Но если дать это же самое вещество бактериям, специально модифицированным на генетическом уровне специалистами из Массачусетского университета в Амхерсте (University of Massachusetts Amherst), то они начнут производить крошечные электрические проводники, которые однажды смогут стать элементами не менее крошечных наноэлектронных схем.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042066   (580658) от 11.08.2016
+
+VA - Strong Sound Pressure (2016) [MP3|245-320 Kbps] <Club, Progressive, Funky, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kay-D - Plan B (Original Mix) 09:17
+02. Gai Barone - Chasing Karol (Original Mix) 08:33
+03. Ravine & Bobby Neon - Waverunner (Radio Edit) 03:39
+04. Mike Diamondz - Girl I Want You (Extended Version) 05:01(   Читать дальше...   )Жанр: Club, Progressive, Funky, HouseПродолжительность: 06:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC950885A4205B5EE558217BFB97F481ECCBD216
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042061   (580657) от 11.08.2016
+
+George Howard - Personal (1997) MCA Records[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Want You For Myself [05:30]
+ 02.Shower You With Love [05:02]
+ 03.Uptown [06:49]
+ 04.You And Me [06:12](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A52E71542FCCD3A56CCB148A10941B5B3B092E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042119   (580656) от 11.08.2016
+
+Спортивная гимнастика. Олимпийские игры 2016. Мужчины. Индивидуальное многоборье. Финал (10.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580656.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 августа 2016 года, среда. 22:00 МСК.
+
+Спортивная гимнастика. Мужчины. Индивидуальное многоборье. Финал.
+Арена: Рио Олимпик Арена (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Занозин, Гарибов)Продолжительность: 02:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBDDABE507A6F5377A48C4B835FE00D53B0EEFE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042074   (580655) от 11.08.2016
+
+Волейбол. Олимпийские игры 2016. Женщины. Группа А. Тур 3. Россия - Камерун (2016.08.10) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580655.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 августа 2016 года, среда. 23:05 МСК
+Женщины. Группа A. 3-й тур. Россия - Камерун
+Арена: Мараканазиньо (Рио-де-Жанейро, Бразилия)Телекомпания: Матч Игра HDЖанр: СпортПродолжительность: 01:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E762A12418F86CE96748D0B81585F036E3B1C82F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042121   (580654) от 11.08.2016
+
+Плавание. Олимпийские игры 2016. День №4. Финалы (09.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580654.jpg" />
+</div>
+
+
+###  Подробнее
+
+04:00 Мужчины. 100 м вольный стиль. 1/2 финала
+04:10 Женщины. 200 м вольный стиль. Финал
+04:25 Мужчины. 200 м баттерфляй. Финал
+04:35 Женщины. 200 м баттерфляй. 1/2 финала(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Панкратов, Губерниев)Продолжительность: 01:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC5D5CFEC29A1C032B05CD9CC5C9D634710D0C4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041862   (580653) от 11.08.2016
+
+Black Peaks - Statues (2016) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Math Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Built Castles (4:18)
+02. Crooks (3:02)
+03. Say You Will (5:07)
+04. Hang 'Em High (7:07)(   Читать дальше...   )Жанр: Post-Hardcore, Math RockПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927BBB2D9E1D86429CDCF429BEC4A34D2D5B6CE2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041951   (580652) от 11.08.2016
+
+Спортивная гимнастика. Олимпийские игры 2016. Женщины. Командное первенство. Финал (09.08.2016) HDTVRip [H.264/720p-LQ][hand made 50fps][EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580652.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 августа 2016 года, вторник. 22:00 МСК
+Командное первенство. Финал
+
+ Стадион: Рио Олимпик Арена (Рио-де-Жанейро, Бразилия)(   Читать дальше...   )Телекомпания: BBCЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: :27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0366554D863EB0EB57A2AFCF4EAD214ED91104
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042114   (580651) от 11.08.2016
+
+Спортивная гимнастика. Олимпийские игры 2016. Женщины. Командное многоборье. Финал (09.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580651.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 августа 2016 года, вторник. 22:00 МСК.
+
+Спортивная гимнастика. Женщины. Командное многоборье.
+Финал. Арена: Рио Олимпик Арена (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Павел Занозин, Эмин Гарибов)Продолжительность: 02:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90806B7C7132A44FD35B6E1EB690DB0FE3954F7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041981   (580650) от 11.08.2016
+
+VA - Beatport Trance Pack (10.08.) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7 Wonders  -  Protect (Original Mix)  7:18
+02. Armos  -  Call Of The Road (Original Mix)  5:57
+03. David Gravell  -  Battlefront (Extended Mix)  5:23
+04. Cold Rush  -  Blue Gold  3:34(   Читать дальше...   )Жанр: Trance, Uplifting Trance, EnergyПродолжительность: 03:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9908D9C624F8C921F96C3C03EEA926E19CABD0F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041887   (580649) от 11.08.2016
+
+Easy 8's - American Made Thunder (2016) [FLAC|Lossless|tracks] <Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_580649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Made Thunder
+02. USA Today
+03. Left Right in the Middle
+04. Encore(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228DE7DB7AA4981A52C57DD95A765F7DC0EABFD3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041958   (580648) от 11.08.2016
+
+VA - Ultimate Trance Sensation (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_580648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chronosapien  -  City of Sion (Radio Cut)  3:30
+02. DJ Ultimate Bass  -  Home (Club Radio Edit) (feat. Holly D)  3:41
+03. 7 Baltic & Ledo  -  Taurus (Airbalance Radio Cut)  4:00
+04. DJ Sakin & Friends  -  Symphonic Life (Radio Edit)  3:34(   Читать дальше...   )Жанр: Trance, Melodic, EmotionalПродолжительность: 02:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C7A4974DB464D203B3951ED6039C48B40A1848
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042205   (580647) от 11.08.2016
+
+VA - Future Classics Vol.1 (2016) [MP3|320 Kbps] <Trance,  Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_580647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Terry  -  Magellan (Original Mix)  6:47
+02. Roman Messer ft Robin Vane  -  Someday (Temple One Remix)  5:51
+03. Armos  -  Call Of The Road (Original Mix)  5:57
+04. Feel & Jan Johnston  -  Skysearch (NoMosk Remix)  6:37(   Читать дальше...   )Жанр: Trance,  ProgressiveПродолжительность: 02:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34AED5474903F67278035DE33C70CAE41CDA1970
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042063   (580646) от 11.08.2016
+
+Гандбол. Олимпийские игры 2016. Женщины. Группа B. 3-й тур. Россия - Швеция (10.08.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580646.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 августа 2016 года, среда. 20:40 МСК
+ Предварительный раунд. Группа B. 3-й тур.
+
+Арена: Фьюче Арена (Рио-де-Жанейро, Бразилия)Телекомпания: Россия 1 HDЖанр: СпортПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724B35491A0EAA659C946998947B43A6CF9BFE28
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042141   (580645) от 11.08.2016
+
+Решад Нури Гюнтекин | Зеленая ночь (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман классика турецкой литературы XX века Решада Нури Гюнтекина (1898 - 1950) "Зеленая ночь" о годах национально-освободительного движения и Турции (1919 - 1922)Жанр: РоманПродолжительность: 12:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0ACD80F13CCB724D2CF8D45DB2FE102059CAA05
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042126   (580644) от 11.08.2016
+
+Плавание. Олимпийские игры 2016. День №5. Финалы (10.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580644.jpg" />
+</div>
+
+
+###  Подробнее
+
+04:00 Мужчины. 200 м брасс. Финал
+04:10 Женщины. 100 м вольный стиль. 1/2 финала
+04:20 Мужчины. 200 м на спине. 1/2 финала
+04:50 Женщины. 200 м баттерфляй. Финал(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Панкратов, Губерниев)Продолжительность: 02:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AE20CDDDFA198588A94CAFE97ACE8D7BF6315D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042220   (580643) от 11.08.2016
+
+Волейбол. Олимпийские игры 2016. Мужчины. Группа B. Тур 3. Россия - Египет (2016.08.11) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580643.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 августа 2016 года, четверг. 17:35 МСК
+Мужчины. Группа B. 3-й тур. Россия - Египет
+Арена: Мараканазиньо (Рио-де-Жанейро, Бразилия)Телекомпания: Матч ТВ HDЖанр: СпортПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9252CD53C64B7A59DC8F5EB79C8155EDEB7909B9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042072   (580642) от 11.08.2016
+
+VA - 100 Nowadays Points Cross (2016) [MP3|320 Kbps] <House, Tropical, UK Garage, Club, Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gregory Esayan - Changes (Original Mix) 07:30
+002. Ambrosia - Happy (Dub) 08:16
+003. Sheree Hicks - Living All Alone (Djpope's Sound Of Baltimore Instrumental) 07:07
+004. Inaky Garcia And Misteralf Feat Sandy Soul - Paradise (Guido P Sunset Mix) 07:48(   Читать дальше...   )Жанр: House, Tropical, UK Garage, Club, Techno, ElectronicПродолжительность: 10:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F8A342C35C9F33911D9D4AAF81E9C90146C712
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042058   (580641) от 11.08.2016
+
+VA - Philosophy Of Property Of The Trance (2016) [MP3|320 Kbps] <Trance,  Progressive, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_580641.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Transport  -  From Here To Eternity (A.L.A.M.I Remix)  7:48
+002. Mostfa & Mostfa  -  Nosara (Witness45 Remix)  7:57
+003. Feel And Alexandra Badoi  -  Did We Feel (ReOrder Remix)  5:27
+004. Solis & Sean Truby  -  Flashlight  5:37(   Читать дальше...   )Жанр: Trance,  Progressive, Uplifting TranceПродолжительность: 17:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D523553811F8C6B22A5D0D77B8CC4A540B32D1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042147   (580640) от 11.08.2016
+
+Network Radar 2.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_580640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управление и настройка сетевыми устройствами.
+Network Radar  предоставляет Вам информацию о сети к которой подключен ваш Mac . Network Radar показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика.
+Network Radar представляет собой простой в использовании инструмент, который позволит вам получить детальную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 августа 2016Разработчик: Daniel DienerПоддерживаемая ОС: OS X 10.11.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CABF3054051B32355D9F04652E9DF8E31F0CE7AD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811215   (580639) от 08.08.2014
+
+Журнал | Быстро и вкусно! №25 (2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«Быстро и вкусно!» – это коллекционная серия книг с простыми рецептами быстрых, вкусных и недорогих блюд. Они отобраны опытной командой поваров, гарантирующих великолепный результат. Каждый рецепт сопровождается красочной фотографией и лаконичной пошаговой инструкцией. Собрав все книги, вы получите исчерпывающую кулинарную коллекцию, которая поможет вам сделать ещё вкуснее всё, что вы любите, и освоить новые оригинальные блюда.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B26E4A9AEADEA727DD606F6D3732F49A62D19EB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810737   (580638) от 08.08.2014
+
+Велоспорт. Тур Польши 2014. Этап 3 / Tour de Pologne 2014 (2014) TVRip [H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/011/save_picture_580638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тур Польши 2014 (польск. 2014 Tour de Pologne) — 71-я элитная многодневная гонка по дорогам Польши и Словакии. Гонка начнется в городе Гданьск, а закончится в Кракове.Жанр: Спорт, ТелепередачаПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9660E859287A048D07CEFA25D5966FC8648B06B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810388   (580637) от 08.08.2014
+
+Danny Elfman - Приключения мистера Пибоди и Шермана / Mr. Peabody & Sherman (Music From The Motion Picture) (2010) [MP3|320 кб/с]<Soundtrack>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Peabody's Prologue (03:19)
+02. Reign of Terror! (02:48)
+03. The Drop Off (01:14)
+04. The Dog Whistle (00:48)
+05. The Cherry Tree (00:59)
+06. A Deep Regard (00:52)
+07. John Lennon / Beautiful Boy (Darling Boy) (03:51)
+08. Dinner Party (00:30)
+09. The Petersons / The Wabac Machine (03:08)
+10. Aquarela do Brasil (00:47)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30906DBDE9705E5535E7CD1C61399228967D260
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811254   (580636) от 08.08.2014
+
+Savant - Protos (2014) LP [MP3|320 кб/с]<Electronic, Dubstep, Electro, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Man of the Law 4:41
+02. Prototype 4:14
+03. Spaceship 3:33
+04. Rider in Red 2:07
+05. Fakers 3:22
+06. Rise Up 3:57
+07. Nebula 5:58
+08. Spaceheart 4:38
+09. Laser Sharks 4:03
+10. Cry for Love 3:40(   Читать дальше...   )Жанр: Electronic, Dubstep, Electro, HouseПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A62E1DEDABBE9EDA6899A4AA1541F52508E429
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811379   (580635) от 08.08.2014
+
+Odiseo – 10 Years After (2008) [FLAC|Lossless|WEB-DL]<Progressive Trance; Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Music Is The Answer (7:05)
+02. The Flow (6:29)
+03. Faith (6:55)
+04. Let It Go (6:56)
+05. 10 Years After (6:36)
+06. Enjoy (6:37)
+07. Breeze (6:18)
+08. Eh Noize (7:09)
+09. Sixth Sence (7:15)Жанр: Progressive Trance; Psy-TranceПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FCD78BD2E02425F846237628E46FCEA662F7FB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811212   (580634) от 08.08.2014
+
+М. И. Шахнович | Приметы верные и суеверные (1984) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Книга профессора, доктора философских наук М. И. Шахновича разоблачает тайны примет, унаследованных из глубокой древности. Автор разъясняет происхождение суеверных примет, снимает с них покров таинственности, доказывает их полную несостоятельность в свете науки.Формат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41EFA70BBE19EBDA42FB8BBD98CB205FE2AAE1D8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

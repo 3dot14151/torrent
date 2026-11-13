@@ -1,0 +1,722 @@
+###  Публикация: 1869179   (1068107) от 04.05.2026
+
+TweakNow WinSecret Plus! 9.3.0 [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068107.jpg" />
+</div>
+
+
+###  Подробнее
+
+TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10/11.
+Приложение группирует множество настроек реестра и предлагает их с помощью простого и удобного пользовательского интерфейса.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F99B730289CD913CED65E52AC07B64B74E0D1E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869181   (1068106) от 04.05.2026
+
+Boogie Beasts - Don't Be So Mean! (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Duwayne Burnside - Jumper On The Line (3:55)
+02.  Pablo van de Poel - Going Down South (3:49)
+03.  Kenny Brown - Skinny Woman (3:44)
+04.  Cedric Maes - You Got To Move (3:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B072661C27C8B72CF63A2279FAA4E0459EB45D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869182   (1068105) от 04.05.2026
+
+Оружейный барон / Lord of War (2005) UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители Юрия и Виталия Орловых покинули Украину и обосновались в Америке: у них маленький ресторанчик на Брайтон-Бич. Дети же не стремятся идти по родительским стопам. Юрий начинает торговать оружием и с помощью брата быстро завоевывает свое место под солнцем. Но чем выше он поднимается, тем ближе к нему подбирается агент Интерпола.Производство: Германия, США, Франция / Ascendant Pictures, Copag V, Metro-Goldwyn-Mayer (MGM)Жанр: драма, криминалРежиссер: Эндрю НикколАктеры: Николас Кейдж, Бриджет Мойнэхэн, Джаред Лето, Итан Хоук, Иэн Холм, Шаке Тухманян, Жан-Пьер Ншанян, Имонн Уокер, Сэмми Ротиби, Евгений ЛазаревПеревод: Дублированный (R5)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E0268EF938F277A8CEE732971518937CFAE63F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869184   (1068104) от 04.05.2026
+
+Dan Penn - Smoke Filled Room (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Smoke Filled Room (4:12)
+02.  One Blue Light (3:50)
+03.  Blues Of The Month Club (4:42)
+04.  There's Nothing Out There (3:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940E4C9CD73879EE5D8F191ED5A9042CAA75EEF3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869185   (1068103) от 04.05.2026
+
+Gurf Morlix - Cobwebs & Stardust (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gimme a Reason (4:14)
+02.  I Want to Hold Your Hand (4:31)
+03.  My Guitar is a Blues Machine (6:32)
+04.  The Center of Your Soul (4:18)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F863FF59B33ED2E3BB2D5B600CCAFB3F1C81E3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869190   (1068102) от 04.05.2026
+
+Krissy Matthews - Rock and Roll Soldier (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rock 'n' Roll Soldier (4:03)
+02.  44 Blues (5:05)
+03.  Fell in Love with a Girl (4:09)
+04.  Pharo Blues (4:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246D78E48C1231245FDB7CBA1BA86E5AC08BF621
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869186   (1068101) от 04.05.2026
+
+47 ронинов / 47 Ronin (2013) UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочный странник, проданный в рабство, станет одним из 47 воинов, бросивших вызов смерти. Явившись из другого мира, он восстанет против темных сил, чтобы защитить свою запретную любовь.Производство: США, Великобритания, Япония, Венгрия / Universal Pictures, Relativity Media, DentsuЖанр: фэнтези, боевик, драмаРежиссер: Карл РиншАктеры: Киану Ривз, Хироюки Санада, Ко Сибасаки, Таданобу Асано, Ринко Кикути, Кэри-Хироюки Тагава, Мин Танака, Дзин Аканъиси, Масаёси Ханэда, Хироси СогабэПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BAD8650438299EA7E632BC5B723DBDCA788C5D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869193   (1068100) от 04.05.2026
+
+Лайон Спрэг де Камп | С ружьём на динозавра (2026) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068100.jpg" />
+</div>
+
+
+###  Подробнее
+
+"В пятую экспедицию на машине времени произошло происшествие, из-за которого организаторы взяли за правило не брать на сафари скандальных людей и людей с малым весом." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80EA1AA6BE448E101E967823CEC5B52866D8F01
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869194   (1068099) от 04.05.2026
+
+Ai - Russian poets covers 11 compilation (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - А. Блок, Vibe Poems - О Да, Любовь Вольна, Как Птица…
+02 - М. Лермонтов, Лэп - Демон
+03 - А. Пушкин, Dj Ev - Онегин
+04 - С. Есенин, Лэп - Мы Теперь Уходим Понемногу…(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 01:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33CEE2F01FF30A98571AAE4B0F1FE12B2738EB6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869192   (1068098) от 04.05.2026
+
+Журнал | Знание-сила №5 (1187) (май 2026) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66634B3B817E139034D76525FAC58B49DF4B27A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869191   (1068097) от 04.05.2026
+
+Томаж Братанич, Оскар Хане | Основы GraphRAG. Улучшенный RAG на базе графов знаний [2 книги] (2025, 2026) [PDF, EPUB, MOBI, AZW3] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Система генерации ответа, дополненная результатами поиска (Retrieval Augmented Generation, RAG), автоматически выбирает и предоставляет контекст, характерный для конкретной предметной области, что значительно улучшает способность LLM генерировать точные ответы без искажений. Подход GraphRAG основывается на использовании графа знаний для структурирования входных данных (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Е.Бартов (ООО «Прогресс книга»)Язык: Русский, английскийИздательство: Питер, ManningФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA49E93FCA0CE9CBF4B753F15EEB0E9075F561F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869195   (1068096) от 04.05.2026
+
+Roger C. Wade & The Houserockers - Shake it loose! (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  On My Mind (2:02)
+02.  Walked Away With My Soul (2:27)
+03.  She's Got That Groove (2:57)
+04.  She Knows Me (3:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E6169A19D6638557FE981074292CB0A0371A66
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869183   (1068095) от 04.05.2026
+
+Виктор Кирея - Диско 2026: Современная инструментальная музыка в стиле 80-х, 90-х (2026) [FLAC|Lossless|WEB-DL|tracks] <Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сквозь туманность Ориона (3:31)
+02. Мелодия заката (3:42)
+03. Соната №8 (Патетическая) (2:40)
+04. Зов далёких миров (3:54)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0C722A05A0CD479BF568E8415F8CDDD70C63BC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869161   (1068094) от 04.05.2026
+
+Александр Свет | Глубокое погружение: Claude Code (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубокое практическое погружение в Claude Code — это интенсив, который научит вас превращать AI‑агента в полноценного помощника для разработки, автоматизации, дизайна и креативных задач. За 4 занятия вы освоите настройку Claude Code под свои процессы, подключите MCP‑инструменты, организуете работу с контекстом, создадите собственных субагентов и развернёте (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 10:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270101D200B8A036CB703CFDE7452203A59AEE39
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869198   (1068093) от 04.05.2026
+
+Отряд «Дельта» / The Delta Force (1986) BDRip [H.265/1080p] [10-bit] [Remastered]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068093.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета фильма The Delta Force — дерзкий захват пассажирского самолёта террористами. Судьба заложников висит на волоске: преступники выдвигают жёсткие требования и готовы на самые крайние меры. На выручку отправляется отряд «Дельта» — элитное подразделение спецназа США, которому поручают самые опасные и сложные миссии. Под командованием опытных офицеров бойцы (   Читать дальше...   )Производство: США, Израиль / Cannon Group, Golan-Globus Productions Ltd.Жанр: боевик, триллер, драма, приключения, военныйРежиссер: Менахем ГоланАктеры: Чак Норрис, Ли Марвин, Мартин Болсам, Джои Бишоп, Роберт Форстер, Лэйни Казан, Джордж Кеннеди, Ханна Шигулла, Сьюзен Страсберг, Бо СвенсонПеревод: профессиональный многоголосый (CP Digital, неизвестный), авторский (Андрей Дольский, Василий Горчаков, Леонид Володарский, Владимир Сонькин), любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 02:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627DA9D64F4351B9D0ACD296F7808FDC78A4B0FD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869199   (1068092) от 04.05.2026
+
+BE HA VE - Third Route (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Don't Care (2:24)
+02.  The Act (2:31)
+03.  Writing Blues In Progress (4:54)
+04.  Blues No More (5:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AC2862F70ABBBE22AF4C208A71EA3B9F9C44FA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869200   (1068091) от 04.05.2026
+
+Blackwater Baptized - Sound of Your Soul (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Duval County Line Boogie (3:17)
+02.  Got My Eyes on You (3:17)
+03.  Pictures of a Younger You (4:32)
+04.  Georgia Sunset (2:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACF671995F4DD4027FA178353A554B6911E671C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869201   (1068090) от 04.05.2026
+
+Blues Against The Machine - VOL. II (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blues Against The Machine (3:22)
+02.  Easy Fix (2:37)
+03.  Bright Light (3:33)
+04.  Respect (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5D7B0A9B5AE9853198A9C85DF47456AB5A9A29
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869204   (1068089) от 04.05.2026
+
+Carrie Marshall - Shades of Blue (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Feel the Earth Move (3:43)
+02.  Walkin' after Midnight (2:56)
+03.  I'm Just a Poor Wayfaring Stranger (4:53)
+04.  Carrie Marshall, Andrew Finn Magill - Southern Shade of Blue (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF439072A640B4A0E42B6932551C9478D4CAB0C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869205   (1068088) от 04.05.2026
+
+Catfish John Tisdell - Blues in Paradise (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blues In Paradise (Rock Version) (3:48)
+02.  The Blues Is My Best Friend (Remix) (5:27)
+03.  Drain the Swamp (3:52)
+04.  Downhill Slide (5:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CC7DCDC278AA9F7ED8783B75429204D1B0A9B6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869206   (1068087) от 04.05.2026
+
+Аркадий и Борис Стругацкие | Моби Дик (2026) [MP3, ReadMic]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Командир звена субмарин Сергей Иванович Кондратьев, в отличие от многих своих коллег, любил оставаться на базе зимой. Работы почти не было и можно было подолгу смотреть на серый океан, предаваясь воспоминаниям, мыслям, мечтам. А у Кондратьева была мечта. Он мечтал поймать самого большого в мире белого кашалота - Моби Дика. Он знал, что такое существо есть на планете (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6E00ECD6C7DDF1CD307255E76AE6B920B84195
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869208   (1068086) от 04.05.2026
+
+Матрица: Революция / The Matrix Revolutions (2003) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока армия машин пытается уничтожить Зион, его жители из последних сил держат оборону.Производство: США, Австралия / NPV Entertainment, Silver Pictures, Warner Bros. Pictures Co.Жанр: фантастика, боевикРежиссер: Лана Вачовски, Лилли ВачовскиАктеры: Киану Ривз, Хьюго Уивинг, Кэрри-Энн Мосс, Лоренс Фишбёрн, Хэролд Перрино, Джина Торрес, Джада Пинкетт Смит, Моника Беллуччи, Гарри Дж. ЛенниксПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C35FA392DDE45923C1A045EAFA5BB1E1A5D664
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869211   (1068085) от 04.05.2026
+
+VA - Dreamwave Dance (2026) [MP3|320 Kbps] <Pop, Dance, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068085.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kanii - I Think There's Something Wrong With Me (03:10)
+ 002. Hiding From Amy - Counterfeit Lips (03:48)
+ 003. Fuggy Sevant - Bite Down Babylon (02:15)
+ 004. Tiara Eve - Building Dreamz (03:14)(   Читать дальше...   )Жанр: Pop, Dance, SynthpopПродолжительность: 11:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE72ADBEAA5FD91D90386F5F9A16B75A93EE4EC9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869212   (1068084) от 04.05.2026
+
+Calibre - Tricklemore Sea (2026) Signature Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Drum'n'Bass, Shoegaze>
+
+>>Electronic
+>>Downtempo, Ambient (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Blend  (6:35)
+02. Free One (3:56)
+03. Tricklemore Sea (3:18)
+04. Deflower  (5:30)(   Читать дальше...   )Жанр: Ambient, Blues, Drum'n'Bass, ShoegazeПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DAAA455E3A6E2FAF15A8C1B990EABD9E5400EC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869214   (1068083) от 04.05.2026
+
+VA - Spring Dancefloor (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068083.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sophie And The Giants - Pink Champagne (02:58)
+ 002. Reevva - Turn Away !! (04:31)
+ 003. James Brian - Rather (04:02)
+ 004. Paul B.Ny - Only Sometimes (02:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7CFF38B6F9C1AC6FA041FA91C8AA6A5A97CA66
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869215   (1068082) от 04.05.2026
+
+Призрак в доспехах / Ghost in the Shell (2017) WEB-DLRip [AV1/1080p] [handmade Remastered AI]
+
+>>Остальное
+>>handmade * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1068082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кибертехнологии подчинили себе все сферы жизни, а самые опасные преступники переместились в виртуальное пространство. Киборг-гибрид, стоящий во главе элитного подразделения полиции, идет по следу могущественного хакера.Производство: США, Индия, Гонконг, Китай, Канада / Arad Productions, DreamWorks SKG, Grosvenor Park Productions, Paramount PicturesЖанр: фантастика, боевик, триллер, драма, криминал, детективРежиссер: Руперт СандерсАктеры: Скарлетт Йоханссон, Пилу Асбек, Такеши Китано, Жюльет Бинош, Майкл Питт, Чинь Хань, Дануся Самал, Ласарус Ратуэре, Ютака Идзумихара, Таванда МаниймоПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: русские (forced hardsub, full)Продолжительность: 01:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC381E9818F33ACD893BB1098E470B19075E94E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,0 +1,721 @@
+###  Публикация: 1362201   (1032799) от 08.02.2021
+
+КВН-2020. Высшая лига (2021.02.07) SATRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13686E967AD50AFC32DBDB824E21ED54558F5FF6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430650   (1032798) от 08.02.2021
+
+Cyberpunk 2077 (2020) [Ru/Multi] (1.12) Repack xatab
+
+>>3
+>>54
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk 2077 – приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C25DF35ABE110468FD562E2816383B7CF401077
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619813   (1032797) от 17.03.2023
+
+Ирина Мясникова | Девушки после пятидесяти (2018) [MP3, Юлия Степанова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раньше женщина в возрасте старше пятидесяти считалась пожилой. Сейчас большинство таких дамочек выглядят гораздо моложе своих лет, они далеко не бабушки, а скорее девушки. Они хотят любить и быть любимыми, ведут активный образ жизни, красиво одеваются и пытаются обмануть природу. Разумеется, это требует определённых усилий, а тут ещё эта страшная штука…
+
+Тсс! Об (   Читать дальше...   )Жанр: современные любовные романыПродолжительность: 07:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D776111138D0BAF33A3B2372D487986F8FAE2210
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619724   (1032796) от 17.03.2023
+
+PhotoLine 23.53 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032796.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoLine - простая в обращении программа, представляющая собой редактор растровой и векторной графики.
+Данный редактор позволяет редактировать как готовые фотоизображения, так и рисовать различные картинки при помощи специальных эффектов, инструментов и фильтров. В программе присутствует полная поддержка цветовой модели CMYK, работа с файлами форматов PLD, PDF, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F71DC1C8691B8C11EA721711925094C5865685
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619725   (1032795) от 17.03.2023
+
+VA - Old Music Alert 70s (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Travolta - Summer Nights (From “Grease”)
+02. Bee Gees - How Deep Is Your Love
+03. Supertramp - The Logical Song (Remastered 2010)
+04. Iggy Pop - The Passenger(   Читать дальше...   )Жанр: PopПродолжительность: 05:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11CBDBFE3A5AED4AD85E38610C5AC73604F2F1F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619711   (1032794) от 17.03.2023
+
+HWiNFO 7.41 Build 5015 Beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032794.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC1A6362D3701713817F7FA1101C5A94F8B0CAA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619760   (1032793) от 17.03.2023
+
+The Gayle Harrod Band - Temptation (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Memphis Man (3:07)
+02. Come On People (3:54)
+03. Baby We're Through (4:00)
+04. Temptation (4:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CCD59DD5FEE44692A1EFC2B0B6500C73E5F043
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619763   (1032792) от 17.03.2023
+
+Walk That Walk - Big World of Trouble (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roof Got a Hole (4:56)
+02. Boogie Chillen (4:37)
+03. Big World of Trouble (4:38)
+04. Get up Get Out (3:46)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39172AF712CF7BEDCAE496DA1A63C0B965FF4D6E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619693   (1032791) от 17.03.2023
+
+VA - 100 Greatest Party Songs (2022) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032791.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta - I'm Good (Blue)
+002. Ed Sheeran - Bad Habits
+003. Lizzo - About Damn Time (Purple Disco Machine Remix)
+004. Rod Stewart - Da Ya Think I'm Sexy(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 05:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD12B2DE67A8AEFC0FDE51CB6C98CE8928CE588
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619605   (1032790) от 17.03.2023
+
+MassTube Plus 16.5.3.652 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/011/save_picture_1032790.jpg" />
+</div>
+
+
+###  Подробнее
+
+MassTube Plus — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478494DCFD239C13718C0FDB3CDE110A2D1FE732
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619707   (1032789) от 17.03.2023
+
+Topaz Photo AI 1.2.7 (x64) Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C9F421CDAE5E01FD25C8652DD1D467872D0E01
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619651   (1032788) от 17.03.2023
+
+Slimjet 38.0.5.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/011/save_picture_1032788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA8F8A29912946139CE59FDFD7384E4B59E744E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619737   (1032787) от 17.03.2023
+
+XYplorer 24.20.0200 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032787.jpg" />
+</div>
+
+
+###  Подробнее
+
+XYplorer – удобный мультивкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D773432A08A2285C9FD6EC02AC120B4A04F404
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619640   (1032786) от 17.03.2023
+
+Инфинити - Inti 2 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/015/save_picture_1032786.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не плачь девчонка
+2. До свидания, дорогой
+3. Обманщик
+4. Приятного аппетита(   Читать дальше...   )Жанр: PopПродолжительность: 00:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FADEF14DCB27ACC944EA67EF4DE581311A0A792
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619733   (1032785) от 17.03.2023
+
+Leonardo Giuliani - Rogue (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Limits (4:38)
+02. Down Under the Blue Line (4:31)
+03. Ease My Blue (feat. Robben Ford) (3:25)
+04. A Thousand Miles Away from Home (3:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF4CCED4829E76EE77217006A466D97F7B6A563
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619704   (1032784) от 17.03.2023
+
+WinPaletter v1.0.7.4 Standalone [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует несколько инструментов, позволяющих настроить цвет в Windows 10-11 . Перед вами, относительно новое, портативное приложение WinPaletter, которое заботится не только о цветах, но и о входе в систему и экране блокировки. В главном окне есть настройки для светлого/темного стиля, а также цвета панели задач, стартового меню и программ. После внесения изменений (   Читать дальше...   )Язык интерфейса: Русский и английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877B6EDF00EA7B74EF78C173C4A88134E77D1C10
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619719   (1032783) от 17.03.2023
+
+Guy Tortora - Anywhere But Here (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Tide, Deep Water (4:26)
+02. Withered on the Vine (5:09)
+03. The Stranger (5:14)
+04. Pearl (5:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE8F03E05DE0B4A41EBC753ABBDE586F4D2B3A1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446517   (1032782) от 09.02.2021
+
+Jimmy Mundy - 1937 - 1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Surrender, Dear [2:56]
+02. Ain't Misbehavin' [3:04]
+03. Sunday Special [2:53]
+04. Little Old Lady from Baltimore [2:51](   Читать дальше...   )Жанр: SwingПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C2FB8C3CC3A318D94BE0D37D59AA3093149768
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446512   (1032781) от 09.02.2021
+
+Gene Ammons - 1949 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Mr. Freddy [2:45]
+02. When Your Hair Has Turned to Silver [3:05]
+03. Ev'rything Depends on You [3:03]
+04. Hot Springs [2:58](   Читать дальше...   )Жанр: BopПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBD2E6CBFBF93B42F7F9380061F2B13E3C141E7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446519   (1032780) от 09.02.2021
+
+Eddie Condon - 1944 - 1946 (1998) Classics [FLAC|Lossless|image + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uncle Sam's Blues [4:22]
+02. Tin Roof Blues [2:10]
+03. Ballin' the Jack [2:42]
+04. When Your Lover Has Gone [3:27](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0058867764AFE2504EA61E3E8FD50AD886AD0E0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619688   (1032779) от 17.03.2023
+
+PureSync 7.1.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032779.jpg" />
+</div>
+
+
+###  Подробнее
+
+PureSync — программа для синхронизации данных и их резервного копирования, а также перемещение файлов, например с цифровых фотокамер. Имеет множество дополнительных возможностей и удобных функций для работы. Интуитивно понятное управление делает использование данного продукта ещё более комфортным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E43857640B11D97148DB4A313173EFA8BD827F5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619818   (1032778) от 17.03.2023
+
+Голоса мертвых / Bettany Hughes' Voices of the Dead (2021) WEB-DL [H.264/1080p] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский историк Беттани Хьюз проводит судебно-медицинскую экспертизу некоторых самых не поддающихся разгадке тайн древнего мира, сталкивая зрителей лицом к лицу с выдающимися людьми прошлого, истории которых разворачиваются в ходе ее работы.Производство: Великобритания, SandStone Global Production LTDЖанр: документальный, история, исследованияРежиссер: Пол БрэдшоуПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 3x ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA5D3638520D90AF74D20582C4DEE28FE9CAAD8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619726   (1032777) от 17.03.2023
+
+La Ratte - Astray (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gotta See About a Girl (3:01)
+02. Love (3:23)
+03. Trouble (5:50)
+04. Walking Target (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDF7FECE91B5DEC83D513C63390CA8858DED5C0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619722   (1032776) от 17.03.2023
+
+Katy Raucher and The Spectrums - Katy Raucher and The Spectrums (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love You Right (3:47)
+02. Why Did You Leave Me Here? (5:24)
+03. Why Don't You Love Me? (3:14)
+04. Me Too (5:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0684CB5C7142C44BFCD3A0A4199364DE10179319
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619738   (1032775) от 17.03.2023
+
+Moonalice - Light Side of the Moonalice - An Acoustic Adventure (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love, Peace and Happiness  (4:45)
+02. Arms Reach Out  (3:17)
+03. More & More  (3:24)
+04. Nick of Time  (5:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A737D150C0485CEEA027B1042E75079437960200
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619779   (1032774) от 17.03.2023
+
+VA - 80s Top Tracks (2022) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1032774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Everywhere (2018 Remaster)
+02. Starship - We Built This City
+03. Duran Duran - Notorious (Single Version)
+04. Spandau Ballet - True(   Читать дальше...   )Жанр: PopПродолжительность: 03:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BA0DEF898FC242A362BCE6628260A50DF8BA16
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

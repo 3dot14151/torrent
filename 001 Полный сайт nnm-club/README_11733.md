@@ -1,0 +1,734 @@
+###  Публикация: 1205072   (784109) от 08.02.2018
+
+Joe Morello - Joe Morello (1961, 1962) 1989, Bluebird [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shortnin' Bread [02:10]
+02. When Johnny Comes Marching Home [06:08]
+03. Brother Jack [02:58]
+04. Every Time We Say Goodbye [03:06](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6093C90E42A7796CA2B8B5F5D4F2EB071749491
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205195   (784108) от 08.02.2018
+
+VA - Progressive Psychodelic Trance Vol.4 (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daniel Lesden  -  The Last Of Our Kind (Original Mix)  8:58
+02.  Gonzi & Boot Sequence  -  Day After Day (Ecolift Remix)  6:47
+03.  Pondora & Eran Gordon  -  The Story (Original Mix)  5:41
+04.  Zyce  -  Messier 74 (Original Mix)  7:00(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271F13E764FBE769BDC5260D6FAC0872BF7AFDE2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204948   (784107) от 08.02.2018
+
+Maxwell August Croy & Sean McCann - I (2014) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Ambient, Contemporary, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parting Light (Suite) (08:40)
+ 02. Alexandria (09:01)
+ 03. Momiji (03:38)
+ 04. The Inlet Arc (06:26)(   Читать дальше...   )Жанр: Acoustic, Ambient, Contemporary, ExperimentalПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683BE3BCAE325D23B5C62E2D1A35DC6000471375
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205169   (784106) от 08.02.2018
+
+The Saturdays - On Your Radar (2011) Fascination, Polydor [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784106.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Saturdays - британско-ирландская девичья группа, сформировавшаяся в Лондоне в 2007 году, и состоящая из Фрэнки Сэндфорд, Молли Кинг, Ванессы Уайт, Рошель Вайзмен и Уны Хили. Четыре сингла с дебютного альбома девушек, «Chasing Lights» и оба сингла с их второго альбома - «Wordshaker» вошли в первую десятку британского чарта. Участницы реалити-шоу «The Saturdays: (   Читать дальше...   )01. All Fired Up 3:13
+02. Notorious 3:12
+03. Faster 3:55
+04. My Heart Takes Over 4:07(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CFE8871AB86A51BBC18799E16A2E7FA4497577
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204629   (784105) от 08.02.2018
+
+В. Г. Кнорин | Очередные задачи агитпропработы (1926) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агитационно-пропагандистская работа в настоящее время находится на некотором переломе.
+
+В первые годы революции, в годы военного коммунизма, все внимание нашей партии было сосредоточено на массовой политической агитации, на борьбе против эсеров, на борьбе против буржуазной идеологии, на борьбе против влияния мелкобуржуазных и буржуазных партий на широкие массы рабочих. (   Читать дальше...   )Жанр: История, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA83279C61EF27B3ABB13D357E93C6D5FFD8569D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205185   (784104) от 08.02.2018
+
+The Saturdays Feat. Flo Rida - Higher (2010) Polydor, EP [MP3|320 Kbps] <Electronic, Pop, Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784104.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Saturdays - британско-ирландская девичья группа, сформировавшаяся в Лондоне в 2007 году, и состоящая из Фрэнки Сэндфорд, Молли Кинг, Ванессы Уайт, Рошель Вайзмен и Уны Хили. Четыре сингла с дебютного альбома девушек, «Chasing Lights» и оба сингла с их второго альбома - «Wordshaker» вошли в первую десятку британского чарта. Участницы реалити-шоу «The Saturdays: (   Читать дальше...   )01. Higher 3:19
+02. Higher (7th Heaven Remix Radio Edit) 3:49
+03. Higher (StoneBridge Remix Radio Edit) 3:24
+04. Higher (Fascination Remix Radio Edit) 3:37Жанр: Electronic, Pop, Dance PopПродолжительность: 00:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1022FE0F3EF30F5DA817B78DE63A7795E04FBF8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205179   (784103) от 08.02.2018
+
+The Saturdays - Living For The Weekend (2013) Polydor [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784103.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Saturdays - британско-ирландская девичья группа, сформировавшаяся в Лондоне в 2007 году, и состоящая из Фрэнки Сэндфорд, Молли Кинг, Ванессы Уайт, Рошель Вайзмен и Уны Хили. Четыре сингла с дебютного альбома девушек, «Chasing Lights» и оба сингла с их второго альбома - «Wordshaker» вошли в первую десятку британского чарта. Участницы реалити-шоу «The Saturdays: (   Читать дальше...   )01. What About Us (Feat. Sean Paul) 3:41
+02. Disco Love 3:14
+03. Gentleman 3:40
+04. Leave A Light On 3:37(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB43EA0C346137BDBEB60D29D266C16F1EA4F9B0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204940   (784102) от 08.02.2018
+
+Журнал | The World of Interiors №3 (март 2018) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующееся большой популярностью издание из Великобритании о дизайне интерьера и оформлении прилегающей территории "The World of Interiors" в своих публикациях знакомит читателей с новейшими трендами интерьерной моды, сведениями об оригинальных новинках для дома, в т.ч. бытовых приборов, оборудования для кухни и ванной комнаты, оригинальных аксессуаров, (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227D4E178ABC0131B61343492044409BF6518D81
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204856   (784101) от 08.02.2018
+
+Анна Велозо | Небеса нашей нежности (2015) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рио-де-Жанейро, 1920-е. Юная Ана Каролина сказочно богата, красива и любима… но вот счастлива ли? Ее жених Энрике хорош собой и обожает ее, но красавица не в силах забыть очаровательного незнакомца, с которым повстречалась однажды в парижском кафе… И когда судьба вновь сталкивает ее с загадочным Антонио, перед девушкой встает непростой выбор: остаться верной слову, (   Читать дальше...   )Жанр: Любовные романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:431E974A9A0B46161A6234B6054F76A84E7EA5DD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204995   (784100) от 08.02.2018
+
+Carbon Copy Cloner 5.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carbon Copy Cloner –  утилита для резервного копирования данных.
+Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
+
+Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2417308C598E5F9310836C1675E7A8041B5D6C4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205009   (784099) от 08.02.2018
+
+В. Т. Кротков | Очерки по денежному обращению и кредиту иностранных государств (1947) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга В. Т. Кроткова является учебным пособием при изучении курса "Денежное обращение и кредитные системы иностранных государств", входящего в состав учебных планов высших экономических и финансовых учебных заведений.
+"Очерки по денежному обращению и кредиту иностранных государств" В. Т. Кроткова написаны применительно к программам указанного (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E7FC52D84A2CF5CBE10BEDA06D7CF7F61BE1C5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205077   (784098) от 08.02.2018
+
+The George Shearing Trio with Ray Brown and Marvin "Smitty" Smith - Breakin' Out (1987) Concord [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Squeeze Me (But Don't Tease Me) [05:58]
+02. Day Dream [04:25]
+03. Hallucinations [03:55]
+04. In the Wee Small Hours of the Morning [06:00](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03E96FBCF38F725EB4A4EAB3BC71BD3FF43589D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205047   (784097) от 08.02.2018
+
+VA - Uplifting Only: Orchestral Trance Year Mix 2017 (Mixed by Ory Uplift) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ram & Arctic Moon & Stine Grove - A Billion Stars Above (Intro Mix)
+02. Afternova & Andrea Becker - For You (Trance Mix)
+03. Illitheas & Manuel Rocca - Enchanted (Original Mix)
+04. Ana Criado - Still There's You (A.R.D.I. Radio Edit)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 04:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C1FCB57683DB90C656EFC166649789DACE2EC3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205052   (784096) от 08.02.2018
+
+VA - The Silence Was Warm Vol. 1-5 (2007-2014) Symbolic Interaction [FLAC|Lossless|tracks+.cue] <Ambient, Abstract, IDM, Modern Classical, Leftfield>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_784096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mullr - Nine Particles (06:01)
+ 02. Summer Night Air - 4.3 (07:50)
+ 03. Ard Bit - Hum Score (03:59)
+ 04. Cyan341 - Postdigital Love (06:02)(   Читать дальше...   )Тип издания: CDЖанр: Ambient/IDM/ExperimentalПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFE6227D36502CF67C5B6FB0CB7584E35B960BB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204989   (784095) от 08.02.2018
+
+У. Черчилль, А. Иден | Крымская конференция (1945) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Речи в Палате Общин 27 и 28 февраля 1945 г.
+
+Ялтинская (Крымская) конференция союзных держав — вторая по счёту многосторонняя встреча лидеров трех стран антигитлеровской коалиции — СССР, США и Великобритании — во время Второй мировой войны, посвящённая установлению послевоенного мирового порядка. Конференция проходила в Ливадийском (Белом) дворце в Ялте, в Крыму (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C9E061D1B8370694795C3220417869045D84AC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204965   (784094) от 08.02.2018
+
+Macgo Mac Blu-ray Player Pro 3.2.19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macgo Mac Blu-ray Player - это один из лучших (если не сказать - лучший) проигрывателей для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в ОС Windows. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2018Разработчик: MacgoПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3DFFF21AA87E4D3E9F26476716B43EB6FEEA61
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205060   (784093) от 08.02.2018
+
+VA - Aly & Fila - Future Sound of Egypt 534 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FSOE Radio — FSOE 534 Intro
+02. Budakid — On An Empty Page (Original Mix)
+03. Way Out West — Lullaby Horizon (Ben Böhmer Remix)
+04. Just Her — With Faith (Einmusik Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFB4BEDFC73089B5BD3EFBE86B8FBACCB6CE28E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205044   (784092) от 08.02.2018
+
+Журнал | Профиль №3 (январь 2018) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16321773F59BA0FDA40778396B4327F0985D52C9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204942   (784091) от 08.02.2018
+
+VA - Help (1995) [FLAC|Lossless|tracks + .cue] <Downtempo, Brit Pop, Trip Hop, Indie Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oasis And Friends - Fade Away
+02. The Boo Radleys - Oh Brother
+03. The Stone Roses - Love Spreads
+04. Radiohead - Lucky(   Читать дальше...   )Жанр: Downtempo, Brit Pop, Trip Hop, Indie RockПродолжительность: 01:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAF907D84C518F77EE22D81AEF90CBE72B656AC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205042   (784090) от 08.02.2018
+
+A Better Finder Attributes 6.08 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784090.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла. С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе. Помимо этого A Better Finder Attributes может синхронизировать дату модификации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2018Разработчик: PublicspaceПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D646FA7FF7453166B65ED0BDB620E189D6E6868
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205051   (784089) от 08.02.2018
+
+VA - German Top 100 Single Charts 09.02.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_784089.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Eminem - River (feat. Ed Sheeran)
+004. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEA2BC81BD7F311EEF8F3871D3F958CFFABBB8B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205220   (784088) от 08.02.2018
+
+ATAVA (АТАВА) - Не быть проще (2017) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жить сейчас
+02. Мосты
+03. Не быть проще
+04. Без потерь(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA5DAA2ABEFF6380CCCFBE353ED17C1A1BB02ECE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205045   (784087) от 08.02.2018
+
+Журнал | Профиль №4 (февраль 2018) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA5E9932CA21C421AF5EE4DE53D174A2369E79A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204799   (784086) от 08.02.2018
+
+Catherine Clarnette - Wildcard (2017) [MP3|320 Kbps] <Alternative Pop, Dark Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mistake
+02. A Love so Good
+03. Once I Know You
+04. Impossibly Blue(   Читать дальше...   )Жанр: Alternative Pop, Dark Pop, SynthpopПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960DC7E4105D76DA3F1A89F9BB57425D88803448
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205193   (784085) от 08.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 1-й тур. Канада — Норвегия (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784085.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 03:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 1-й тур.(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C128C9788CCF85169E73C8E5F4CF83014DE21483
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205041   (784084) от 08.02.2018
+
+Dynamite - Big Bang (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_784084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March On (To The Beat Of Your Drum) (4:19)
+02. Bring It On (3:23)
+03. Turn Up The Heat (2:58)
+04. Walk The Talk (2:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080C216BC9E266D536661E6F1BB1C7784FE3F44D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

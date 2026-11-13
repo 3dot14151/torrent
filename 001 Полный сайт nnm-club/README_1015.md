@@ -1,0 +1,704 @@
+###  Публикация: 1861683   (1062777) от 27.03.2026
+
+Сплин best (1994-2025) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062777.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:37] . 01-Звери
+[5:36] . 02-Сказка (remake 1994)
+[5:05] . 03-Что ты будешь делать?
+[3:24] . 04-Нечего делать внутри(   Читать дальше...   )Жанр: rockПродолжительность: 04:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4F4A9656BCA7F1F60742F84E3ED1A6C01E0642
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861671   (1062776) от 27.03.2026
+
+Rishal Hurbans | Grokking AI Algorithms. How AI solves complex problems. 2nd Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artificial intelligence algorithms are the backbone of search and optimization, deep learning, reinforcement learning, and, of course, generative AI. This book introduces the most important AI algorithms using relatable illustrations, interesting examples, and thought-provoking exercises. Written in simple language and with lots of visual references and hands-on (   Читать дальше...   )Жанр: Genetic Algorithms, Natural Language Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977608126AE42C34E1C2F55D2DF803C29A51E991
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861667   (1062775) от 27.03.2026
+
+Edward Tetz | Cisco Networking All-in-One For Dummies. 2nd Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Your detailed guide to all things Cisco―a leading player in network technology.
+
+With 800 pages of in-depth content, Cisco Networking All-in-One For Dummies is your one-stop guide to the ins and outs of networks powered by Cisco, a leading maker of networkin solutions including routers, switches, and security. You'll get thorough explanations of how to design, (   Читать дальше...   )Жанр: LANs, Internet & Networking Computer Hardware, Computer NetworkingЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5339D589909348E0CC5B74E9DBE370EB93FEBE96
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861664   (1062774) от 27.03.2026
+
+John L. Hennessy, David A. Patterson, Christos Kozyrakis | Computer Architecture. A Quantitative Approach (The Morgan Kaufmann Series in Computer Architecture and Design). 7th Edition (2025) [PDF]  ...
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Computer Architecture: A Quantitative Approach, has been considered essential reading by instructors, students and practitioners of computer design for nearly 30 years. The seventh edition of this classic textbook from John Hennessy and David Patterson, winners of the 2017 ACM A.M. Turing Award recognizing contributions of lasting and major technical importance to (   Читать дальше...   )Жанр: Computer Hardware Design & Architecture, Microprocessor Design, Computer ScienceЯзык: АнглийскийИздательство: Morgan KaufmannФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FF9EB9F93348FEF3C62222EA3A1A1D6614F60F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861659   (1062773) от 27.03.2026
+
+Stack Overflow | HTML5 для профессионалов. Руководство по разработке в примерах от сообщества Stack Overflow (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами компактное, но вместе с тем весьма насыщен ное руководство по HTML - основополагающему языку разметки, лежащему в основе каждой веб-страницы. Здесь собрана только самая важная и актуальная информация для быстрого и эффективного освоения HTML, от простейших структур до расширенных возможностей современной веб-разметки.
+Вы узнаете, как создавать и структурировать (   Читать дальше...   )Жанр: Компьютерная литература, Программирование, WEB-мастерингИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED825B53375EC3A5A2F24DBAE09F4559A8B29B06
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861615   (1062772) от 27.03.2026
+
+СЗКЭО (изд.) | Библия изложенная для семейного чтения (2026) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Библия на протяжении всей человеческой истории остается главным источником познания Бога и Его творения — видимого и невидимого миров. Тысячи поколений изучают это Божественное Откровение, чтобы найти в нем ответы на главные вопросы бытия, чтобы отличать добро от зла и познать истину существования. «Библия, изложенная для семейного чтения» — это адаптированный пересказ (   Читать дальше...   )Жанр: Религиозная литература. Книги Священного Писания. БиблияИздательство: Издательство Сретенского монастыря и СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6522FD9780316AB81860D1F22F8B55BA96CB3E95
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861623   (1062771) от 27.03.2026
+
+У.У. Сойер | Прелюдия к математике (1972) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для тех кто любит математику и другие точные науки, для выбирающих свой путь в науку. Особенно рекомендую тем, кто считает математику скучным и не интересным предметом.
+Рассказ о некоторых любопытных областях математики с предварительным анализом математического склада ума и целей математики. Книга "Прелюдия к математике", написанная автором Сойер (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381E64327CEEAC9AB12E34990F90029B47BCFB0A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861655   (1062770) от 27.03.2026
+
+Erik Österlund | The Z Garbage Collector. In JDK 25 (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062770.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book explains how the Z Garbage Collector was designed, why it was designed this way, the common pitfalls to avoid when using ZGC in JDK 25 and how to get useful information from the garbage collector.
+Java is one of the most widely used programming languages in the world. It is a memory-safe language that completely relies on a good garbage collection (GC) (   Читать дальше...   )Жанр: Software Engineering & Systems Development, Programming & Programming LanguagesЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516A56F00F035988B357025CD6AFC1911E8728C1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861651   (1062769) от 27.03.2026
+
+Michael Scott, Jonathan Aldrich | Programming Language Pragmatics. 5th Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Programming Language Pragmatics is the most comprehensive programming language textbook available today, with nearly 1000 pages of content in the book, plus hundreds more pages of reference materials and ancillaries online. Michael Scott takes theperspective that language design and language implementation are tightly interconnected, and that neither can be fully (   Читать дальше...   )Жанр: Compiler Design, Object-Oriented Design, Software DevelopmentЯзык: АнглийскийИздательство: Elsevier Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6621355D220C8786B499349C817E3E546E49D5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861647   (1062768) от 27.03.2026
+
+Yung-Hsiang Lu, George K. Thiruvathukal | Intermediate C Programming. 2nd Edition (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revised for a new second edition, Intermediate C Programming provides a stepping-stone for intermediate-level students to go from writing short programs to writing real programs well. It shows students how to identify and eliminate bugs, write clean code, share code with others, and use standard Linux-based tools, such as ddd and valgrind.
+
+This second edition provides (   Читать дальше...   )Жанр: C Programming, C Programming Language, Programming AlgorithmsЯзык: АнглийскийИздательство: CRC PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539554072C9EB1F09B8AF1788016BD49B69F53AF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861879   (1062767) от 27.03.2026
+
+Оскорбление / L'insulte (2017) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062767.jpg" />
+</div>
+
+
+###  Подробнее
+
+О споре двух мужчин — ливанца Тони и палестинского беженца Ясера. Один из них, добрый христианин Тони, случайно проливает воду на голову Ясера. После их взаимной перепалки Тони решает подать в суд. Наступает долгий судебный процесс, в ходе которого сталкиваются не только оппоненты и их родственники, но и всё общество...Производство: Ливан, Бельгия, Кипр, Франция, США / CanalЖанр: драма, криминал,  триллерРежиссер: Зиад ДуэриАктеры: Адель Карам, Камел Эль Баша, Камилла Саламех, Диаманд Бу Аббуд, Рита Хайек, Талаль Эль-Жорди, Кристин Чоуири, Джулия Кассар, Рифаат Торби, Карлос ЧаинПеревод: профессиональный многоголосый (HDRezka Studio)Язык озвучки: русский, арабскийСубтитры: английскиеПродолжительность: 01:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84421D2183A508A90F7FE6D84251EAC7B822E54
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861880   (1062766) от 27.03.2026
+
+ImageGlass 9.4.1.15 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062766.jpg" />
+</div>
+
+
+###  Подробнее
+
+ImageGlass - это легкий и универсальный просмотрщик изображений, который вполне может заменить стандартный Photo Viewer в операционной системе.
+Приложение поддерживает большой спектр форматов, включая JPG, JPE, JFIF, JPEG, PNG, GIF, ICO, BMP, DIB, TIF, TIFF, EXIF, WMF, EMF, TGA, PSD, HDR, EXR, SGV, WEBP. ImageGlass предоставляет все обычные возможности просмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D80ABFDF6DBE6FCCA539ED8C9627FF8DB58664
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861883   (1062765) от 28.03.2026
+
+Last Epoch (2019) [Ru/Multi] (1.4.0.1/dlc) Repack Let'sРlay [Ultimate Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062765.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Last Epoch вас ждут путешествия во времени, захватывающие подземелья, увлекательная настройка персонажей и бесконечные возможности повторного прохождения. Эта игра в жанре «ролевой экшен» понравится как опытным игрокам, так и новичкам. Путешествуйте в прошлое мира Этерры, сталкиваясь с темными империями, гневными богами и девственными землями, найдите способ (   Читать дальше...   )Тип издания: RepackРазработчик: Eleventh Hour GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE18365FFA08EB918982F126437BB90C8BA3564
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861882   (1062764) от 27.03.2026
+
+Эдриенн Браганца | «По-моему, неплохо». Конструктивные код-ревью (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте код-ревью продуктивным, вызывающим положительные эмоции процессом, каким он и должен быть. Неважно, проверяют ваш код или же вы проверяете чью-то работу, получите продуманные инструкции, которые помогут избежать напряженных дебатов, неплодотворных придирок и узких мест — всего того, чего мы привычно ждем от код-ревью.
+Научитесь здравому и внимательному подходу (   Читать дальше...   )Жанр: Проектирования программного обеспечения, Тестирование программного обеспечения, Разработка программного обеспеченияИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB836D4EB9C80105CC26C67A0BB30C286F298A0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861881   (1062763) от 27.03.2026
+
+Adrienne Braganza | "Looks Good To Me". Constructive code reviews (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliver code reviews that consistently build up your team and improve your applications.
+
+“Looks Good to Me” offers a unique approach to delivering meaningful code reviews that goes beyond superficial checklists and tense critical conversations. Instead, you’ll learn how to improve both your applications and your team dynamics.Жанр: Software Design Tools, Software Testing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3546C0375A5000D9A1606C4FF580AE985A625B1F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861698   (1062762) от 27.03.2026
+
+Кристина Агатова | Городская магия. Побочка любовь 3, Галя, у нас отмена (2026) [MP3, Елена Кузьмина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкая удача – найти хорошую квартиру за адекватную цену. Галя думала, что ей невероятно повезло, пока не узнала, что жить предстоит не одной, а с самым настоящим призраком девушки. Но призрак-то не платит аренду! Наглую соседку надо выгнать любыми доступными способами… Или не так уж это и необходимо? Галя, у нас отмена?Жанр: ФэнтезиИздательство: ЛитРесПродолжительность: 04:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDAC791AA64CCC937FA2111D9746C7F9018FC002
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861886   (1062761) от 27.03.2026
+
+Черное солнце (2025) WEBRip [H.264/720p] (сезон 2, серии 1-12 из 12)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062761.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новых сериях Жук возвращается на работу в Следственный комитет, где его первым делом становится загадочный труп мужчины, выловленный рыбаками в Финском заливе. В это же время, неожиданно для всех, Чагин признаётся в совершении другого убийства. Узнав об этом, Жук просит отдать ему дело напарника: он не верит, что тот способен на преступление. Жуку предстоит выяснить, (   Читать дальше...   )Производство: Россия | «Кинокомпания Драйв»Жанр: Детектив, триллер, драмаРежиссер: Евгений МилыхАктеры: Юрий Чурсин, Максим Стоянов, Юрий Беляев, Евгений Харитонов, Марина Петренко, Александра Большакова, Филипп Азаров, Михаил Сафронов, Олег Доброван, Андрей Попов и др.Субтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3AC8BC299DBC897C5C97DE7E1D8AB4635BD683
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861800   (1062760) от 07.04.2026
+
+Mask of Soul (2026) [Ru/Multi] (Build 22531021) Repack Let'sРlay
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mask of Soul - это двухмерная метроидвания-экшен-приключенческая игра, в которой Чон-о Часа, хранитель врат Подземного мира, преследует сбежавших духов в хаосе разрушающейся границы между Подземным миром и миром живых и восстанавливает баланс в мире. Исследуйте извращенные регионы и пробудившихся демонов под Красной Луной, испытайте на себе точный парирующий бой, (   Читать дальше...   )Тип издания: RepackРазработчик: XION ENTERTAINMENTЖанр: Экшены, Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DDEF43C61D334322FA64A3D48D4A47FFB4223A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861694   (1062759) от 27.03.2026
+
+NG: Драконы наяву / Dragons Uncovered (2024) HDTV [H.264/1080p] [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дракон Комодо захватывал наше воображение более века, но мы только сейчас раскрываем некоторые из его самых невероятных секретов.Производство: США | Yellow Border Production Services, National GeographicЖанр: документальный, природаРежиссер: Джефф ЛакПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBEDE87967A4F01BE5776F9CF221E63D072C1D08
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861894   (1062758) от 27.03.2026
+
+Chez Kane - Reckless (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Reckless (4:41)
+02.  Personal Rock N' Roll (2:59)
+03.  Night of Passion (4:48)
+04.  Strip Me Down (4:46)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5D1F3E7FB8C677B4F646181BA013DFF4AB879D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861893   (1062757) от 27.03.2026
+
+Пресеты - Gradefruit - Blockbuster II [XMP, DNG, CUBE]
+
+>>Материалы для мультимедиа и дизайна
+>>Пресеты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улучшите визуальное восприятие с помощью насыщенных, ярких цветов и динамичных тонов, которые отличают современные блокбастеры.Формат: XMP, DNG, CUBE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DD6959AE91C84F5D205A02B07F2C23772B9CB5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861896   (1062756) от 27.03.2026
+
+The Mood Mosaic - French Vices (Hot Mounts & Deep Focus) (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alex Nesta - Fantasme D'Emmanuelle (3:19)
+02.  Le Crocodile Porte Clé (2:16)
+03.  Pétrol Pop (3:08)
+04.  Munich Party (2:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CE4F63289D4678BA7E7F9D012B5D7FD5FA3987
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861897   (1062755) от 27.03.2026
+
+Би-2 - Путешествие вокруг Солнца (2026) Space Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. Би-2 - Без любви не греет солнце
+2. Nadya Tolokonnikova - skit
+3. Би-2 - Свободная любовь
+4. Александр Баунов - skit(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A60B508FDA317C2F79F4CB529781DC2446C898
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861895   (1062754) от 27.03.2026
+
+Граница / Старое Дудино (1935) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители местечка Старое Дудино, расположенного в четырех километрах к западу от советской границы, находятся в полной зависимости от богача Новика, интересы которого защищают местная полиция и духовенство. Новик усиленно раздувает национальную рознь между еврейской беднотой и польскими рабочими...
+
+Фильм из коллекции Госфильмофонда России и опубликован в интернете (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: драма, историяРежиссер: Михаил ДубсонАктеры: Николай Черкасов, Елена Грановская, Вениамин Зускин, Эмиль Галь, Борис Пославский, Василий Топорков, Вера Бакун, Ефим Альтус, Петр Кириллов, Леонид КмитСубтитры: отсутствуютПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A672E346122BAE16638E5AF31E53742F88DE32C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861901   (1062753) от 27.03.2026
+
+Одинокий волк МакКуэйд / Lone Wolf McQuade (1983) BDRip [H.265/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крутого рейнджера Маккуэйда бандиты ненавидят за беспощадность, а шеф полиции за его стиль работы волка-одиночки. И в конце концов навязывает ему молодого напарника-мексиканца. Им противостоит банда контрабандистов оружием во главе неким Роули - чемпионом по карате. В довершение всего, Маккуэйд влюбляется в женщину Роули Лолу, а бандиты похищают дочь рейнджера.Производство: США / 1818 Productions, Cinema '84, Lone Wolf McQuade Associates, Topkick ProductionsЖанр: боевик, триллер, драма, мелодрама, криминал, вестернРежиссер: Стив КарверАктеры: Чак Норрис, Дэвид Кэрредин, Барбара Каррера, Леон Айзек Кеннеди, Роберт Бельтран, Л. К. Джонс, Дэна Киммелл, Р.Г. Армстронг, Хорхе Сервера мл., Шэрон ФарреллПеревод: профессиональный многоголосый (Петербург 5-й канал, НТВ, ОРТ), профессиональный двухголосый (НТВ+, РТР), авторский (Юрий Сербин, Алексей Михалёв, Михаил Яроцкий, Андрей Гаврилов, Василий Горчаков, Леонид Володарский, Юрий Товбин), дублированный неофициальный (НЛО-TV)Язык озвучки: русский, украинский, английскийСубтитры: английские (SDH)Продолжительность: 01:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94707B04EBE5CB4F769AB1808DF69FEC84408156
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861902   (1062752) от 27.03.2026
+
+Gabe Stillman - What Happens Next? (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1062752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  What Happens Next? (3:25)
+02.  Yesterday’s Donuts (3:54)
+03.  The Man I’m Supposed To Be (7:16)
+04.  Someone In My Mirror (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1E94EC16EEAD3235592F6DC256BB77B9A079FC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

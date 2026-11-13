@@ -1,0 +1,733 @@
+###  Публикация: 1532755   (709099) от 22.02.2022
+
+Martin Hiska - Road to Oase (2019) [AAC|~314 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1001 Desires (6:24)
+02. Stateless (5:31)
+03. Ali (4:10)
+04. Beyond Dreams (5:04)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD32F01A9FEE78EC44A22BE21ED978569CE1C91D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532777   (709098) от 22.02.2022
+
+VA - Notes from the Depth, Vol. 15 (2020) [AAC|~331 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kostakis - The Taking (Original Mix) (9:27)
+02. Moscow Noir, Night Vision - Come Undone (Original Mix) (8:00)
+03. Doyeq - My Hidden Winter (Original Mix) (8:19)
+04. Fat Cosmoe - Andromeda (David Dorad & Sebo Remix) (6:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53BA548D08EC194BF274DAAA5A4BF5FEEE38D6F7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532972   (709097) от 22.02.2022
+
+Martin Hiska - Deep Blue Sunset Sessions (2020) [AAC|~343 Kbps] <Lounge, Chill Out, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunset Session (5:10)
+02. Lady In Blue (4:41)
+03. Seasides (5:58)
+04. Luna (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB225C09C36C770076238EACD33604667122255
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532773   (709096) от 22.02.2022
+
+VA - Chill Out Pearls, Vol. 3 (Lazy Chill Out Tunes) (2019) [AAC|~301 Kbps] <Lounge, Leftfield, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonic Elements - Until The Morning (Original Mix) (3:33)
+02. Wet Elements - Young Rebel (Sunrise Mix) (3:33)
+03. Cosmique Beats Ensemble - Grooman (Original Mix) (3:55)
+04. Pianistic Soul - Enchantment (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Leftfield, DowntempoПродолжительность: 02:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E74484B63CBF54A2EE8E13527FF1C2B8905CF664
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532974   (709095) от 22.02.2022
+
+Martin Hiska - Globalearic (2021) [AAC|~341 Kbps] <Lounge, Chill Out, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Istanbul Lounge (5:23)
+02. Japanese Garden of Bliss (4:09)
+03. Sati (4:14)
+04. Orange (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 03:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2415977EDE9D9FDEF608151E1DF9BF2B56A2E1CA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286841   (709094) от 04.03.2019
+
+Bobby van Deusen - The Naked Piano: Trio (2003) Melcome Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [7:18]
+02. All the Things You Are [5:30]
+03. Summer Wind [3:45]
+04. Someone to Watch over Me [7:43](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A96A7516D913EEF4A8200D5958FF300A6D38C86
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286839   (709093) от 04.03.2019
+
+Dinah Washington - Queen Of The Juke Box ''Live'' 1949-1955 (2000) Baldwin Street Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want to Cry [3:27]
+02. It's Too Soon to Know [3:01]
+03. I'll Never Be Free [1:57]
+04. I Cross My Fingers [2:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E433BAF946E41EE0CB337DEB4162452BEDB5486
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286875   (709092) от 04.03.2019
+
+Desolate Horizons - Every Dream Is a Lifetime (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Unity (04:33)
+02. Nothing but Stardust (06:15)
+03. Every Dream Is a Lifetime (05:53)
+04. Stellar Essence (05:36)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC785B720182627EE20763CA80B7146CEB443156
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286914   (709091) от 04.03.2019
+
+VA - German Top 50 Party Schlager Charts 04.03.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kerstin Ott - Regenbogenfarben
+02. Maite Kelly - Heute Nacht für immer
+03. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+04. Andrea Berg - Mosaik(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B6E6B788BF2E6E4A04FA9957F6254C21029A9B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286797   (709090) от 04.03.2019
+
+Чемпионат мира по лыжным видам спорта 2019. Инсбрук-Зеефельд (Австрия). Лыжное двоеборье. Командный спринт. Эстафета 2х7,5 км (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709090.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 февраля 2019 года, воскресенье. 15:30 МСК
+Чемпионат мира по лыжным видам спорта 2019. Инсбрук-Зеефельд (Австрия)
+Лыжное двоеборье. Командный спринт
+Лыжная Гонка. Эстафета 2х7,5 км(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0552308B09BD81D63051F4B8AF927A3DAB56E25
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286867   (709089) от 04.03.2019
+
+Angela Bofill - Teaser (1983) Reissue CD, Arista, 1999 [MP3|320 Kbps] <Electronic, Disco, R & B>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Delivery (4:55)
+02. Call Of The Wild (5:01)
+03. Nothin' But A Teaser (4:45)
+04. I'm On Your Side (5:05)(   Читать дальше...   )Жанр: Electronic, Disco, R & BПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7794425EC377516DA547A7D7F80975B8D8B0A8B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286906   (709088) от 04.03.2019
+
+VA - German Top 100 Single Charts 11.03.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709088.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shirin David - Gib Ihm
+002. KC Rebell - DNA (feat. Summer Cem Capital Bra)
+003. Capital Bra - Capital Bra je m'appelle
+004. Azet Zuna - Fragen(   Читать дальше...   )Жанр: PopПродолжительность: 05:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85275DBA902421778C1C3C73ECDF66A2DB58D0A3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286759   (709087) от 04.03.2019
+
+ILUITEQ - Soundtracks For Winter Departures (2019) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Arrival (04:49)
+ 02. Burian (05:05)
+ 03. A Prayer For The Departed (05:30)
+ 04. In Every Place (05:14)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D2439A07D454E1C184232952790984E6D692A0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286701   (709086) от 04.03.2019
+
+Е. А. Тучков | Сектантство и его идеология (1955) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слово «секта» происходит от латинского «secta» — учение, школа. Сектой принято называть религиозное течение или группу, отколовшуюся от господствующей церкви. В СССР, где нет никакой господствующей религии, где каждый гражданин может исповедовать любую религию или не исповедовать никакой, название «секты», присвоенное некоторым религиозным организациям, потеряло (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B201C9ADF6087A62C12E9FA6320EECA00E160A6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286878   (709085) от 04.03.2019
+
+BestReminder v2019.03.04.11 Stable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
+Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
+А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
+Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D59D2B90FD7855CC6F01BD9B7AAB8D2146FC0343
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286892   (709084) от 04.03.2019
+
+Moebius - Lux Fiat (2019) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amber Star (08:46)
+02. Inner Hollow (07:56)
+03. Black Rain (07:15)
+04. The Mind Traveller (08:13)(   Читать дальше...   )Жанр: Psybient, Downtempo, Psychill, AmbientПродолжительность: 01:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927C4C32D9FF4B7D3A062F8591B37178719ED0BC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286402   (709083) от 04.03.2019
+
+Jim Brickman - Soothe, Vol. 4: Subzero - Sounds That Spark the Senses (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starbeam (4:30)
+ 02. Cool Vibes (3:54)
+ 03. Poolside Chill (3:49)
+ 04. Drive North (3:33)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27825A2BF16276605F24D51FF5D2AD0CC908646
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286882   (709082) от 04.03.2019
+
+Gigi D'Agostino & Friends - The UltraTraxx Remixe 1-3 (2009) [MP3|192 Kbps] <Italo-Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gigi D'Agostino - La Passion (UltraTraxx Remix) (11:53)
+02. Gigi D'Agostino - Bolero (UltraTraxx Remix) (9:38)
+03. Bon Tino - Der Reiter (UltraTraxx Remix) (8:01)
+04. Elettrogang - Once Upon A Time (UltraTraxx Remix) (8:17)(   Читать дальше...   )Жанр: Italo-DanceПродолжительность: 03:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8246DCD214CFA065325D7978FE2CB1F99A9BA03
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286695   (709081) от 04.03.2019
+
+Журнал | InfoCity №2 (136) (февраль 2019) [PDF] [Ru,Az]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709081.jpg" />
+</div>
+
+
+###  Подробнее
+
+InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01842C809B74C7BE215DABEF76BEB9102C4BCB3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286894   (709080) от 04.03.2019
+
+DiskDigger 1.20.10.2731 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709080.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904EA1DBAD7ADB94FD4DE66A0EBFE0085D8D6605
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286819   (709079) от 04.03.2019
+
+100 самых популярных пород собак / The Nation's Top 100 Dogs (2017) HDTVRip [H.264/1080p-LQ] (серии 1-5 из 5)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это рассказ о ста самых популярных породах в Соединенном королевстве. Чтобы составить этот список, мы провели опрос в Британии, получив данные 10 000 владельцев собак. В этом масштабнейшем шоу вы услышите сердечные, необычные и трогательные истории о собаках из уст их владельцев. Специалисты расскажут о происхождении, ключевых характеристиках и особенностях характера (   Читать дальше...   )Производство: Великобритания, Ricochet, Warner Bros. InternationalЖанр: Документальный, кинология, рассказы о собакахРежиссер: Джосс КубиттПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA6ECC0D8CDC804F73CF7951460FC3204549760
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892793   (709078) от 01.05.2015
+
+Ночные красавицы / Les belles de nuit / Night Beauties (1952) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Молодой композитор Клод влачит жалкое существование в одном из бедных Кварталов захолустного городка. Он подрабатывает учителем пения в школе, - над ним смеются ученики и подшучивают друзья детства - обладатели более земных профессий, а ко всему прочему сосед, владелец автомастерской, мешает сочинять ему музыку, заглушая звуки пианино (которое вот-вот заберут за неуплату аренды) ревом моторов.
+Утонченный Клод убегает от удручающей реальности в свои сны, которые переносят его в разные эпохи. Там он - известный (   Читать дальше...   )Производство: Франция, Италия | Franco London Films, Rizzoli FilmЖанр: Мелодрама, Комедия, Музыкальный, ФэнтезиРежиссер: Рене КлерАктеры: Жерар Филип, Мартина Кароль, Джина Лоллобриджида, Магали Вендеил, Мэрилин Бьюфёрд, Раймон Бюссьер, Раймон Корди, Бернар Ла Жарриж, Альбер Мишель, ПалоПеревод: Многоголосый закадровыйЯзык субтитров: ФранцузскийПродолжительность: 01:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D273A38D33A49B1DC974373E515E5244A7A117
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894286   (709077) от 01.05.2015
+
+K-Lite Codec Pack Update 11.1.2 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_709077.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - в различных вариантах содержит все самые популярные кодеки для проигрывания и кодирования видео (кроме версии Basic). QuickTime Alternative и Real Alternative являются дополнительными пакетами для проигрывания соответственных форматов и содержат основные компоненты от официальных проигрывателей.
+Update это обновление применимо для всех пакетов серии, а именно для K-Lite Codec Pack 11.1.0 в различных вариантах (Lite, Basic, Standard, Full, Mega Codec Pack).Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FCBADC8105DF9F6C70884F7E9AB807C937AB8D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894010   (709076) от 01.05.2015
+
+Theodor Bastard - Vetvi (2015) [MP3|320 кб/с]<Darkwave, Experimental, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Umbraya Erze
+02. Vetvi
+03. Salameika
+04. Kukushka
+05. Aion(   Читать дальше...   )Жанр: Darkwave, Experimental, FolkПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADECED14AAAA8B66D7232710B7A0B2913EBDC4C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894019   (709075) от 01.05.2015
+
+Trine 3: The Artifacts of Power v. 0.04 (2882) (2015) [Multi] [OS X WineSkin]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Trine 3: The Artifacts of Power – это волшебное, полное опасностей путешествие трех героев: волшебника Амадея, рыцаря Понтия и воровки Зои. Грандиозное приключение со сложными и увлекательными уровнями станет лучшей проверкой боевых навыков и смекалки в решении (   Читать дальше...   )Тип издания: OS X WineSkinРелиз состоялся: 2015Разработчик: FrozenbyteПоддерживаемая ОС: 10.9.5+Жанр: Arcade | PlatformЯзык озвучки: АнглийскийЯзык интерфейса: Английский, немецкий, французский и др. Русский есть, толку нет.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CA2CCC3B45420B3425EDBD6D8174D8670AE44B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894158   (709074) от 01.05.2015
+
+Компания Blue Origin произвела первый успешный запуск своей ракеты и космического корабля New Shepard
+
+>>След.
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/011/save_picture_709074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частная аэрокосмическая компания Blue Origin, основателем и руководителем которой является Джефф Бэзос (Jeff Bezos), который является одновременно и основателем известной интернет-компании Amazon.com, осуществила первый в своей истории успешный запуск ракеты, на которой была установлена капсула космического корабля New Shepard. Естественно, во время этого испытательного запуска на борту космического корабля не было ни одного человека, тем не менее, успешный запуск делает планы Джеффа Бэзоса относительно развития (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
