@@ -1,0 +1,699 @@
+###  Публикация: 1859576   (1061304) от 16.03.2026
+
+Массимо Бертаччини | Алгоритмы криптографии [2 книги] (2024, 2026) [PDF] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Изучите математическую логику шифрования и дешифрования сообщений, постепенно переходя от базовых принципов ко все более сложным концепциям. Освоив эллиптические кривые, протоколы с нулевым разглашением, гомоморфное шифрование и основы квантовых вычислений, вы заложите прочный фундамент для дальнейшего развития в криптографии.
+Познакомьтесь с самыми инновационными (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: С. ЧерниковЯзык: Русский, английскийИздательство: Packt Publishing, Sprint BookФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952621AEF955CE082FD31E2B342CA0B5DEEECC34
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859434   (1061184) от 15.03.2026
+
+Frances Buontempo | Introducing C++: The Easy Way to Start Learning Modern C++ (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+This book cuts through the noise, focusing on the essential elements of C++ with hands-on projects that quickly build your skills and confidence. Author and C++ expert Frances Buontempo gets you up to speed quickly with the latest features and best practices of the language, preparing you for more advanced exploration.
+- Write clean and efficient C++ code
+- Understand (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E76DFAA0E26E1BB93EB65ACF8B9E84D00C3199
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859058   (1060909) от 14.03.2026
+
+Carl Rippon | Learn React with TypeScript. A beginner’s guide to building real-world, production-ready web apps with React 19 and TypeScript. 3rd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Take your first step in building modern-day component-based scalable web apps using the latest features and capabilities of React 19, TypeScript, and Next.js with this easy-to-follow guide.
+
+Free with your book: PDF Copy, AI Assistant, and Next-Gen Reader.
+(   Читать дальше...   )Жанр: JavaScript Programming, Mobile App Development & Programming, Programming LanguagesЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44049B367D994A815A24D6F21A589C7F21A178FF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859057   (1060908) от 14.03.2026
+
+Hernando Abella | 120 Advanced JavaScript Interview Questions (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060908.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book offers a structured approach to mastering JаvaScript interview questions, organized into five tiers, ranging from fundamental concepts to advanced challenges. By working through these questions, you’ll gain the confidence and knowledge needed to excel in technical interviews. Uncover the intricacies of this versatile language and harness its power to create (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947594A90454C99FE467AC9F1C1E4DE4DE71D9CA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859052   (1060904) от 14.03.2026
+
+Н.В. Русин | Освоение STM32 самостоятельно #2. 3-е издание (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта вторая книга из серии «Освоение STM32 самостоятельно», а именно продолжение первой части с дополненной периферией, которой не было в первой части с глубоким рассмотрением как она работает.
+Она адресована прежде всего тем, кто начинает знакомиться с микроконтроллерами (далее сокращенно МК) серии STM32, заинтересованными в том, чтобы научиться программировать эти (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211257211EE0151B091C91510A42F89CD837F1D5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859051   (1060903) от 14.03.2026
+
+Н.В. Русин | Освоение STM32 самостоятельно #1. 3-е издание (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта первая книга из серии «Освоение STM32 самостоятельно». Она адресована прежде всего тем, кто начинает знакомиться с микроконтроллерами (далее сокращенно МК) серии STM32, заинтересованными в том, чтобы научиться программировать эти МК как можно быстрее и эффективнее. Но, безусловно, книга будет полезна и тем кто уже имеет некоторый опыт в работе с МК и хочет быть (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64932BA7E4C1332C3A651284464754673107653C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859061   (1060899) от 14.03.2026
+
+Usman Abdur Rehman | Web Forms with React. Build Robust and Scalable Forms with React Hook Form. First Edition (2025) [PDF, EPUB, RTF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Set up web forms from scratch using the most popular React form library in use today, React Hook Form. This book is a succinct and practical guide to building robust, scalable and reusable forms. From social media and YouTube video posts, to product listings on e-commerce sites, most information on the web is entered through forms. In this book, you’ll learn how (   Читать дальше...   )Жанр: Database Storage & Design, Artificial Intelligence, Software DevelopmentЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA737C8D1FEC315291B7E0719BFE6D1F3497DB56
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858939   (1060761) от 13.03.2026
+
+Maaike van Putten, Imke van Putten | Python Illustrated. Not another boring Python book, learn programming the fun way (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn Python coding concepts the fun way through humour, storytelling, and beginner-friendly examples that make your first step into the world of Python programming enjoyable.
+
+Key Features:
+Follow an adorable, illustrated teaching cat with sharp coding instincts as your guide.(   Читать дальше...   )Жанр: Object-Oriented Design, Introductory & Beginning Programming, Python ProgrammingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD82BF4C118D2256F8DA6CF0CEB0B98C90D9655
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858936   (1060760) от 13.03.2026
+
+Valentine G. Nachi, Donald A. Tevault | Linux Shell Scripting for Hackers. Automate and scale your hacking process with bash scripting (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Take your ethical hacking skills to the next level by mastering bash script and building your own hacking tools.
+
+Key Features:
+Automate reconnaissance, exploitation, and post-exploitation workflows using bash scripting for ethical hacking.(   Читать дальше...   )Жанр: Privacy & Online Safety, Computer Network Security, Internet & TelecommunicationsЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FD9240823559EA22366F1C7FE6B890DD409E3F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858935   (1060759) от 13.03.2026
+
+Rich Yonts | 100 C++ Mistakes and How to Avoid Them (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn how to handle errors, inefficiencies, and outdated paradigms by exploring the most common mistakes you’ll find in production C++ code.
+100 C++ Mistakes and How To Avoid Them reveals the problems you’ll inevitably encounter as you write new C++ code and diagnose legacy applications, along with practical techniques you need to resolve them.
+Inside 100 C++ Mistakes (   Читать дальше...   )Жанр: C++ Programming Language, Software Design & Engineering, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143FDE80BF1B136DE0FC3247B4B7F505B429D95C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858932   (1060758) от 13.03.2026
+
+Tobias Scheible | Hacking Hardware. The Practical Guide to Hands-On Hardware Pentesting, Red Team Tools, and Prevention for USB, Wi-Fi, Bluetooth, RFID. New Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Defend your system against hardware-based security breaches by thinking like a hacker! With this guide, master the tools you need to develop preventative IT security tests and measures. Learn how to perform penetration tests step by step, and then evaluate and correct vulnerabilities. Get up to speed on awareness training methods and hacking tools for protecting (   Читать дальше...   )Жанр: Computer Hacking, Computer Hardware & DIY, Computer ScienceЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF50A6D6E8583AEE69F9059722613EA40958EADB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858930   (1060757) от 13.03.2026
+
+И.М. Гостев | Операционные системы. Учебник и практикум для вузов. 2-е издание (2024) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060757.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время компьютерные науки стремительно развиваются. Новые версии операционных систем появляются каждые полтора-два года, поэтому было принято решение о включении в данный курс такого материала, который не будет устаревать. Содержание курса представляет собой некоторые наиболее общие принципы построения операционных систем, которые были разработаны более (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЮрайтФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DBBA21A9049FD3517A954CEFE3F94B006643B8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858926   (1060755) от 13.03.2026
+
+Dan Gookin | PCs & Laptops For Dummies (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060755.jpg" />
+</div>
+
+
+###  Подробнее
+
+A one-stop guide to making the most of your desktop PC or laptop computer
+
+PCs and Laptops For Dummies is the essential user's guide to the features your PC or laptop has to offer―and how to use them successfully. With this book as your coach, you can jump over technological hurdles with ease, navigating the hardware and software of your personal computer. (   Читать дальше...   )Жанр: PC Hardware, Microsoft OS Guides, Computer Operating SystemsЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411E5BCF5B5C167673F41F984FDB11231E3DB8A3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858923   (1060754) от 13.03.2026
+
+А.И. Турабова | Геймдизайн на практике. Как начать зарабатывать (2024) [PDF, FB2]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы готовы окунуться в мир геймдизайна и стать профессионалом своего дела, тогда эта книга – ваш идеальный старт! «Геймдизайн на практике» – это пошаговое руководство, которое поможет вам уверенно пойти навстречу мечте – не только играть, но и построить успешную карьеру в мире игровой индустрии. В книге рассказывается об основах и всём-что-надо-знать для успешного (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDF, FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8079BF044122D853FD60A0D40D961F05F0DD146E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858922   (1060752) от 13.03.2026
+
+Лия Бьюли | Универсальный UX-специалист. Исследуй, визуализируй, пропагандируй (2025) [PDF, FB2]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тема UX привлекает многих. Однако одного энтузиазма недостаточно, особенно в роли сольного специалиста. Успешные UX-команды состоят из универсалов, которые не только любят пользователей, но и обеспечивают тестирование дизайна, получение ответов на вопросы, творческое исследование проблем, постоянный контроль и улучшение продукта. В этой книге вы найдете философию, (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.В. ИсуповИздательство: Бомбора (Эксмо)Формат: PDF, FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF64EF01D402A219C425DC524B6054F51616E9F6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858913   (1060748) от 13.03.2026
+
+Н. Андрианова | Создаем интерактивные истории. Творческий процесс на примере визуальных новелл в играх (2024) [PDF, FB2, EPUB]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1060748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игровая индустрия активно работает с понятием интерактивности. Главные его особенности, которых нет у кино или литературы, – это соучастие игрока в создании сюжета и возможность выбора, а также опыт, получаемый от уникального прохождения.
+Перед вами книга, которая расскажет, что такое интерактивная литература, и познакомит вас с полным и подробным процессом ее разработки (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Бомбора (Эксмо)Формат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F627D2E9023E09BA44399EFF681952BD78E69C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858714   (1060557) от 12.03.2026
+
+С. Чернышев, Ю. Петров, С. Ильин и др. | Основы Flutter (2026) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для всех, кто хочет погрузиться в эффективную кроссплатформенную разработку с Flutter. Вы не только изучите синтаксис языка Dart и основы фреймворка, но и сразу примените знания на практике, разрабатывая проект, который развивается на протяжении всей книги. После каждой новой темы вас ждут задания по доработке его кодовой базы, что позволит уверенно (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BA9860B34117EAA198BBEB11E5F6BBAAF6A2FD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858106   (1060211) от 08.03.2026
+
+R. Gill, S. Hooda, D. Srivastava et al. (Eds.) | Handbook of Intelligent Automation Systems Using Computer Vision and Artificial Intelligence (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Handbook of Intelligent Automation Systems Using Computer Vision and Artificial Intelligence explores the significant role, current trends, challenges, and potential solutions to existing challenges in the field of intelligent automation systems, making it an invaluable guide for researchers, industry professionals, and students looking to apply these innovative (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Wiley-ScrivenerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAE3F73EC6FFD6AC31304276EB56C2802E35B6D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857898   (1060044) от 07.03.2026
+
+Николай Сорокин | Промт-ниндзя. Искусство выуживания гениальных идей у ИИ (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена искусству задавать правильные вопросы и направлять ответы ИИ в нужное русло. В ней подробно рассматриваются методы создания эффективных промтов, структуры взаимодействия с ИИ, примеры применения в разных сферах. Читатель научится использовать ИИ как партнера по креативной и аналитической работе, ускоряя процессы и повышая их качество. Эта книга (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Самиздат в RideroФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F494520F59CDC62D41DA20CDA50B509D85251D1B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857521   (1059669) от 06.03.2026
+
+А.В. Постолит | Компьютерное зрение и искусственный интеллект в приложениях на Python и Django (интерактивная цифровая книга) (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1059669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивная цифровая книга предназначена для практикующих программ-истов, имеющих опыт работы с Python и Django. В книге раскрываются возможности использования методов компьютерного зрения и нейронных сетей для обработки медиа контента, для распознавания объектов в изображениях и видео потоке. Книга знакомит с методами синтеза и распознавания речи, перевода текстовой (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45A27D99532CA1BDA4E37C6802FFDC97A96F895
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857515   (1059668) от 06.03.2026
+
+Дмитрий Зверев | Создание видео через нейросети. 3.0 версия (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1059668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш реалистичный видео-аватар, ролики из текста или аудио с выбранным ведущим, видео из ваших фото или нейросетевых картинок, генерация видео по текстовому описанию, в том числе с речью на русском языке, перевод на другие языки в несколько кликов, автоматические субтитры и нарезка на reels, выжимки видео, транскрибация...
+Создавайте интересный и привлекательный контент (   Читать дальше...   )Жанр: Компьютерная литература, НейросетиИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FDC63051175DB9E5ED6FF2DA0937064EC2788C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857511   (1059667) от 06.03.2026
+
+Бренден Мэтьюз | Паттерны проектирования Rust. Пишем идиоматический код как профи (2026) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1059667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как только вы освоитесь с синтаксисом Rust, с его уникальным и мощным компилятором и начнете использовать его в реальных проектах, перед вами откроется совершенно новое измерение. Как правильно применять стандартные паттерны проектирования в приложениях на Rust? Как и когда следует использовать IntoIterator? Почему Rust-разработчики любят тип PhantomData? Ответы (   Читать дальше...   )Жанр: Программирование, Разработка приложений, Разработка программного обеспечения, Язык RustИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C5101C474EAA64E077441649202EC069A7D385
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857507   (1059666) от 06.03.2026
+
+А.В. Постолит | Самоучитель Python с интерактивными примерами (2025) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1059666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивный самоучитель по основам языка программирования Python предназначен для начинающих программистов, которые решили ознакомиться с основами Python с нуля. Эта книга написана простым языком, сопровождается большим количеством примеров и заданий для самоконтроля. Кроме того, для луч шего закрепления теории к пособию прилагаются еще и тесты для контроля знаний. (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: СамиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4752C32BFB4FA0669960A0CDF3074DDAADF12FD9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857505   (1059665) от 06.03.2026
+
+Ganeshkumar Patil | Django REST APIs Demystified. Simplifying API Development with Django. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1059665.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book is designed to help you master API development using the Django REST Framework (DRF). Written for seasoned developers, this book offers practical, hands-on guidance to becoming an expert in using DRF, providing in-depth coverage of the framework's features and best practices and their application in API development.
+
+The book will introduce you to and enable (   Читать дальше...   )Жанр: Computer Performance Optimization, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE923B409F6094D7AEE066496DFD29A59CDDA56
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857501   (1059664) от 06.03.2026
+
+Jason W. Eckert, triOS College | CompTIA Linux+ and LPIC-1 Guide to Linux Certification. 7th Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1059664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eckert's CompTIA LINUX+ and LPIC-1 GUIDE TO LINUX CERTIFICATION, 7th EDITION, equips learners for success on CompTIA's Linux®+ (XKO-006) and the Linux Professional Institute LPIC-1 (101-500 and 102-500) certification exams, as well as in their IT careers. Content includes the latest Linux® distributions, as well as virtualization, containerization, cloud orchestration, (   Читать дальше...   )Жанр: Компьютерная литература, LinuxЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EDFEEFFD740A824334AF895B3897F7B7657735
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857497   (1059663) от 06.03.2026
+
+John Schwartzman | Assembly Language Reimagined. Programming the Intel x64 Microprocessor in Linux. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1059663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learning assembly language won’t make you a faster programmer. It won’t enable you to create portable, write-once, run-anywhere programs. So why learn it? The answer is that it will make you a better programmer.
+
+Author John Schwartzman takes a fresh look at low-level programming and explores how to write programs using the BIOS and glibc. This laboratory-based book (   Читать дальше...   )Жанр: Linux Programming, Computer Programming Languages, Software DevelopmentЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152BF5C55D97B415F5BE4E19C55D42623B644CA8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
