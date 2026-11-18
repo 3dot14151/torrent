@@ -1,0 +1,697 @@
+###  Публикация: 1726972   (108635) от 31.05.2024
+
+Pamela J. Sharpe | Barron's TOEFL iBT. Fourteenth edition (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_108635.jpg" />
+</div>
+
+
+###  Подробнее
+
+The most up-to-date test prep manual on the market, Barron's TOEFL iBT is available as a book only, but can also be purchased with several additional test preparation tools. The manual presents:
+A general overview of the TOEFL iBT
+Seven model TOEFL iBT tests with explanations or examples for all questions
+A review of required academic skills, including note taking, (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: Barron's Educational SeriesФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4CE4EDBC9A53D701FBDC365BA105A32D95818E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726962   (108632) от 31.05.2024
+
+Rod Ellis | Understanding Second Language Acquisition (2015) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_108632.jpg" />
+</div>
+
+
+###  Подробнее
+
+The book reflects recent trends in looking at cognitive and social aspects of second language acquisition, as well as examining the roles played by implicit and explicit instruction in language learning.
+Additional online resources are available at www.oup.com/elt/teacher/understandingsla
+Rod Ellis is the Distinguished Professor of Applied Language Studies in the (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28494274DC632D6D0D9CFE4B3CF32AB197E0EE74
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727194   (108598) от 01.06.2024
+
+Ed Swick | English Problem Solver (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_108598.jpg" />
+</div>
+
+
+###  Подробнее
+
+English Problem Solver doesn't pretend that learning English is easy. Instead of covering the entirety of the language, it hones in on those areas where you might have difficulty--areas such as definite vs. indefinite articles, little vs. few, using get, and restrictive and non-restrictive relative clauses.
+Inside...
+A variety of extensive exercises for practice. (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: McGraw-Hill EducationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3269CCD1501EE290515AEE6EE2A306C10D55D4AF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727532   (108511) от 02.06.2024
+
+Brian Tomlinson (editor) | Materials Development in Language Teaching. Second Edition (2011) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_108511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Materials Development in Language Teaching aims to help readers apply current theoretical principles and research findings to the practical realities of developing and exploiting classroom materials. The authors also suggest new ideas and directions in materials development, which readers can pursue for themselves. This book is accessible to readers with little previous (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34CDA85EA06E8ED262157C6E1716ACAB1235E43
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727630   (108453) от 03.06.2024
+
+Adrian Wallwork | Word Games, Riddles and Logic Tests (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_108453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tax Your Brain and Boost Your English
+This book contains exercises connected with some of the fun or more unusual aspects of the English languageand with games that typically a native English speaker would do. The games have been adapted into a manageable format, but the actual vocabulary contained has not been changed.
+The types of games include: lateral thinking (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C80478D7D798F2CB850E7FA06492F755F5B989
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727641   (108433) от 03.06.2024
+
+Larry Ferlazzo, Katie Hull-Sypniesk | The ESL / ELL Teacher's Survival Guide (2012) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_108433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ready-to-Use Strategies, Tools, and Activities for Teaching English Language Learners
+Provides research-based instructional techniques which have proven effective with English learners at all proficiency levels
+Offers thematic units complete with reproducible forms and worksheets, sample lesson plans, and sample student assignments
+The book?s ESL lessons connect (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Jossey-BassФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FF2ACD96DAF3806705AB0DD56054432CD05927
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728452   (108352) от 07.06.2024
+
+James Dean Brown, Christine Coombe (еditors) | The Cambridge Guide to Research in Language Teaching and Learning (2016) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_108352.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book provides an up-to-date and comprehensive overview of research methods in second-language teaching and learning, from experts in the field. The Cambridge Guide to Research in Language Teaching and Learning covers 36 core areas of second-language research, organised into four main sections Primary Considerations; Getting Ready; Doing the Research; Research (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University PressФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D808CCCB3B9D44057E97A02FBEB2A78076C06AFE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729704   (108067) от 12.06.2024
+
+Mike Thacker, Casimir Angelo | Essential French Grammar (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_108067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Essential French Grammar is a student-friendly French grammar designed to give learners a firm foundation on which to build a real understanding of both spoken and written French.
+Clear explanations of grammar are supported by contemporary examples, lively cartoon drawings and a variety of exercises.
+Key features of each chapter:
+each grammar point explained initially (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A973F47F99FB5E20C9DE3A8D886A0B0F4973E32
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729738   (108066) от 12.06.2024
+
+Yeşim Aksan, Mustafa Aksan | A Frequency Dictionary of Turkish (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_108066.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Frequency Dictionary of Turkish enables students of all levels to build on their study of Turkish in an efficient and engaging way.
+Based on a 50 million word corpus, A Frequency Dictionary of Turkish provides a list of core vocabulary for learners of Turkish as a second or foreign language. It gives the most updated, reliable frequency guidelines for common vocabulary (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B95ABC190F94F0BAED47B2AD55EA85FF6E8432
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731597   (107721) от 21.06.2024
+
+Mitsuko Maeda-nye, Shizuro Okada | 15-Minute Japanese. Learn in just 12 weeks (2019) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_107721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Twelve themed chapters are broken down into easy-to-follow 15-minute daily lessons, spanning a range of practical themes, including leisure, business, food and drink, travel, and shopping. Each lesson combines vocabulary and grammar essentials with attractive full-color images, making it quick, easy, and fun to learn new Japanese vocabulary. There is no writing or (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C988787514623B1C1B80DA029EC07E5924FAA0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732160   (107572) от 23.06.2024
+
+И.И. Привалов | Интегральные уравнения (1935) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_107572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга представляет собой систематический курс теории интегральных уравнений, в котором особое внимание уделено теории и подробно развиты применения к краевым задачам математической физики. Этот курс будет полезным руководством для физико-метематических факультетов университетов, а также полезным пособием для лиц смежных специальностей, желающих познакомиться (   Читать дальше...   )Жанр: МатематикаИздательство: Объединённое научно-техническое издательство НКТП СССРФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D172A7222026C2803BF2968A0FEA8F430D8EB575
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732140   (107568) от 23.06.2024
+
+К. Поссе, И. Привалов | Курс интегрального исчисления (1939) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_107568.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании мною произведена коренная переработка курса интегрального исчисления проф. К. Поссе. Эта книга содержит полный курс интегрального исчисления и включает в объеме, необходимом для втузов, разделы диференциальных уравнений и рядов Фурье. В изложение всего материала книги я внес существенные изменения, причем значительная часть текста написана мною (   Читать дальше...   )Жанр: МатематикаИздательство: ГостехиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E72557700981B153A42D8F0EDB9FCC2DC6A1E4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732106   (107567) от 23.06.2024
+
+К. Поссе | Курс дифференциального исчисления (1935) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_107567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник Поссе предназначается Комитетом по высшему техническому образованию в качестве стабильного для втузов с расширенной программой по математике. Он выходит в переработке профессора МГУ И.И.Привалова.
+Книга снабжена большим количеством упражнений.Жанр: МатематикаИздательство: Объединённое научно-техническое издательство НКТП СССРФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6EC597507A6A8C582BDC8A3BC45CD1F788B16F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732179   (107562) от 23.06.2024
+
+Anita Ganeri | Amazing Earth (2021) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_107562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Award-winning children's author Anita Ganeri takes curious kids who love learning to the most incredible locations in the world. This science book for kids includes breathtaking images and mind-blowing facts about our majestic home - Earth. Turn the pages to discover natural wonders, stunning vistas and other jaw-dropping places from around the world.
+The Most Incredible (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A423C3B507DDBA37BE34CF92D379A937877DA4F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734805   (107061) от 05.07.2024
+
+Д.М. Блейкли | Поверхностная диффузия (1965) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_107061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий обзор, написанный одни из исследователей в этой области Д.М. Блейкли, содержит наиболее доступный для наблюдения случай поверхностной диффузии в однокомпонентных системах, то есть поверхностной самодиффузии.
+Рассмотрены не только основные экспериментальны методы, но и состояние теории вопроса.Жанр: ФизикаИздательство: МеталлургияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7764BEC3E1C21192888ED7684E468C4C3BC1CA3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735008   (107034) от 06.07.2024
+
+П. Джурс, Т. Айзенауэр | Распознавание образов в химии (1977) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_107034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена применению кибернетических методов классификации объектов при помощи ЭВМ для анализа данных химического эксперимента. Эта монография - первая по автоматизации обработки данных научных исследований в области химического анализа как отечественной, так и в переводной литературе. Используются данные распространенных аналитических методов: масс-спектрометрии (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB91F389A0B7C1D52FCA2002EB2476CF252CDCB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735019   (107032) от 06.07.2024
+
+Э. Стьюпер, У. Брюггер, П. Джурс | Машинный анализ связи химической структуры и биологической активности (1982) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_107032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книгу, написанную авторами из США, отличает актуальность темы (связь между химической структурой и биологической активностью), а также перспективность излагаемого метода (распознование образов) и средств его реализации (ЭВМ). В ней изложены принципы распознавания образов. На примере психтропных и снотворных агентов, одорантов и раздражителей носовой полости убедительно (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B29710ABE55813C48480835E5D8119CB642365
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735752   (106870) от 09.07.2024
+
+В.И. Смирнов | Технология интегральных микросхем (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены вопросы технологии производства интегральных микросхем. Основное внимание уделено вопросам формирования структуры полупроводниковых микросхем. Рассмотрена технология получения тонких пленок в гибридных интегральных схемах.Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F7D4C827619053D558D027300CDE0E00A11720
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736690   (106652) от 13.07.2024
+
+О.С. Ушакова (редактор) | Развитие речи детей 5-7 лет (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_106652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена вопросам развития речи детей дошкольного возраста старшей и подготовительной к школе групп. Предлагаются методические рекомендации по организации образовательной деятельности. Рассмотрены возрастные особенности развития речи детей 5-7 лет. Вводная часть знакомит с теоретическими основами программы и методики.
+В пособии дается материал для занятий, (   Читать дальше...   )Жанр: учебное, методическое пособиеИздательство: Москва: СфераФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D9D99321E50D6EF1AEAF6C6E63691ED50BE671
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738007   (106477) от 20.07.2024
+
+Джон Г. Мэтьюз, Куртис Д. Финк | Численные методы. Использование MATLAB (2001) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106477.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге, ориентированной на пакет MATLAB, изложены основные методы численного анализа: численные решения нелинейных уравнений, систем линейных уравнений, дифференциальных уравнений и т. д. Все методы иллюстрируются примерами, в которых используютсяпрограммы из пакета MATLAB. Книга также содержит приложение, которое знакомит читателя с основными принципами (   Читать дальше...   )Жанр: МатематикаИздательство: ВильямсФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD458E0EA1119A94FCE632D0F21D2BAE2938BFD4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737984   (106444) от 20.07.2024
+
+С.И. Туманов | Поиски решения задачи (1969) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106444.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге подробно разобрано много задач и примеров по всему курсу математики старших классов средней школы. Показаны приемы и методы решения различных задач алгебры, геометрии и тригонометрии. Около 500 задач для самостоятельной работы, в конце к ним даны ответы, указания или полные решения. Из оглавления. 1. Алгебра. Уравнения в целых числах. Задачи на делимость. (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEB624C8D22F3F3667AABBC57CA7797F9623FCF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738233   (106363) от 21.07.2024
+
+P. Bettiol, R.B. Vinter | Principles of Dynamic Optimization (2024) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+This monograph explores key principles in the modern theory of dynamic optimization, incorporating important advances in the field to provide a comprehensive, mathematically rigorous reference. Emphasis is placed on nonsmooth analytic techniques, and an in-depth treatment of necessary conditions, minimizer regularity, and global optimality conditions related to the (   Читать дальше...   )Жанр: учебное пособиеИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DECE3376C9A067B1BDEAC1609952F022AA915BCD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739046   (106231) от 25.07.2024
+
+А.Ф. Филиппов | Сборник задач по дифференциальным уравнениям (1979) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит материалы для упражнений по курсу дифференциальных уравнений для университетов и технических вузов с повышенной математической подготовкой.Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660A3ED9ADC20959960F24FA5BF0B5C8FF560B2F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739360   (106130) от 27.07.2024
+
+Я.Ю. Заборовский | На тропах истории (2024) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106130.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны научные и публицистические статьи известного историка, посвящённые актуальным вопросам истории Украины, в частности Галиции. Автор пытается найти ответы на них, а также на такой болезненный вопрос современности: чему мы можем научиться у своего собственного, не такого уж далёкого прошлого, и рассчитывает на то, что любознательные читатели, если и (   Читать дальше...   )Жанр: ИсторияПеревод: Е.Р. СоваИздательство: Киев: 2024 (Івано-Франківськ: 2003)Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289DAB9114517A830B13EB4EEA385C0C710332C2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739303   (106118) от 27.07.2024
+
+Н.С. Ахметов | Общая и неорганическая химия (1988) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_106118.jpg" />
+</div>
+
+
+###  Подробнее
+
+На современном уровне рассмотрены основные понятия и законы химии: строение вещества, химическая связь (метод молекулярных орбиталей, метод валентных связей, зонная теория кристаллов), важнейшие положения химической термодинамики и химической кинетики, методы исследования структуры веществ. Химия элементов изложена на основе периодического закона Д.И. Менделеева (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1108081CA158256135421F0E71110992A62AF90
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739352   (106113) от 27.07.2024
+
+И.Э. Фишер | Сибирская история с самого открытия Сибири до завоевания сей земли российским оружием (1774) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_106113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сибирская история с самого открытия Сибири до завоевания сей земли российским оружием, сочиненная на немецком языке и в собрании академическом, читанная членом С-Петербургской академии и профессором древностей и истории, также членом исторического Геттингенского собрания И. Е. Фишером.(1697-1771).
+Иоган Эбергарт – уроженец Вюртемберга, где получил образование и стал (   Читать дальше...   )Жанр: историческое исследованиеПеревод: В.И. ЛебедевЯзык: Русский (дореформенный)Издательство: Санкт-Петербург: При Императорской Академии наукФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A261D1D068E0DDF33ED6DDC13C22B2FFF2CEB7D0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
