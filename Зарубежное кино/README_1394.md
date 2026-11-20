@@ -1,0 +1,702 @@
+###  Публикация: 1849466   (1053814) от 23.01.2026
+
+Журнал | BOUDOIR Inspiration (LINGERIE) (январь 2026) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053814.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: LINGERIE InspirationЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FC30B4904839C5487FC7F0223E0EC93373B7F0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849465   (1053813) от 23.01.2026
+
+Андрей Федин | Цикл "Чёрный дембель" [5 книг] (2024) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053813.jpg" />
+</div>
+
+
+###  Подробнее
+
+1973 год. СССР.
+
+Я вернулся домой после двух лет службы в Советской армии… снова. Словно и не прожил после этого события пятьдесят лет.
+(   Читать дальше...   )Жанр: Назад в СССР, Попаданцы во времени, Альтернативная историяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D76D4270B1732A2BDDEB76EB4510F132509218E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849542   (1053812) от 23.01.2026
+
+Van Morrison - Somebody Tried To Sell Me A Bridge (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kidney Stew Blues 03:45
+02 - King For A Day Blues 03:46
+03 - Snatch It Back And Hold It 03:58
+04 - Deep Blue Sea (feat. Elvin Bishop) 04:18(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602DCD8F85A5F0671045686D87FE8BCCE8C196B3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849464   (1053811) от 23.01.2026
+
+Анна Винкельман | Лучший из невозможных миров. Философские тропинки к Абсолюту (2026) [MP3, Олег Беляков]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Философия представлена как путешествие, начинающееся с простых вопросов и доходящее до сложных, таких как причина существования мира. Разобраться в этом помогают Шеллинг, Фридрих и собственные чувства. Книга «Лучший из невозможных миров» исследует поиски Абсолюта, соединяя строгую философскую мысль и личные переживания. Как и в традициях немецкого идеализма, читатель (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 08:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE2CCA3D7198CA71B6198130E51E00D3215C420
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849461   (1053810) от 23.01.2026
+
+Брайан Трейси, Саидмурод Давлатов | Лифт к первому миллиарду. 12 принципов богатства, которые работают (2025) [MP3, Павел Константиновский]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – настоящий путеводитель по обретению богатства. Международный бизнес-наставник Саидмурод Давлатов и легендарный эксперт в области личной эффективности Брайан Трейси совместили мудрость Востока и практичность Запада, чтобы создать проверенную пошаговую систему достижения благосостояния.
+Авторы убеждены: миллионером человека делает не сколько умение грамотно (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 05:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6910766DDB84F590562742DD31077637E498F41B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849459   (1053809) от 23.01.2026
+
+Александра Березович | Что я чувствую Упражнения для работы с эмоциями (2026) [MP3, Ольга Поторочина]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство по управлению эмоциями включает упражнения, которые позволяют безопасно исследовать чувства и научиться их контролировать, при этом сохраняя их значимость. Эмоции служат сигналами, которые помогают ориентироваться в жизни. Однако, иногда они могут быть слишком интенсивными: гнев может разрушить отношения, тревога мешает спать, а грусть может парализовать. (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 02:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DECA6CC93A047796F5EC05FA75BEB10DA70431ED
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849458   (1053808) от 23.01.2026
+
+Андрей Федин | Цикл "Товарищ капитан" [2 книги] (2025) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последний год существования СССР. У меня есть знания о будущем и пистолет. Я точно знаю, как всё это использую. Я помню, каково это: потерять близких людей. Поэтому 1991 год станет последним не только для страны. Теперь я сам определю, что такое справедливость. Причиню всем добро. Сделаю всех счастливыми, даже если они сами этого не захотят. Лишь бы мне не помешали (   Читать дальше...   )Жанр: Назад в СССР, Попаданцы во времени, Альтернативная история, ДетективИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9480FDD5A787D0C3175D03DD6D216A314DB66D46
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849451   (1053807) от 23.01.2026
+
+Газета | The Wall Street Journal [310 выпусков] (2023 Complete) [PDF] [EN]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053807.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Wall Street Journal — ежедневная американская деловая газета на английском языке. Издаётся в Нью-Йорке компанией Dow Jones & Company, которая входит в холдинг News Corp, с 1889.
+WSJ прежде всего освещает события в США и международный бизнес, финансовые новости и проблемы.Жанр: НовостиЯзык: АнглийскийИздательство: Dow Jones & CompanyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF008E1584F6F934FDDB4CC11A0465193E150859
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849450   (1053806) от 23.01.2026
+
+Газета | The Wall Street Journal [317 выпусков] (2024 Complete) [PDF] [EN]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053806.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Wall Street Journal — ежедневная американская деловая газета на английском языке. Издаётся в Нью-Йорке компанией Dow Jones & Company, которая входит в холдинг News Corp, с 1889.
+WSJ прежде всего освещает события в США и международный бизнес, финансовые новости и проблемы.Жанр: НовостиЯзык: АнглийскийИздательство: Dow Jones & CompanyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5D14236CA7359DC272C913AF27FE3641F83DF3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849448   (1053805) от 23.01.2026
+
+Тайниковский | Подземелье Кинга (Том VII) (2026) [MP3, Александр Иванов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трейсеры - загадочные существа, способные перемещаться между мирами и Кинг - один из них. Покинув старый мир, он попал в мир Альтерии, где его ждал сюрприз. Он тот, кто должен покорить этот мир, и бросить к своим ногам. Он топор над шеей Альтерии и бич этого мира. Но хочет ли он этого сам?
+Приключения, сражения и строительство собственного подземелья - все это Вас (   Читать дальше...   )Жанр: фэнтези, попаданцы, LitRPGИздательство: ЛитРесПродолжительность: 04:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B849785504E42A69BF7C9A4BD8EAE4EBD43D69CF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849433   (1053804) от 23.01.2026
+
+Газета | The Wall Street Journal №4 (6 января 2026) [PDF] [EN]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053804.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Wall Street Journal — ежедневная американская деловая газета на английском языке. Издаётся в Нью-Йорке компанией Dow Jones & Company, которая входит в холдинг News Corp, с 1889.
+WSJ прежде всего освещает события в США и международный бизнес, финансовые новости и проблемы.Жанр: НовостиЯзык: АнглийскийИздательство: Dow Jones & CompanyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6899AE9F5EEEAFE97DEF1A652C4B9E67D4CA07C1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849432   (1053803) от 23.01.2026
+
+Газета | The Wall Street Journal №3 (5 января 2026) [PDF] [EN]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053803.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Wall Street Journal — ежедневная американская деловая газета на английском языке. Издаётся в Нью-Йорке компанией Dow Jones & Company, которая входит в холдинг News Corp, с 1889.
+WSJ прежде всего освещает события в США и международный бизнес, финансовые новости и проблемы.Жанр: НовостиЯзык: АнглийскийИздательство: Dow Jones & CompanyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE55DD767A326A596000234B2BBA6E8058E5B49
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849431   (1053802) от 23.01.2026
+
+Газета | The Wall Street Journal №2 (3-4 января 2026) [PDF] [EN]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053802.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Wall Street Journal — ежедневная американская деловая газета на английском языке. Издаётся в Нью-Йорке компанией Dow Jones & Company, которая входит в холдинг News Corp, с 1889.
+WSJ прежде всего освещает события в США и международный бизнес, финансовые новости и проблемы.Жанр: НовостиЯзык: АнглийскийИздательство: Dow Jones & CompanyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D726E2FECB5AE7B021BEFEF56F22D015A1DC653B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849430   (1053801) от 23.01.2026
+
+Газета | The Wall Street Journal №1 (2 января 2026) [PDF] [EN]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053801.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Wall Street Journal — ежедневная американская деловая газета на английском языке. Издаётся в Нью-Йорке компанией Dow Jones & Company, которая входит в холдинг News Corp, с 1889.
+WSJ прежде всего освещает события в США и международный бизнес, финансовые новости и проблемы.Жанр: НовостиЯзык: АнглийскийИздательство: Dow Jones & CompanyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321A0AD7348A873B440D620160035AD620AC375E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849428   (1053800) от 23.01.2026
+
+Thomas Booth | English for Everyone. Illustrated English Dictionary (2022) [MP3] [EN]
+
+>>Обучающие аудиоматериалы
+>>Иностранные языки (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn more than 10,000 of the most useful words and phrases in English with this beautifully illustrated dictionary for English-language students.
+
+Building on the success of the English for Everyone program and DK’s Bilingual Visual Dictionary series, English for Everyone: Illustrated English Dictionary uses crystal-clear illustrations to show the meaning of over (   Читать дальше...   )Жанр: Английский язык, Учебный аудиокурсИздательство: DKФормат: PDFПродолжительность: 05:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E26A03EEAF08018EE1A945E02DB79E124EC7337
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849425   (1053799) от 23.01.2026
+
+Marek Golebiowski | An Encyclopedia of American Culture (2016) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053799.jpg" />
+</div>
+
+
+###  Подробнее
+
+This encyclopedia aims to provide a ready reference to various aspects of American culture. The time frame is from the colonial period to the end of the 20th century. The areas covered are fine arts (painting, sculpture, photography); performing arts (music, ballet, theatre, film); architecture; literature; and various non-artistic forms of culture (symbolic, material, (   Читать дальше...   )Жанр: Энциклопедии, Культура, АмерикаЯзык: АнглийскийИздательство: Peter Lang GmbH, Internationaler Verlag der WissenschaftenФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F23D21E0C0921CBE1623CF5E0C151D61390056
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849422   (1053798) от 23.01.2026
+
+Anthony C. Thiselton | A Concise Encyclopedia of the Philosophy of Religion (2002) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Covering thinkers from Plato to Freud, offering detailed explanations of key themes such as evil, and outlining clear definitions of complex ideas like‘the doctrine of analogy,’ this is a comprehensive reference tool for all those studying, or interested in, the philosophy of religion.Жанр: Энциклопедии, РелигииЯзык: АнглийскийИздательство: Oneworld PublicationsФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CFF0340FE8C112F9C08492877F5683AAB67FFB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849421   (1053797) от 23.01.2026
+
+Manju Jaidka, Tej N. Dhar | The Routledge Encyclopedia of Indian Writing in English (2023) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Today, Indian writing in English is a fi eld of study that cannot be overlooked. Whereas at the turn of the 20th century, writers from India who chose to write in English were either unheeded or underrated, with time the literary world has been forced to recognize and accept their contribution to the corpus of world literatures in English. Showcasing the burgeoning (   Читать дальше...   )Жанр: Энциклопедии, История, ЛитературоведениеЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586A088F63D1EFC186DC1DEE9312B1F9726BDABE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849420   (1053796) от 23.01.2026
+
+Philip M. Peek, Kwesi Yankah | African Folklore. An Encyclopedia (2004) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Written by an international team of experts, this is the first work of its kind to offer comprehensive coverage of folklore throughout the African continent. Over 300 entries provide in-depth examinations of individual African countries, ethnic groups, religious practices, artistic genres, and numerous other concepts related to folklore. Featuring original field (   Читать дальше...   )Жанр: Энциклопедии, История, Мифология, ФольклорЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54696353725CDC91CD8F8EABB496483FF29D8037
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849399   (1053795) от 23.01.2026
+
+Евгений Dude | Искатель. Первая Фаза (Книга 1) (2025) [MP3, Алексей Назаренко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока одни ждали второго пришествия, а другие - понижения ставок по ипотеке, в наш мир пришли Сферы. Такие парящие штуки, из которых сочится Хаос, разрушающий планету. И вот же проблема: попасть в Сферу и зачистить её могут только Искатели. Наши новые герои, которых случайно выбирает Система. Герои добровольно-принудительного порядка... Просто, если вы думаете, что (   Читать дальше...   )Жанр: LitRPG, Боевая фантастикаИздательство: Пересадочная станцияПродолжительность: 08:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0CEF6E840DC7A7B04D140B5EB89B45BC8BE5E7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849400   (1053794) от 23.01.2026
+
+Евгений Dude | Искатель. Первая Фаза (Книга 2) (2025) [MP3, Алексей Назаренко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока одни ждали второго пришествия, а другие - понижения ставок по ипотеке, в наш мир пришли Сферы. Такие парящие штуки, из которых сочится Хаос, разрушающий планету. И вот же проблема: попасть в Сферу и зачистить её могут только Искатели. Наши новые герои, которых случайно выбирает Система. Герои добровольно-принудительного порядка... Просто, если вы думаете, что (   Читать дальше...   )Жанр: LitRPG, Боевая фантастикаИздательство: Пересадочная станцияПродолжительность: 09:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD6BAC4A32BFBCEB153EEDB316DB2A55C597E24
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849376   (1053793) от 23.01.2026
+
+Lilia Fernández | 50 Events That Shaped Latino History. An Encyclopedia of the American Mosaic (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Which historical events were key to shaping Latino culture? This book provides coverage of the 50 most pivotal developments over 500 years that have shaped the Latino experience, offering primary sources, biographies of notable figures, and suggested readings for inquiry.
+
+Latinos—people of European, Indigenous, and African descent—have had a presence in North America (   Читать дальше...   )Жанр: Энциклопедии, Латинская АмерикаЯзык: АнглийскийИздательство: GreenwoodФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB599AFF561F7C943C4CB303642E02E7550C24EB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849375   (1053792) от 23.01.2026
+
+BradyGames | Capcom 30th Anniversary Character Encyclopedia (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Established in 1983, Capcom is one of the world's most well-known video game publishers and is recognized for creating many important game franchises, such as Mega Man™, Resident Evil™, and Street Fighter™.
+Full of facts, statistics, and historical information, the Capcom 30th Anniversary Character Encyclopedia will offer any fan of Capcom's illustrious library of (   Читать дальше...   )Жанр: Энциклопедии, ИгрыЯзык: АнглийскийИздательство: DKФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502DC2AA051A9D903844AD98AF6B051B9E2A7DBC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849364   (1053791) от 23.01.2026
+
+Jay H. Lehr, Jack Keeley | Alternative Energy and Shale Gas Encyclopedia (2016) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053791.jpg" />
+</div>
+
+
+###  Подробнее
+
+A comprehensive depository of all information relating to the scientific and technological aspects of Shale Gas and Alternative Energy.
+Conveniently arranged by energy type including Shale Gas, Wind, Geothermal, Solar, and Hydropower.
+Perfect first-stop reference for any scientist, engineer, or student looking for practical and applied energy information.
+Emphasizes (   Читать дальше...   )Жанр: Энциклопедии, ГидроэнергетикаЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812B47F2A176FB4CE2298F46FF19DD3211F9655F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848919   (1053790) от 23.01.2026
+
+Олег Козырев, Aня (Авось прорвемся) | GO ПРОРВЕМСЯ (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс — полноценная программа по подготовке к техническим и софтовым собеседованиям для Go-разработчиков и специалистов, которые хотят выйти на новый уровень поиска работы в условиях жёсткого рынка. Вы пройдёте весь путь — от нулевого состояния и неуверенности в своих навыках до ситуации, когда у вас на руках несколько офферов, а компании конкурируют за ваше (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 49:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC68547060E8C1F563902F2CD5918F3756A5A85
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849540   (1053789) от 23.01.2026
+
+Валентин Дикуль | Позвоночник и суставы. Восстановление подвижности и избавление от боли (2025) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1053789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ноют спина и суставы? Повседневные дела сопровождаются постоянной болью? От долгого сидения в одном положении тело как будто разваливается на части? А советы знакомых и средства из интернета совсем не помогают?
+
+История Валентина Дикуля известна многим. А разработанные им методики могут помочь и вам! Уникальная система упражнений направлена на избавление от боли (   Читать дальше...   )Жанр: Здоровье, Система упражненийИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF11123D196507789AF7AF5231D4F326CB74706C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,0 +1,721 @@
+###  Публикация: 1875978   (1072924) от 
+
+Пресеты - Victor Cervantes - CUBAN VIBES - PRESET & RECIPE + TUTORIAL PACK [XMP, PDF, MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Пресеты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cuban Vibes – набор пресетов для уличной фотографии + рецепты и обучающее видео для Fujifilm
+
+Cuban Vibes — мой первый  набор пресетов для фотографии , созданный для мирового сообщества фотографов и создателей контента, которые любят уникальную атмосферу Кубы. Вдохновленный моими  уличными фотографиями в Гаване и за ее пределами , этот набор включает  5 профессиональных (   Читать дальше...   )Формат: XMP, PDF, MP4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A3E890F17E6C2808B571D597A4F629D467F6C4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875985   (1072923) от 
+
+Thorium - Suburban Rot (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abra Macabre
+02. Endless Disgust
+03. Open Wounds
+04. MG42(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010D996A2B10DACB6B2B4689B9CC86579107DD56
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875851   (1072922) от 
+
+VA - A State of Trance Radio Top 50 - 2026, Vol. 1 (Selected by Armin van Buuren) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Richard Durand & Dicosis - Always You (A State of Trance 2026 ELEVATION Anthem) (Extended Mix) [5:38]
+02. Three Drives & Max Styler - Greece 2000 (Max Styler Extended Rework) [5:27]
+03. Ferry Corsten feat. Clairity - Reanimate (Ferry Corsten Extended Reprint) [5:36]
+04. OTTAGON & Giuseppe Ottaviani feat. Lake Silver - What The (   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6B52C05F1AFC779C7A038D63EF1FECC54EEE89
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875751   (1072921) от 
+
+Tarja - Frisson Noir (2026) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Frisson Noir
+03. The Eternal Return
+04. Leap of Faith(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964FFBB1021A78EA5344C8759A0BCAE6EBABA070
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875986   (1072920) от 
+
+Проекты - VideoHive - Trippy Logo Reveal - 63772974 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trippy Logo Reveal — это яркий и психоделический шаблон логотипа, наполненный сюрреалистичными искажениями, плавными деформациями и гипнотическими визуальными эффектами. Логотип появляется через волны цвета, абстрактные формы и динамичные переходы, создавая эффект погружения в необычное цифровое пространство.
+
+Шаблон отлично подойдёт для музыкальных проектов, творческих (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D99F9FBCD1A8E2E71AFF04B3171DE567849C24E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875987   (1072919) от 
+
+Журнал | Здоровье №6 (826) (июнь 2026) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье – основные (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ИД журнала «Здоровье»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67897D4E4F44B62832D5E60C16561F094C6257A7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875959   (1072918) от 
+
+Oceans of Slumber - Studio Albums (7 releases) (2013-2024) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oceans of Slumber - прогрессив-метал группа из Хьюстона, штат Техас, США.2013 - Aetherial
+2015 - Blue (EP)
+2016 - Winter
+2018 - The Banished Heart(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 06:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976953C0796A1FC6D087F072D4D3DF3FFFD320C3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875990   (1072917) от 
+
+Детективная история / Detective Story (1951) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072917.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фильма положена одноимённая пьеса 1949 года драматурга Сидни Кингсли... Фильм рассказывает об одном дне из жизни полицейского участка в Нью-Йорке, где детектив Джим Маклеод и его коллеги ведут каждодневную борьбу с городской преступностью в различных её проявлениях. Маклеод разрывается между желанием уделять больше времени своей жене и одержимостью при ловле (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: нуар, драма, мелодрама, криминалРежиссер: Уильям УайлерАктеры: Кирк Дуглас, Элинор Паркер, Уильям Бендикс, Кэти О`Доннелл, Джордж Макреди, Хорас МакМахон, Глэдис Джордж, Джозеф Уайзмен, Ли Грант, Джералд МорПеревод: профессиональный многоголосый (Светла), профессиональный двухголосый (СВ Дубль)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0106F365C4EA33DDC39A54B892D1D6B066E05E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875991   (1072916) от 
+
+Arch Blade - Harbinger of Death (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Hour 00:47
+02. Cataclysm 04:12
+03. Retribution 05:25
+04. Into the Fray 05:37(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57D53FAE24463C361BA889368ACCEB0B8DC7CAC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875981   (1072915) от 
+
+Охота на изюбря (2005) WEBRip [H.264] (сезон 1, серии 1-12 из 12)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия, первая половина 90-х. Крупный металлургический комбинат города Ахтарска возглавляет опытный руководитель Вячеслав Извольский. Нищая область, богатый завод и далекая Москва с ее жадными до денег банками. Завод процветает, и наложить лапу на доходы Комбината не терпится многим. Неприятности не заставляют себя долго ждать. Происходит ЧП: похищен генеральный (   Читать дальше...   )Производство: Россия / Про-Синема ПродакшнЖанр: триллер, криминал, драмаРежиссер: Абай КарпыковАктеры: Александр Балуев, Алексей Гуськов, Екатерина Гусева, Гоша Куценко, Марат Башаров, Роман Мадянов, Андрей Краско, Михаил Ефремов, Александр Лыков, Евгения Добровольская и др.Продолжительность: ~00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E086A5A30F89DD04618EAB6D7906E44276B6C8F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875480   (1072914) от 
+
+Nation In Blue - Collection (2024) [MP3|256 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You (6:16)
+02. Better Than The Best (5:04)
+03. Distant Land (5:38)
+04. Have You Got What It Takes (7:28)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA772AFD3B8886B2FA86F130FC1ABA3E9F8E901
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875649   (1072913) от 
+
+Alesha Dixon - The Alesha Show (2008) Enhanced, 2009 [FLAC|Lossless|image + .cue] <Hip Hop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Alesha Show (0:25)
+02. Let's Get Excited (3:22)
+03. Breathe Slow (4:12)
+04. Cinderella Shoe (2:41)(   Читать дальше...   )Жанр: Hip Hop, PopПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACD615B21B9C4B8CE432C1CFE2C7F4F7BE87E63
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875353   (1072912) от 
+
+Ofra Haza - DeLuxe Collection (2001) Compilation, Limited Edition, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Im Nin' Alu (New Version) - 3:38
+02 - Give Me A Sigh - 4:17
+03 - Im Nin' Alu (Original Version) - 3:29
+04 - I Want To Fly - 4:23(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0051F3FB22B2A3EE9F0F872BD567C82BAA3A957
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875352   (1072911) от 
+
+Ocarina - DeLuxe Collection (2001) Compilation, Limited Edition, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Song of Ocarina - 3:38
+02 - Implora - 3:52
+03 - Flying Officer - 3:42
+04 - Mystical Force - 3:56(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6DFF5609C72E0087718516B7744B5188E48893
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875993   (1072910) от 
+
+Револьвер / Revolver (2005) BDRip [AV1/2160p] [4K, SDR, 10-bit] [handmade Upscale AI]
+
+>>Остальное
+>>handmade * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь лет назад Джейк влип в неприятную историю. Город был помешан на нелегальных азартных играх, организованных преступным боссом Мака. Однажды накануне большой игры Мака потерял своего парня, и Джейку Грину предложили пойти на замену. Под давлением Грин согласился и выиграл за карточным столом. С этого всё и началось.Производство: Великобритания, Франция / Canal+Жанр: боевик, триллер, драма, криминал, детективРежиссер: Гай РичиАктеры: Джейсон Стэтхэм, Рэй Лиотта, Винсент Пасторе, Андре Бенджамин, Теренс Мэйнард, Эндрю Ховард, Марк Стронг, Франческа Аннис, Анжела Лоурен Смит, Элана БинишПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B835498C7AD2755A5EB161826BB3C7A47F044AF3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875226   (1072909) от 
+
+VA - Mega 90 (2007) 4 CD, Compilation [FLAC|Lossless|tracks + .cue] <Eurodance, House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua - Barbie Girl (3:16)
+02. The Bucketheads - The Bomb! (These Sounds Fall Into My Mind) (3:23)
+03. Shabba Ranks - Mr. Loverman (4:17)
+04. Lady - Easy Love (3:55)(   Читать дальше...   )Жанр: Eurodance, HouseПродолжительность: 05:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3C74B15D17EB4CE184CCBAC2EED5139A4A5A19
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875812   (1072908) от 
+
+E-Type - Remixed (2021) [MP3|256 Kbps] <Eurodance, Euro-House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megamix (E-Type For Ever) (13:14)
+02. Angels Crying (C&N DLX Dub) (9:04)
+03. Hold Your Horses (Trinity Boys Remix) (6:35)
+04. Life (Tommy Q's Spot On Remix) (5:22)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 03:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6770388F3E8EF0E84BEB0B9E12B01FBF202EFFD0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875984   (1072907) от 
+
+Лучше звоните Солу / Better Call Saul (2015-2022) WEBRip [AV1/1080p] [10 Bit] (сезон 1-6, серии 1-63 из 63) LostFilm
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072907.jpg" />
+</div>
+
+
+###  Подробнее
+
+История об испытаниях и невзгодах, которые приходится преодолеть Солу Гудману, адвокату по уголовным делам, в тот период, когда он пытается открыть свою собственную адвокатскую контору в Альбукерке, штат Нью-Мексико.Производство: США / American Movie Classics (AMC), Gran Via, Sony Pictures TelevisionЖанр: драма, криминалРежиссер: Винс Гиллиган, Томас Шнауц, Питер ГулдАктеры: Боб Оденкёрк, Джонатан Бэнкс, Рэй Сихорн, Патрик Фабиан, Майкл Мэндо, Джанкарло Эспозито, Майкл Маккин, Тони Далтон, Марк Марголис, Керри КондонПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9FE697AD6DED906106F8890749E5E4EC35A1F9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875995   (1072906) от 
+
+TutorPlace, Алина Ершова | Осиная талия (2026) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формирование гармоничных пропорций тела и укрепление центральной части корпуса требуют грамотного объединения специализированных физических нагрузок и выверенного рациона. Тренировочная программа предлагает системный подход к безопасной коррекции фигуры, фокусируясь на правильной биомеханике упражнений для мышц живота. Благодаря экспертной стратегии студенты получают (   Читать дальше...   )Производство: TutorPlaceЖанр: видеокурс, обучающий курс, здоровье, спортЯзык озвучки: русскийПродолжительность: 16:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4FE3BA370E4768E2489B26DEF2DDC07C2BBDF78
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875996   (1072905) от 
+
+Шрифты - Dirtyline Studio - Dx Lactos Vol.02 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Dx Lactos — смелый декоративный шрифт, сочетающий в себе выразительную индивидуальность и исключительную гибкость. Благодаря изменяемой толщине от тонкого до черного цвета, Dx Lactos легко адаптируется к различным дизайнерским задачам — от четких, минималистичных заголовков до эффектных, объемных заголовков. Его необычные изгибы и уверенная структура (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F651A352A2405E6662A5AE9557BF2EEAF571C90
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875997   (1072904) от 
+
+Microsoft  Visual C++ Runtimes AIO v0.105.0 x86-x64 Repack by abbodi1406 [Multi/Ru
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E673A7D9C66FCC1CDE09A332DD3881DEE472D4AE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875999   (1072903) от 
+
+Шаблоны - Flowit Supply - Mockup Collection [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши макеты представляют собой тщательно подготовленные файлы Photoshop с высококачественными рендерами. Они включают редактируемые смарт-объекты и слои, что позволяет легко вставлять ваши дизайны и настраивать сцену.Формат: PSDРазрешение файлов: 3340x5900 - 7200x4800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAF732E6D89B55F9333507D936096CAA373F9BA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875983   (1072902) от 
+
+Брюс Всемогущий / Bruce Almighty (2003) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пессимист Брюс Нолан — популярный ведущий теленовостей. Его ничего не интересует: ни девушка Грейс, ни собственные репортажи. Но однажды Брюса увольняют. Разочарованный герой бросает вызов Богу и неожиданно получает ответ Всевышнего. Бог предлагает Брюсу поменяться с ним местами на неделю и посмотреть, сможет ли Брюс сделать мир хоть чуточку лучше.Производство: США / Pit Bull Productions, Shady Acres Entertainment, Spyglass Entertainment, Universal PicturesЖанр: фэнтези, комедия, драмаРежиссер: Том ШэдьякАктеры: Джим Керри, Морган Фриман, Дженнифер Энистон, Филип Бейкер Холл, Кэтрин Белл, Лиза Энн Уолтер, Стив Карелл, Нора Данн, Эдди Джемисон, Пол Сэттерфилд и др.Перевод: Дублированный, многоголосый, двуголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698A554D37DD8CF640D34C79C92AB7E84E376B3A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876001   (1072901) от 
+
+Black Odyssey - Black Odyssey (2026) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cathuria 06:25
+02. Bless Me Father 04:55
+03. The End of a Rainbow 04:46
+04. All You Zombies 06:08(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF549017F18FBAD87E2D617196A4CAC2F935358E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876004   (1072900) от 
+
+Проекты - VideoHive - Photo Grid Reveal - 16530823 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон Photo Grid Reveal разработан для привлечения внимания и демонстрации товаров в современном, динамичном стиле. Он идеально подходит для электронной коммерции, розничной торговли и маркетинга в социальных сетях, таких как Instagram Stories, TikTok, YouTube Shorts или реклама в Facebook.
+
+Универсальность 3-в-1 : В комплект входят три полных, отдельных варианта (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA04953D5D7B234793AEC128B2AD97BD8C5CDBA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876007   (1072899) от 
+
+Trivium - Silence In The Snow (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1072899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snшfall (1:29)
+ 02. Silence in the Snow (3:41)
+ 03. Blind Leading the Blind (4:26)
+ 04. Dead and Gone (3:47)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2FC54BCF7AABD76F9BBD4451856DE2C8AABA10
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

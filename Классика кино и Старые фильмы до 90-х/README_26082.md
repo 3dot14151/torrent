@@ -1,0 +1,730 @@
+###  Публикация: 1065067   (411926) от 26.10.2016
+
+Крик / Scream (2016) WEB-DL [H.264/720p-LQ] (сезон 2, серии 13 Halloween Special / Специальный Хэллоуинский эпизод) OMSKBIRD
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_411926.jpg" />
+</div>
+
+
+###  Подробнее
+
+То, что начиналось как обычное видео на YouTube, вскоре оборачивается проблемами для подростков Лейквуда и служит катализатором для убийства, которое открывает окно в тяжелое прошлое города.Производство: США / DiGa Vision, Dimension Films, Dimension TelevisionЖанр: ужасы, драмаРежиссер: Ли Джаньяк, Джулиус Рамсей, Джеми ТрэвисАктеры: Уилла Фицджералд, Бекс Тейлор-Клаус, Карлсон Янг, Джон Карна, Коннор Вейл, Бобби Кампо, Амадеус Серафини, Том Мэден, Трэйси Миддендорф, Майк Вон и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDПродолжительность: 01:21:55Реклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413059   (411925) от 02.10.2020
+
+Henrik Meierkord - Refuge (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Neoclassical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411925.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Human 09:42
+2. Henrik Meierkord, Marco Lucchi & Rocco Saviano - The Rain 06:36
+3. Jordgloben 09:23
+4. Harmonia 10:18Жанр: Ambient, Drone, NeoclassicalПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43793EB8310A46A88653B51455C4AE59A334D201
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413035   (411924) от 02.10.2020
+
+The Samurai Of Prog - The Demise Of The Third King's Empire (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Book Of Knowledge (02:02)
+02. The Demise Of The Third King's Empire (57:10)Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F593118E8717D7CD8B21044815DB4E2E52DC7D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413113   (411923) от 02.10.2020
+
+Mathieu Karsenti - Bygones (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electroacoustic, Neoclassical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411923.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Twenty Seven 05:36
+2. Upwards 04:40
+3. Resilience 05:00
+4. No. 73 04:48(   Читать дальше...   )Жанр: Ambient, Electroacoustic, NeoclassicalПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFDB694F02770F45EC7F1B4B8F445B7CB814101D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066484   (411922) от 26.10.2016
+
+Александр Великий / Alexander der Grobe (2014) SATRip (серии 1-2 из 2)
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_411922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Великий - один из самых блестящих и загадочных полководцев всех времен. В тридцать лет он правил одной из крупнейших империй в истории. Попробуем разобраться, зачем Александр покорял дальние страны. Кто он? Гениальный полководец или кровожадный тиран? Человек-легенда. Но, в итоге, не сделался ли властолюбивый Александр злейшим врагом самому себе? Казалось (   Читать дальше...   )Производство: Германия / Zweites Deutsches Fernsehen (ZDF)Жанр: Документальный, игровой, историяПеревод: Многоголосый закадровый, профессиональный | Видео Фильм ТВПродолжительность: 2 х ~00:44:00
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412975   (411921) от 02.10.2020
+
+Halftribe - Cloud Dreaming And Shadows (2020) [FLAC|Lossless|tracks] <Ambient, Experimental, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411921.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Hiking With Eve	5:20
+2	Picidae	1:59
+3	Elysian Caress	5:12
+4	A Clearing	3:06(   Читать дальше...   )Жанр: Ambient, Experimental, DroneПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010FA82638A19F310633243448481B099B7ADE86
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066603   (411920) от 26.10.2016
+
+NonCompressibleFiles 2.51 + Portable [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_411920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хочу познакомить вас с маленькой бесплатной программой, которая к тому же не требует установки, а нужна она для генерации одного или сразу нескольких максимально сжимаемых или наоборот несжимаемых файлов.
+После этого, данные файлы можно использовать для тестов различных программ, например если вам хочется выявить скорость работы архиваторов. Перед тем как создать (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066512   (411919) от 26.10.2016
+
+Discovery: Оглушающий океан / Sonic Sea (2016) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Океан становится все оглушительнее, и от этого страдают его обитатели – например, из-за высокой интенсивности шума расстояния для общения синих китов сократились на 90%, а уровень шума кораблей увеличивается вдвое каждое десятилетие в течение последних 40 лет! Эти данные были опубликованы в докладе Международного фонда защиты животных «Шум в океане: приглушите звук». (   Читать дальше...   )Производство: США, Канада, Норвегия / Discovery ChannelЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FB455643B9CDF2E8B4D54C434CE023679D1204
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412978   (411918) от 02.10.2020
+
+Legends Never Die - Rise and Awaken: An a Cryptic Ending Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Burial [00:03:00]
+02. Count Your Blessings [00:03:47]
+03. The Silence [00:03:30]
+04. Fear of Nothing [00:03:13](   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612907B6A61804F27820CE93EE344C8E7C52F048
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413049   (411917) от 02.10.2020
+
+Henrik Meierkord - Själ (Sjal) (2019) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Neoclassic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Trädet 05:46
+2. Själ 07:30
+3. Ren Och Fin 09:34
+4. Kommunikation 08:04(   Читать дальше...   )Жанр: Ambient, Drone, NeoclassicПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E660125EBD242ED1A02B4B17377912AE7CB1F070
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413080   (411916) от 02.10.2020
+
+VA - Lazy Morning (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America - Ventura Highway (03:31)
+02. Kate Bush - Army Dreamers (02:54)
+03. Tom Petty - Wildflowers (03:10)
+04. Emmylou Harris - Here, There and Everywhere (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22B3608F97FEB13A48FEE64AE3847D56F33BC2F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066517   (411915) от 26.10.2016
+
+Guardian - морской "робот-призрак", способный действовать как на поверхности, так и под водой
+
+>>След.
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_411915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некоторое время назад мы знакомили наших читателей с "угловатым" морским судном-невидимкой Ghost, опытный образец которого был разработан и изготовлен компанией Juliet Marine Systems (JMS). Основным отличием этого судна от других является то, что оно способно развивать достаточно большую скорость, скользя на двух сигарообразных поплавках при помощи эффекта (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558909   (411914) от 11.10.2012
+
+Sarah Jezebel Deva - The Corruption Of Mercy (2011) [FLAC|Lossless]<Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_411914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Paragon Of Virtue (4:36)
+02. The World Won't Hold Your Hand (5:15)
+03. A Matter Of Convenience (4:26)
+04. Silence Please (5:28)
+05. Zombie (The Cranberries cover)(5:24)
+06. Pretty With Effects (2:58)
+07. What Lies Before You (1:38)
+08. Sirens (3:22)
+09. The Eyes That Lie (4:44)
+10. The Corruption Of Mercy (5:49)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413048   (411913) от 02.10.2020
+
+Antarctic Wastelands - Frozen Voyage (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_411913.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Submerge 01:22
+2. Deepest Blue 02:57
+3. Light, Fragmented 05:52
+4. In Eternal Drift 03:26(   Читать дальше...   )Жанр: Ambient, Drone, MinimalПродолжительность: 00:17:27
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066282   (411912) от 26.10.2016
+
+Молодость по страховке / Wild Oats (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эва по ошибке получает чек от страховой компании на 5 миллионов, вместо 50 тысяч долларов. Поддавшись уговорам своей лихой подруги, она обналичивает всю сумму, и подруги уходят в отрыв: рейс на Канары первым классом, президентский люкс, дерзкие знакомства, игра в казино — словом, все шло, как по маслу, пока не случились… Преследование страхового агента, похищение (   Читать дальше...   )Производство: СШАЖанр: Боевик, драма, комедия, приключенияРежиссер: Энди ТеннантАктеры: Джессика Лэнг, Деми Мур, Ширли МакЛейн, Джадд Хёрш, Мэтт Уолш, Билли Коннолли, Ребекка Да Коста, Ховард Хессеман, Птолеми Слокам, Джей ХейденПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAE112B1D4467C104C1B599E8F590C35F899EEC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558891   (411911) от 11.10.2012
+
+Журнал | Звукомания №11 [октябрь-ноябрь 2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«Звукомания» - журнал про звук, кино, аудиоустройства, хоум синема и аудио-видео технике. Журнал о звуке, о том, что же такое музыка. В нашей стране не умеют слушать музыку, и речь не о мощной громкости и всеобщей попсе на улицах, а о нормальной качественной музыке дома (причем при малых затратах). От которой при правильном её применении вы будете в полном восторге.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC0796790AA12945470194110BBC30D3C038392
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413012   (411910) от 02.10.2020
+
+Louis Armstrong - Collected (1920-e - 1960-e) 2018, 3CD, Universal [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411910.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Muggles [2:51]
+02. West End Blues [3:19]
+03. Ain't Misbehavin' [3:20](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 03:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79127F78CB969002FB666827153C92B8D2DA731D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065068   (411909) от 26.10.2016
+
+Крик / Scream (2016) WEB-DLRip (сезон 2, серии 13 Halloween Special / Специальный Хэллоуинский эпизод) OMSKBIRD
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411909.jpg" />
+</div>
+
+
+###  Подробнее
+
+То, что начиналось как обычное видео на YouTube, вскоре оборачивается проблемами для подростков Лейквуда и служит катализатором для убийства, которое открывает окно в тяжелое прошлое города.Производство: США / DiGa Vision, Dimension Films, Dimension TelevisionЖанр: ужасы, драмаРежиссер: Ли Джаньяк, Джулиус Рамсей, Джеми ТрэвисАктеры: Уилла Фицджералд, Бекс Тейлор-Клаус, Карлсон Янг, Джон Карна, Коннор Вейл, Бобби Кампо, Амадеус Серафини, Том Мэден, Трэйси Миддендорф, Майк Вон и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDПродолжительность: 01:21:55Реклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F770AE16A76A968686BEDD5726E9A502340148
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559104   (411908) от 11.10.2012
+
+Журнал | Кухни & ванные комнаты №10 [октябрь 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Кухни и ванные комнаты» содержит актуальную информацию об основных стилях и направлениях, последних дизайнерских и технологических решениях, новых материалах, идеи и полезные советы по обустройству кухонь и ванных комнат в целом, включая декорирование и аксессуары.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D6F1337F6695E93CFC05F71250431BFC26B5F5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413066   (411907) от 02.10.2020
+
+VA - Markus Schulz - Global DJ Broadcast - (Escape to Sedona) (2020) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz - Escape to Sedona
+01. Markus Schulz & Daxson - Vortex
+02. Farius - Be Somebody
+03. Armin van Buuren featuring Sharon den Adel - In and Out of Love (Ilan Bluestone & Maor Levi Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439E75AA7FC43F7FED964CB486075E5AE942BD3C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066638   (411906) от 26.10.2016
+
+Shimo 4.1.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shimo - VPN клиент без проблем
+Shimo - VPN-клиент, который в отличие от других VPN-клиентов, поддерживает  большинство протоколов: Cisco, IPSec, OpenVPN, Hamachi, PPTP/L2TP и даже SSH не является проблемой.
+
+Безопасное VPN соединения только тогда действительно безопасно, когда данные, используемые для проверки подлинности надёжно защищены. Поэтому Shimo использует (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 октября 2016Разработчик: ChungwaSoftПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727D59A5AA696DBE27F5C971D25F9835B440F054
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558688   (411905) от 11.10.2012
+
+VA - Pure Bliss Vocals Volume 2 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+VA - Pure Bliss Vocals Volume 2 (2012)
+
+Год: 2012
+Жанр: Vocal Trance
+Продолжительность: 01:22:35Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Luigi Lusini - All I Want - Radio Edit (03:17)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919AFAC84864BAA01B8B299E017751C1B3B82592
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413169   (411904) от 02.10.2020
+
+CherryPlayer 3.1.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411904.jpg" />
+</div>
+
+
+###  Подробнее
+
+CherryPlayer - уникальный проигрыватель аудио -, видеофайлов всех популярных форматов с возможностью прослушивания и просмотра контента прямо из Интернета. Особенно удобен этот проигрыватель для таких ресурсов как ВКонтакте , Last.fm, YouTube, BBC, BillBoard, т.к. тесно интегрирован с ними и их огромными архивами.
+Кроме того, это приложение поможет загрузить понравившийся (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8EC8FFC81086E6B752C6B23E5A3EE14D4D0CC5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066625   (411903) от 26.10.2016
+
+Ярослав Коваль | Родная кровь (2016) [FB2]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_411903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Принц».
+
+Сыновья и дочери покойного короля никак не желают примириться. Спор за власть становится ещё более жестоким, когда в противостояние вмешиваются и представители высшей знати. В стремлении подчинить своей воле королевство, хоть законно, хоть нет, герцогиня Овеяния, самая могущественная женщина Лучезарного мира, мать одного из принцев, не (   Читать дальше...   )Жанр: Героическая фантастика, Боевое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558970   (411902) от 11.10.2012
+
+Марсоход Curiosity возобновляет научные исследования.
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Буквально вчера мы рассказывали о том, что научная работа и все другие действия марсохода Curiosity были приостановлены из-за того, что на одном из снимков был обнаружен нетипичный для марсианского грунта блестящий объект, который предположительно был отколовшейся частью самого марсохода. Вчера команда, управляющая действиями марсохода, получила снимок этого объекта крупным планом, сделанный камерой Remote Micro-Imager of the Chemistry and Camera (ChemCam), который позволил идентифицировать этот объект. Им оказался кусок мягкого блестящего пластика, которым как трубкой оборачивают электрическую проводку, идущую по внешней поверхности марсохода.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413060   (411901) от 02.10.2020
+
+VA - Individual Collection Vol.9 (2020) [MP3|320 Kbps] <Trance, Big Room, Drum & Bass>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_411901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5Beat - Tesla (Original Mix)
+02. 5Beat & Nuaro - Overpressure (Original Mix)
+03. 5Beat & Trivia - Universal Language (Original Mix)
+04. Alex Kudryavtsev - Alienation (Original Mix)(   Читать дальше...   )Жанр: Trance, Big Room, Drum & BassПродолжительность: 03:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51770614642E3A527015A0FE4D3690EE5987457C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

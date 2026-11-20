@@ -1,0 +1,745 @@
+###  Публикация: 1295559   (616598) от 14.04.2019
+
+VA - Classical Chill: Piano (2019) [MP3|320 Kbps] <Classical, Piano>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stephanie McCallum - Debussy-Suite bergamasque, L.75 - 3. Clair de lune 5:15
+02. Gerard Willems - Grieg-Peer Gynt Suite No.1, Op.46 - 1. Morning Mood 3:35
+03. Roger Woodward - Jessica's Theme (From 'The Man from Snowy River') 3:21
+04. Catherine Strutt - Traditional American-Amazing Grace (New Britain) 4:33(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 02:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ECA9FD68FB321FB06DEA7E62B71E50BE87C44A6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 220923   (616597) от 23.07.2010
+
+[Wallpapers:]  Обои для рабочего стола -  Amazing War Games Wallpapers (1920 X 1080)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Военная тематика игр.
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523844   (616596) от 16.07.2012
+
+Притворись моим мужем / You May Not Kiss the Bride (2011) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромному фотографу Брайану Лайтхаусу не повезло. Совершенно неожиданно он оказался в долгу перед обосновавшимся в США хорватским криминальным авторитетом Вадиком Никитиным. Теперь Брайану нужно жениться на дочери бандита Маше, чтобы та смогла беспрепятственно получить американское гражданство, а потом спокойно развестись.
+
+Есть и другое условие: брак — браком, но к невесте горе-жених и пальцем не должен прикасаться. И это самая непростая часть договора, потому что девушка — ослепительная красавица. Дело осложняется и тем, что во время медового месяца на далеком экзотическом острове новоиспеченную жену похищают неизвестные. Ее возвращение становится для Брайана вопросом жизни и смерти…Жанр: Мелодрама, Комедия, ПриключенияРежиссер: Роб ХедденПродюсер: Дэвид А. Джексон, Шона Шапиро ДжексонАктеры: Дэйв Эннэйбл, Кэтрин МакФи, Роб Шнайдер, Мена Сувари, Кэти Бейтс, Кен Давитян, Тиа Каррере, Кевин Данн, Винни Джонс, Стивен ТоболовскиПеревод: Профессиональный многоголосый, закадровыйПродолжительность: 01:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BECEBA3521D38A14E8973CA3646457B9867180
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295717   (616595) от 14.04.2019
+
+VA - Classical Chill Guitar (2019) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Withers - Myers-Cavatina (Arr. John Williams) (From 'The Deer Hunter') 3:12
+02. Grigoryan Brothers - Lovelady-Incantation No.2 5:02
+03. Slava Grigoryan & Leonard Grigoryan - J.S. Bach-Cantata BWV 156 - 1. Sinfonia (arr. Edward Grigoryan) 5:19
+04. Guitar Trek - Charlton-Dances for the Rainbow Serpent - 3. The Beauties of the World Are Revealed for the (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BF06944F21DB244CEC722C4A525A8CA7326D86
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523869   (616594) от 16.07.2012
+
+Рестлинг / WWE Money In The Bank - Preshow (2012) WEBRip [H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русская версия от 545TV WWE Money In The Ban прешоуЖанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987A9FA8F0C5D5FDBBAF61B83E0BFB42D8AF7B01
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146005   (616593) от 28.06.2017
+
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Чили — Австралия (25.06.2017) HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616593.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2017 года, воскресенье. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 3-й тур
+Чили — Австралия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD9626DF1A8BDBD7EE7ACAF434F8C1DE8B514BA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146032   (616592) от 28.06.2017
+
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Чили — Австралия (25.06.2017) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616592.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2017 года, воскресенье. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 3-й тур
+Чили — Австралия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D088776EC501621A8998D0B4CFC8E340EB7C3E43
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146210   (616591) от 28.06.2017
+
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Германия — Камерун (25.06.2017) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616591.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2017 года, воскресенье. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 3-й тур
+Германия — Камерун(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E79F2C544B558C03D12C2925DDCE9BE87F99DF9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145998   (616590) от 28.06.2017
+
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа A. 3-й тур. Новая Зеландия — Португалия (24.06.2017) HDTVRip
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_616590.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 июня 2017 года, суббота. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа A. 3-й тур
+Новая Зеландия — Португалия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:25
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146173   (616589) от 28.06.2017
+
+VA - Balearic Underground Part 1 (2017) [MP3|320 Kbps] <Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_616589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bekar-b - Gone To The Sky (Original Mix)  6:14
+02.  Vyacheslav Sketch - 5pm (Original Mix)  5:06
+03.  Farcoste - I Feel You In Thousand Kilometres (Original Mix)  6:22
+04.  Sunmote - Morseton (Original Mix)  3:04(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146245   (616588) от 28.06.2017
+
+Terry Gibbs - Bopstacle Course (1974) Xanadu Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_616588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bopstacle Course [04:41]
+02. Body And Soul [07:07]
+03. Waltz For My Children [04:45]
+04. Softly As In A Morning Sunrise [06:09](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146251   (616587) от 28.06.2017
+
+VA - Whos Afraid Of 138! Top 15 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signum - Euphoric Hope
+02. Ben Nicky - Cobra
+03. Chris Schweizer - Loaded
+04. The Noble Six - Chemicals(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD38E99E70DF6E8F55695969C7379890849BC855
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146186   (616586) от 28.06.2017
+
+VA - Heisse Ballerfrauen auf Mallorca Die Partyhits 2017 [MP3|320 Kbps] <Schlager, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ‘Die immer lacht’ – Die immer lacht 03:30
+02. Andy Luxx – Wir sind die Mallorca Familie 03:36
+03. Mallorca Cowboys – Eskalation 03:53
+04. Till Simon – Wenn sie tanzt 04:49(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4414320858767A6F335A74F2F9BBCD3F425608DF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145444   (616585) от 28.06.2017
+
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 2-й тур. Германия — Чили (22.06.2017) HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616585.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 июня 2017 года, четверг. 21:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 2-й тур
+Германия — Чили(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F28AC6CA3EA9BA12BE488224468B629578BE078
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911349   (616584) от 23.06.2015
+
+Elderoth - Mystic (2014) [MP3|320 кб/с]<Progressive Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Within
+02. Black and Blue
+03. This Shadow by My Side
+04. My Future(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4200D2E0444D2E45F81A68CAFD6614DB4B3EAE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911378   (616583) от 23.06.2015
+
+Vangough - Living Madness (2015) [MP3|320 кб/с]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depths of Blighttown (Live)
+02. Afterfall (Live)
+03. Separation (Live)
+04. Infestation (Live)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8534AD1B7848C97133AE5149BA6172DF6488F12
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911369   (616582) от 23.06.2015
+
+My Refuge - A Matter Of Supremacy (2015) [MP3|320 кб/с]<Progressive / Heavy / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Storm Is Coming
+02. The Cage (Oh Demon in My Eyes)
+03. Calling of the Wind
+04. Endless Night(   Читать дальше...   )Жанр: Progressive / Heavy / Power MetalПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC705A74C943BC5F46A531AF010B0A6DE6C4F5AE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911225   (616581) от 23.06.2015
+
+Pleuel - Durch die Wand (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Verfolgung Zu Unrecht
+02. Komplettkontrollverlust
+03. Hoffnung
+04. Durch Die Wand(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B324A51B6D8779C09930A33EEBC662749C2174E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911240   (616580) от 23.06.2015
+
+Aeon Rising - Aeon Rising (2015) [MP3|320 кб/с]<Progressive Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cleansing
+02. Realign
+03. Amenti
+04. The Chain(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B2E716FE6488F234234B54FFED931DD732C8A0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911377   (616579) от 23.06.2015
+
+Soldier - Defiant (2015) [MP3|320 кб/с]<Heavy Metal, NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616579.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Conquistador
+2. Leaving
+3. Kill Or Cure
+4. Concrete Wilderness(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8F94FE597F75CF7AFADE254C8DDF778A9C5B8E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911389   (616578) от 23.06.2015
+
+Immanent - Human Reflection (2015) [MP3|320 кб/с]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616578.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Disturbed Unconscious Mind
+2. Fallen From The eye
+3. Nothings Gonna Change
+4. Mad Happiness(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05E4345D8013584EBB19CBE94A53D3407EEFA37
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911208   (616577) от 23.06.2015
+
+Rosetta - Quintessential Ephemera (2015) Japanese Edition [MP3|320 кб/с]<Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After the Funeral
+02. (Untitled I)
+03. (Untitled II)
+04. (Untitled III)(   Читать дальше...   )Жанр: Post-MetalПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4744BDEA9DB0880B95308ECB3BA31BADEE248419
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911336   (616576) от 23.06.2015
+
+Downfall - A Place In Existence (2015) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginning Of The End
+02. Lights Out
+03. Mutual Demise
+04. My Path(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74289C3EC212D7BE2D9DC69491CD917B74BA1A53
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911697   (616575) от 23.06.2015
+
+Время покажет с Петром Толстым (23.06.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое дорогое, что есть у современного человека, - это квартира. Поэтому все операции с недвижимостью нуждаются в тщательной проверке, чтобы не остаться без жилья. Между тем, во всех регионах страны часты случаи, когда люди, прибегнувшие к услугам риелторов, остаются без квартиры и без денег.
+В первой части программы эксперты говорят о деятельности риелторов, пытаются (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0B90942FBCD29F0BCF4FE8DE48278735521064
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911204   (616574) от 23.06.2015
+
+Doomraiser - Reverse (Passaggio Inverso) (2015) [MP3|320 кб/с]<Traditional Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addiction
+02. Mirror Of Pain
+03. Ascension: 6 To 7
+04. Apophis(   Читать дальше...   )Жанр: Traditional Doom MetalПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62126E4AE47C18998514A42B9B8324A64B933DD9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911242   (616573) от 23.06.2015
+
+Smell My Pillow - Strawberry Lipgloss (2015) [MP3|320 кб/с]<Hard Rock, Female Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_616573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asphyxia
+02. Hung On You
+03. Not Happy
+04. Rotting From The Inside(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D373ADCD8BC141DC940DF70509C45022FB0CFA1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

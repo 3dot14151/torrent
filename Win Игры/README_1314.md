@@ -1,0 +1,695 @@
+###  Публикация: 1852642   (1055894) от 08.02.2026
+
+Daniel Gomez Blanco | Practical OpenTelemetry. Adopting Open Observability Standards Across Your Organization. First Edition (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn the value that OpenTelemetry can bring to organizations that aim to implement observability best practices, and gain a deeper understanding of how different building blocks interact with each other to bring out-of-the-box, vendor-neutral instrumentation to your stack. With examples in Java, this book shows how to use OpenTelemetry APIs and configure plugins (   Читать дальше...   )Жанр: Java Programming, Software Development, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED306E03E5BE8AEBA9203202EBFDD04599B105BE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852607   (1055893) от 08.02.2026
+
+Максим Мамаев | Цикл "Пепел. Вернуть Боярство" [24 книги] (2023-2026) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я прожил долгую жизнь, служа своей империи, и погиб, защищая её... А затем воскрес, но уже в альтернативной реальности, в которой правят Рода бояр и дворян, соперничающие друг с другом. Вот только память о прошлой жизни вернулась не сразу, и теперь я отлученный от Рода начну свой путь заново, и верну то, что по праву моё - собственное Боярство!Жанр: Попаданцы в магические миры, Бояръ-Аниме, Боевое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D334D55F3AAFE145445E9CF625B679A0C6632A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852640   (1055892) от 08.02.2026
+
+Yvonne Wilson, Abhishek Hingnikar | Solving Identity Management in Modern Applications. Demystifying OAuth 2, OpenID Connect, and SAML 2. Second Edition (2023) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Know how to design and use identity management to protect your application and the data it manages.
+
+At a time when security breaches result in increasingly onerous penalties, it is paramount that application developers and owners understand identity management and the value it provides when building applications. This book takes you from account provisioning to (   Читать дальше...   )Жанр: Computer Network Security, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B01171A6B504862A2F4FAD6B191EE44FF09F62
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852635   (1055891) от 08.02.2026
+
+Jeremy Gibson Bond | Introduction to Game Design, Prototyping, and Development. From Concept to Playable Game with Unity and C#. 3rd Edition (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn All the Design & Development Skills You Need to Make Great Games with Unity, the World's Most Popular Professional Game Engine
+
+If you want to design and develop games, there is no substitute for strong, hands-on experience with modern techniques and tools. That is exactly what this book provides. Leading instructor and indie game developer Jeremy Gibson (   Читать дальше...   )Жанр: Computer & Video Game Design, Game Programming, Computer Graphics & DesignЯзык: АнглийскийИздательство: Addison-Wesley ProfessionalФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF72CB7A2D285B7CE6E42AAB2887B5CF5E2A906
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852634   (1055890) от 08.02.2026
+
+Milecia McGregor | Full Stack JavaScript Strategies. The Hidden Parts Every Mid-Level Developer Needs to Know. 1st Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055890.jpg" />
+</div>
+
+
+###  Подробнее
+
+As a working software developer, you know how to complete your tasks with solid code, whether it's on the frontend or backend. Now you're ready to move to the next level in your career, and you need to understand the subtle yet deep skills it takes to become a senior developer. This practical book shows you everything it takes to create a full-stack web application (   Читать дальше...   )Жанр: Web Services, JavaScript Programming, Computer Systems Analysis & DesignЯзык: АнглийскийИздательство: O’ReillyФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AC2F53BBE625FF3503F36DE5B8D48BBA5B6249
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852631   (1055889) от 08.02.2026
+
+Oswald Campesato | Transformer, BERT, and GPT. Including ChatGPT and Prompt Engineering (MLI Generative AI Series). 1st Edition (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055889.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book provides a comprehensive group of topics covering the details of the Transformer architecture, BERT models, and the GPT series, including GPT-3 and GPT-4. Spanning across ten chapters, it begins with foundational concepts such as the attention mechanism, then tokenization techniques, explores the nuances of Transformer and BERT architectures, and culminates (   Читать дальше...   )Жанр: Artificial Intelligence, Artificial Intelligence Expert Systems, Natural Language ProcessingЯзык: АнглийскийИздательство: Mercury Learning and InformationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A473EFBA5DFEB0273BAB63C8390EFAFFBCCA79A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852628   (1055888) от 08.02.2026
+
+Ярослав Мечников, Павел Шимуро | Цикл "Творец Пламени. Системный Кузнец" [7 книг] (2025-2026) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погибший при исполнении пожарный Дмитрий просыпается в теле юного подмастерья Кая в суровом мире где власть измеряется силой кулака и качеством стали. Единственный шанс Дмитрия на спасение от голодной смерти — таинственная Система, которая дает ему цели, навыки и суровый ультиматум: достичь первой ступени Закалки Тела за три дня... или умереть окончательно. Теперь (   Читать дальше...   )Жанр: РеалРПГ, Попаданцы, ФэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F4CA19E545E4BE45F099389390C715B3E05E17
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852624   (1055887) от 08.02.2026
+
+Sergio Pereira | Generative AI for Software Development. Building Software Faster and More Effectively (2025) [EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055887.jpg" />
+</div>
+
+
+###  Подробнее
+
+How does Generative AI impact software development? In this practical guide, author Sergio Pereira shows you how to use this new technology to write better code in a fraction of the time. You'll learn how to leverage Generative AI at each step of a software feature's lifecycle, from brainstorming implementation ideas to writing and testing code to releasing features (   Читать дальше...   )Жанр: C & C++ Programming, Programming LanguagesЯзык: АнглийскийИздательство: O’ReillyФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0759FA1936A9649D0B0C42C7875638CD27EF6921
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852666   (1055886) от 08.02.2026
+
+IObit Uninstaller Pro 15.3.0.1 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055886.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC3B06B472637F871202598EBB938FF8A239AAE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852667   (1055885) от 08.02.2026
+
+VA - Heavy Hardstyle 2026 - Maximum Rave Force (2026) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
+
+>>Electronic
+>>Hardstyle, Jumpstyle, Hardcore (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Required - INTO IT (3:27)
+02. Diandra Faye - Final Call (3:07)
+03. IluSionerZ - Velvet Thunder (4:21)
+04. Fatal Menace - KEMIKAL (3:06)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0C91056AE7875E19790A14F0C3053F36054B38
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852516   (1055884) от 11.02.2026
+
+Три богатыря и свет клином (2025) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богатыри ждут пополнения в своих семействах, но отечество снова нужно спасать. Нагрянула невесть откуда взявшаяся огромная туча и грозит затмить весь белый свет и превратить день в ночь. Оставив дела семейные, богатыри бросаются навстречу опасности. А хитрый купец Колыван как будто этого и ждал — набрав себе в помощники злодеев из подручных Бабы Яги, он нападает (   Читать дальше...   )Производство: Россия, Кинокомпания CTB, Анимационная студия МельницаЖанр: мультфильм, комедия, приключенияРежиссер: Дарина ШмидтПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6191B943ED1E46E25A75BDC1DB7F917ACE3FAB34
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852058   (1055883) от 08.02.2026
+
+Количество просмотров видео на Rutube увеличилось в 3 раза в 2025 году
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055883.jpg" />
+</div>
+
+
+###  Подробнее
+
+По данным Аналитического центра Rutube, пользователи посмотрели видео на площадке суммарно 52,6 млрд раз в 2025 году. Рост по отношению к общей сумме просмотров за 2024 год составил 2,9 раза — 18,4 млрд просмотров.Суммарное количество просмотров продолжает расти. Так, уже в январе 2026 года показатель превысил 5 млрд, что больше результата за аналогичный месяц 2025 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852246   (1055882) от 06.02.2026
+
+Аркадий и Борис Стругацкие | Человек из Пасифиды (2025) [MP3, ReadMic]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как-то раз на японском побережье, недалеко от американской военной базы в грохоте и пламени возник Железный Человек. Большой стальной гость тут же был окружён местными жителями, американскими и японскими военными. С помощью переводчика удалось узнать, что он является представителем древнего и высокоразвитого народа, живущего в глубинах океана...Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1749F388BC8937F2B55BFF450F859EA34AE0B04
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852231   (1055881) от 06.02.2026
+
+Незнакомцы: Часть третья / The Strangers: Chapter 3 (2026) Telecine [H.264/1080p] [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055881.jpg" />
+</div>
+
+
+###  Подробнее
+
+В финале «Strangers» выжившие сталкиваются с новыми угрозами от незнакомцев в масках. На свет всплывают тайны, ставя их жизни под угрозу, и в их борьбе за выживание размывается грань между реальностью и смертельной опасностью.Производство: США / Fifth Element Productions, Elipsis Capital, Filmframe S.R.O.Жанр: ужасыРежиссер: Ренни ХарлинАктеры: Мэделин Петш, Ричард Брейк, Дженис Ахерн, Стефани Обертен, Гэбриел Бассо, Кайл Харрисон Брейткопф, Элла Брукколери, Бен Картрайт, Nicholas Chaif, Finn CofellПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:58Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:259FE28EEF2E52C17F16D82AB2AF167B2D127F7C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852232   (1055880) от 06.02.2026
+
+Незнакомцы: Часть третья / The Strangers: Chapter 3 (2026) Telecine [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055880.jpg" />
+</div>
+
+
+###  Подробнее
+
+В финале «Strangers» выжившие сталкиваются с новыми угрозами от незнакомцев в масках. На свет всплывают тайны, ставя их жизни под угрозу, и в их борьбе за выживание размывается грань между реальностью и смертельной опасностью.Производство: США / Fifth Element Productions, Elipsis Capital, Filmframe S.R.O.Жанр: ужасыРежиссер: Ренни ХарлинАктеры: Мэделин Петш, Ричард Брейк, Дженис Ахерн, Стефани Обертен, Гэбриел Бассо, Кайл Харрисон Брейткопф, Элла Брукколери, Бен Картрайт, Nicholas Chaif, Finn CofellПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:58Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655C9D097C64F1CABDC0727DB5F791E90D66963C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851451   (1055879) от 06.02.2026
+
+Дмитрий Кетов | Внутреннее устройство Linux, 3-е издание (2024) [PDF] [RU]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055879.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 3-м издании описаны механизмы принудительного разграничения доступа и контроля целостности, уникальные для российского защищенного дистрибутива Astra Linux и операционных систем в целом.  Учтены последние изменения в компонентах ОС и обновлены листинги примеров. Расширена глава про сетевую подсистему, добавлена глава по современным средствам трассировки, измерения (   Читать дальше...   )Жанр: Компьютеры и программыЯзык: РусскийИздательство: БХВФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87397BBB729AA1C91988815271F35071E25FF95F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852248   (1055878) от 06.02.2026
+
+Парень-каратист / The Karate Kid (1984) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055878.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одной из школ Лос-Анджелеса появляется новичок - тинэйджер по имени Дэниел. Он прибыл с восточного побережья вместе со своей матерью. Нелегко завести друзей на новом месте, где ты не знаешь никого, а тем более в школе, где управляет жестокая банда каратистов.
+
+Несмотря на свой юный возраст, члены банды очень опасны. Они называют себя Кобрами и жестоко «жалят» каждого, (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Delphi IIЖанр: драма, спорт, семейныйРежиссер: Джон Г. ЭвилдсенАктеры: Ральф Маччио, Пэт Морита, Элизабет Шу, Мартин Коув, Рэнди Хеллер, Уильям Забка, Рон Томас, Роб Гэррисон, Чэд МакКуин, Тони О’Делл и др.Перевод: Дублированный (Варус-Видео), многоголосый (РенТВ), одноголосый (В. Горчаков)Язык озвучки: Русский, английскийСубтитры: Русские, английские (full, SDH), немецкие, испанские (PGS)Продолжительность: 02:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5225DCBE31E14A97EAEFEBB30D517276A11C113C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852195   (1055877) от 06.02.2026
+
+Тарас Бульба (2009) WEBRip [H.264] [Полная версия]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в сложный период истории казачества, когда запорожцы боролись с Речью Посполитой. В пучине этих событий глубокую личную драму переживает казак Тарас Бульба: его младший сын, Андрий, полюбил прекрасную дочь польского воеводы и хочет бежать из Сечи. Раздираемый чувством и долгом Тарас объявляет сыну последнюю родительскую волю…Производство: Россия / АРК-фильм, Централ Партнершип, Канал РоссияЖанр: боевик, драма, военный, историяРежиссер: Владимир БорткоАктеры: Богдан Ступка, Игорь Петренко, Владимир Вдовиченков, Магдалена Мельцаж, Любомирас Лауцявичюс, Ада Роговцева, Михаил Боярский, Сергей Дрейден, Юрий Беляев, Лесь Сердюк и др.Субтитры: отсутствуютПродолжительность: 02:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04695482757316C2A401DD4CCFDB897F5A24A11D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852175   (1055876) от 06.02.2026
+
+4K Video Downloader + 26.0.2.0282 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2026Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS (12+)Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F3106E72C663039F527E9A1BBE6C29DE5C5FD2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852238   (1055875) от 06.02.2026
+
+Lost Frequencies - Tomorrowland Friendship Mix (2026-02-05) [MP3|320 Kbps] <Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies & CIEL. & Radio Cargo - Listen To Me
+02. Lost Frequencies & Argy ft. rhys from the sticks - Summer Skies (Lost Frequencies Deluxe Mix)
+03. MEDUZA - No Sleep
+04. Delta Vaults & Jordan Arts - Drowning(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B23DD34D49AFFFFC8EA067F15605AFAFB4D0A5C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852250   (1055874) от 06.02.2026
+
+Ксения Баштовая, Виктория Иванова | Тёмный принц (Книги 1-5) (2025) [MP3, Анастасия Болотина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все произведения цикла «Темный принц» в одном томе (3 романа+2 рассказа).
+Младший сын Темного Властелина сбегает учиться в Светлые земли, прихватив с собой команду пленных героев.
+Ироничное фэнтези о приключениях юного аристократа, жаждущего доказать свою самостоятельность.
+Что делать, если ты самый младший сын Темного Властелина, тебе уже целых семнадцать лет, а (   Читать дальше...   )Жанр: Приключенческое фэнтези, ироническое фэнтезиИздательство: Аудиокнига (АСТ)Продолжительность: 33:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF34CB147ACD93828F812E06E1FCE92ADFE5CD3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852247   (1055873) от 06.02.2026
+
+Дмитрий Видинеев | Жучиный пустырь (2025) [MP3, Алекс Зборовский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Садовник Вениамин жил тихо, проблем избегал, на хамство отвечал молчанием и очень надеялся прожить так до конца своих дней. Но увы - на пути повстречался странный, не признающий никаких правил тип по имени Медовар, который с помощью мистических жуков способен творить чудеса. И началась у скромного садовника иная жизнь – жизнь, полная авантюр. Жизнь, похожая на нескончаемый (   Читать дальше...   )Жанр: Фэнтези, Мистика, УжасыИздательство: Аудиокнига своими рукамиПродолжительность: 10:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD139517585131E1EBCA2C72583FB4B8ED26DB33
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852245   (1055872) от 06.02.2026
+
+Алексей Константинов | По ту сторону 13 рассказов (Книга 2). Больничка (2025) [MP3, Алекс Зборовский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студент-пятикурсник Юра Шевелёв начинает собирать материалы о городской психиатрической больнице, которая "прославилась" на весь город в семидесятые из-за скандальной истории с гибелью сразу нескольких пациентов. Оказывается, что отец его хорошей подруги Пётр Гаврилович работал в тот период времени санитаром в той больнице. Нарушив данное подруге обещание (   Читать дальше...   )Жанр: Мистика, УжасыИздательство: Аудиокнига своими рукамиПродолжительность: 04:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0577C5E0B68AB6ABAA335D48D0CB28E671DD9634
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852237   (1055871) от 06.02.2026
+
+Анна Пронина | Ленка и мертвецы (Книга 1). Ленка и мертвецы: истории о потустороннем (2024) [MP3, Софья Лебедева, Кирилл Радциг]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как договориться с покойником? 13 историй о ясновидящей из русской глубинки
+Ленка — обычная деревенская девушка… с даром медиума. Она связывает собой сразу два мира — земной и потусторонний, и помогает мертвым обрести покой, а живым возвращает мирный сон. И хотя Ленка убеждена, что этот дар приносит ей одни неприятности, именно благодаря ему она раскрывает преступления, (   Читать дальше...   )Жанр: Мистика, ХоррорИздательство: ВИМБОПродолжительность: 08:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6FDDA4C2844A00E382CF6963D7CB20C57D75AF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852225   (1055870) от 06.02.2026
+
+Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, In Search Of Sunrise, HERE at Outernet London (2026-02-05) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz x BLR - Ten Seconds Before Sunrise
+02. Robert Nickson pres. RAHB - Heliopause 2025
+03. Markus Schulz & Matt Fax - The New World
+04. Markus Schulz - Remember This (ID Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BD10CDB48059921378A0493B1E34741AA52E56
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852223   (1055869) от 06.02.2026
+
+Полина Минк | Кто позвал меня (2024) [MP3, Танья Мун]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_1055869.jpg" />
+</div>
+
+
+###  Подробнее
+
+После аварии, унесшей жизни родителей Эммы пять лет назад, часть событий безвозвратно выпала из памяти. Теперь девушку еженочно преследуют странные пугающие сны. Она не теряет надежды вернуться к нормальной жизни в новом городе. Но внезапно ей звонит старшая сестра, с которой Эмма давно не общалась. Наташа умоляет ее вернуться в поселок Синяя Заводь как можно скорее, (   Читать дальше...   )Жанр: Мистика, ТриллерИздательство: ЛитРесПродолжительность: 07:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9392BB5D4AE01D121087DDE2770AC17C2FEA24
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

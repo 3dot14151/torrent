@@ -1,0 +1,779 @@
+###  Публикация: 442542   (91518) от 27.01.2012
+
+VA - Euphoric Airlines Volume 14 (2012) [MP3|320 kbps]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+001. Headstrong feat. Stine Groove - Tears (Aurosonic Progressive Mix)
+002. John O'Callaghan feat. Cathy Burton - Perfection
+003. Marco V - Unprepared (Recharged Original Mix)
+004. Gareth Emery feat. Lucy Saunders - Fight The Sunrise (Original Extended Mix)
+005. John '00' Fleming - Mmx1215 (Original Mix)
+006. Josh Gabriel Pres Winter Kills - Hot As Hades (Original Mix)
+007. Kyau & Albert - A Night Like This (Original Mix)
+008. Marcia Juell - Calling (5aint's Airplay Extended Mix)
+009. Mark Otten - Libertine
+010. Ferry Corsten - Feel It (Vegas Baby! Remix)2012Жанр: Vocal TranceПродолжительность: 02:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDE9AFAD0F5F069BFD991FC896F6F1CDEFE10B6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442902   (91517) от 27.01.2012
+
+[Wallpapers] Collection HQ Wallpapers №38
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Collection HQ Wallpapers №38Название: Collection HQ Wallpapers №38
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:857FAFD4FE48B71A9DC9705F437C05EEBCA16FD7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442350   (91516) от 27.01.2012
+
+[Wallpapers] Casual Wallpapers (27.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14EFD33B142F21E2B416205EF15AE5291E7E5C50
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442919   (91515) от 27.01.2012
+
+Даешь, молодежь! Выпуск №126 (2012) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+В институте и в ночном клубе, в кино и на скамейке в парке, в фитнес-клубе и на пляже — они шутят везде! Актеры сериала то и дело перевоплощаются в фитнес-тренеров и метросексуалов, представителей «золотой молодежи» и призывников-гопников, растаманов и готов — в общем, показывают молодежную субкультуру во всем ее многообразии.Жанр: ТелепередачаПродолжительность: 00:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9DC65B2B7657A399F3E22D125E80D828581B02
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442496   (91514) от 27.01.2012
+
+Следопыт с Глебом Данильцевым (следовые дорожки околоводных куниц, норка) (2009) TVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Серия (следовые дорожки околоводных куниц, норка) из цикла Следопыт с Глебом Данильцевым - это серия передач, знакомящая зрителя с навыками и знаниями, необходимых для успешных, приятных и безопасных походов в лес. Как правильно и где развести костёр, как вести себя в сумерках и зимней ночью, кого из животных и насекомых стоит опасаться и, наконец, чем помочь себе если неприятности уже произошли - об этом расскажет автор и ведущий передачи Глеб Данильцев.Жанр: ТелепередачаПродолжительность: 00:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B245ADF651672ACF30786CD526975BA82B5CA48
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440437   (91513) от 27.01.2012
+
+Arxi & Princip - Ostrova (2011) [MP3|320 kbps]<Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Утро
+03. Ночь
+04. Эссе
+05. Модули Такта
+06. Им Вечно Мало
+07. Бесславный Солдат
+08. Палитра Дня (Скит)
+09. Палитра Дня
+10. Острова (Скит)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A92C63892E2356BC0486CF29F671AFD03F5E62
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442249   (91512) от 26.01.2012
+
+VA - ReOrder - The Definitive Collection Vol.2 (2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. ReOrder feat. Stine Grove - Biscay Bay
+02. ReOrder feat. Stine Grove - Biscay Bay (Ferry Tayle Neverending Story Dub)
+03. ReOrder feat. Stine Grove - Biscay Bay (Akira Kayosa Remix)
+04. ReOrder feat. Stine Grove - Biscay Bay (Estigma Remix)
+05. ReOrder feat. Stine Grove - Biscay Bay (Estigma Dub)
+06. ReOrder feat. Stine Grove - Biscay Bay (ReOrder Deep Dub)
+07. ReOrder feat. Stine Grove - Biscay Bay (Joel Gershom Remix)
+08. EDU feat Aelyn - Taken Away (ReOrder Remix)
+09. Timo Pralle - White Clouds (ReOrder Remix)
+10. ReOrder - Never More A Sleeper(   Читать дальше...   )2012Жанр: TranceПродолжительность: 02:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6E6917C73953923CE1730C7ECEDFAF53E9C2DF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442460   (91511) от 26.01.2012
+
+DJ Polovka - House Outbreak Mix (26.01.2012) [MP3|256 kbps]<Disco House, Funky House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01.Sanya Shelest - Funkera (Southland DJs remix)
+02.Cevin Fisher - You Got Me Burning Up! (feat Loleatta Holloway - Supernova in stereo mix)
+03.Les Schmitz & Alex Del Amo - Everybody Get Up (Crazibiza remix)
+04.Jason Chance & Kevin Andrews - Dizko
+05.Rihanna feat. Calvin Harris – We Found Love (Extended Mix)
+06.Bob Sinclar & Raffaella Carra - Far L'amore (Club Mix)
+07.Josh The Funky 1 - Everynight (Anthony Ross remix)
+
+Время раздачи: До 21,по Киевскому времени...26.01.2012Жанр: Disco House, Funky HouseПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFBB7C7E4DD30420843DCF1199BED020C6AED67
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442098   (91510) от 26.01.2012
+
+[Wallpapers] Best HD Wallpapers Pack (26.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06F447FBED355E92D05EF545ED2E345AB739E8E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439601   (91509) от 26.01.2012
+
+Der Plan - Geri Reig (2011) [FLAC|Lossless]<New Wave, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01 Adrenalin Lasst Das Blut Kochen 3:11
+02 Geri Regi 2:34
+03 Persisches Cowboy Golf 1:17
+04 Gefahrliche Clowns 3:18
+05 Kleine Grabesstille 1:04
+06 Der Welaufstandsplan 2:43
+07 Hans Und Gabi 3:13
+08 Commerce Exterieur Mondial Sentimentale 2:39
+09 Was Ich Von Mir Denke 3:33
+10 San Jose Car Muzak 2:56(   Читать дальше...   )2011Жанр: New Wave, ExperimentalПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442206   (91508) от 26.01.2012
+
+Joey DeFrancesco - 40 (2011) [APE|Lossless]<Jazz,Hard Bop,Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Donny's Tune (5:07)
+02. Ashley Blue (7:01)
+03. Gloria (5:48)
+04. 100 Ways (9:10)
+05. I Got a Woman (7:16)
+06. V & G (6:22)
+07. Life is God (6:40)
+08. Bluz 'n' 3 (6:12)
+09. Caruso (5:44)Жанр: Jazz,Hard Bop,Post-BopПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442414   (91507) от 26.01.2012
+
+VA - Internal Affairs 2 (2012) [MP3|320 kbps]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Sunchase - Warm Space
+02. Pessimist - Syncopation
+03. Atmospherix - Full Force
+04. Atom - In The Middle
+05. Clarity - Head Rush
+06. June Miller & Syntex - Sleep
+07. Data - Termite
+08. Nickbee & Malk - Human Race
+09. Mikal - Without A Trace
+10. Blocks - Undercurrents(   Читать дальше...   )2012Жанр: Drum & BassПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9772503121677EADA6F64D2E1EE17C5C56C25D5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442344   (91506) от 26.01.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (27.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3734234A665273EA8CB935B9153036B58D1990
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441484   (91505) от 26.01.2012
+
+[EN] Холм Харлея / Harley's Hill (2011) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_91505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харлей, чистокровный скакун, найден владельцем ранчо и его дочерью. Не найдя владельца,  девочка берет Харлея как партнера на соревнованиях.Жанр: СемейныйРежиссер: Дон МостАктеры: Кристофер Аткинс, Кристин Дорн,  Дебора Дуда-ТомпсонПеревод: ОтсутствуетПродолжительность: 01:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A4590EB52D542370255C833D1C2DBFECE20856
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442157   (91504) от 26.01.2012
+
+Журнал | Любимая дача №2 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+«Любимая дача» - это популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным; полезные советы о нахождении на садовом участке и за его пределами; информация о том, как выращивать овощи и фрукты на дачном участке и что делать с урожаем.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F83B1B677DD7E6BF439689AF81B58CF4B9165C5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442139   (91503) от 26.01.2012
+
+Sumatra PDF 2.0.5274 + Portable [Multi/Русский]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -файлов. Программа быстро работает, имеет очень простой дизайн, не загружает систему, может запускаться с внешних USB-карт. Минималистский дизайн программы с лихвой искупается ее очень шустрой работой, что выгодно отличает Sumatra PDF от того же Adobe Reader. В этой версии улучшена обработка документов, добавлен диалог настроек, улучшена обработка юникода, добавлена возможность не вести историю просмотренных файлов, улучшена поддержка SyncTeX, введена новая иконка для PDF-файлов и исправлены ошибки. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440883   (91502) от 26.01.2012
+
+Ralph Mirto - Chimera EP (2012) [MP3|320 kbps]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Caustic (Alex Bau Remix) (6:41)
+02. Squeeze (Perc Remix) (7:17)
+03. Chimera (Original Mix) (6:33)
+04. Deep Sleepless (Original Mix) (7:33)
+05. Caustic (Original Mix) (7:30)
+06. Repressed City (Original Mix) (8:03)
+07. Squeeze (Original Mix) (8:03)2012Жанр: TechnoПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5B8E1DA6799AE419B2D4237BF8B5653F09037C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441987   (91501) от 26.01.2012
+
+VA - Red Hot + Dance (1992) [MP3|192 kbps]<Dance, Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_91501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Michael — Too Funky
+02. George Michael — Do You Really Want To Know
+03. George Michael — Happy
+04. Madonna — Supernatural (Sly & Robbie’s Original Arms House Mix)
+05. Seal — Crazy (Ben Chapman’s If I Was Trev Mix)
+06. P.M. Dawn — Set A Drift On Memory Bliss (Richie Rich Mix)
+07. Lisa Stansfield — Change (Frankie Knuckles’ Metamorphosis Mix)
+08. Young Disciples — Aparently Nuthin’ (Nellee Hooper’s Re-Rub)
+09. Sabrina Johnston — Peace (David Morales’ Nu-Mix)
+10. Sly and The Family Stone — Thank You (Falettin Me Be Mice Elf Agin) (Todd Terry’s CD Mix)(   Читать дальше...   )1992Жанр: Dance, PopПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436B92CFD9D4B8BEDF497FB72665E6BEE0FEE144
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441376   (91500) от 26.01.2012
+
+VA - 100 Degrees Fahrenheit (2012) [MP3|320 kbps]<Drum'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Brother - riverbank (05:59)
+02. Ali featuring dRamatic & dbAudio - everything (05:55)
+03. Command Strange & Dynamic - the beautiful things (05:12)
+04. Derrick and Tonika - forward thinking (06:03)
+05. Incident & Command Strange - hidden stairs (05:34)
+06. Dynamic & Intelligent Manners - late night special (05:18)
+07. Incident - 3 words (04:49)
+08. Physical Illusion - day away (06:22)
+09. Static & Scott Allen - eastern horizon (07:02)
+10. Centrik & Grimm - don't wanna do this (06:17)(   Читать дальше...   )2012Жанр: Drum'n'BassПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EE5131177C05F0E4B7350C51510B5C446210BD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441936   (91499) от 26.01.2012
+
+Гуахо - На пути в Икстлан (2011) [MP3|320 kbps]<Esoteric Gothic Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. bhitabhavana (intro) [00:02:01]
+02. Магия [00:04:17]
+03. Гуахо [00:04:06]
+04. Восток [00:04:18]
+05. Когда Садится Солнце [00:03:42]
+06. Позади Одни Огни [00:04:49]
+07. Коллаж [00:00:53]
+08. Эра Водолея [00:04:28]
+09. Пралайя [00:04:45]
+10. Сумерки (Для тех, кто уходит) [00:05:41](   Читать дальше...   )2011Жанр: Esoteric Gothic MetalПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17CF936D67CD286134B391E827929DE3EA6481E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441763   (91498) от 26.01.2012
+
+На дорогах Германии появился первый автомобиль-робот BMW, способный передвигаться полностью самостоятельно.
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+В последнее время мы много слышали, читали и видели об автомобилях-роботах, которые, благодаря целой системе всевозможных датчиков и умной компьютерной системе управления, могут передвигаться по дорогам в автоматическом режиме, без участия человека-водителя. Автомобиль-робот Google, Audi TTS, Volkswagen и другие. А теперь к этому списку можно добавить и баварского автомобильного гиганта BMW, чей автомобиль-робот не просто выехал на дорогу, а совершил самостоятельный переезд в сложных условиях интенсивного дорожного движения на одном из немецких автобанов.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442096   (91497) от 26.01.2012
+
+[Wallpapers] Wallpapers Mix (26.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7803DBCB1B9171397F8D5592C07F34303AF43C6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442083   (91496) от 26.01.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (26.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E102173B6D6B210C715B3E16BA67DBFB1A5AA9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442341   (91495) от 26.01.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (27.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84805D9F8296C442CF2198F6DC7F719AE844BF83
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442266   (91494) от 26.01.2012
+
+Журнал | Бабушкина грядка №11-12 [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Работы в саду и на огороде плюс народный календарь и приметы.2011 / ноябрь-декабрьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4226580B8198A992F7CE67F3606E17C536D09D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441173   (91493) от 25.01.2012
+
+Ewan Rill - High Voltage Of My Heart (2012) [MP3|320 kbps]<Tech House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Apple
+02. Eat Me
+03. Eat Me (Nicholas Van Orton Remix)
+04. Dreaming About Calm
+05. Dreaming About Calm (Martin Etchegaray & Sebastian Lah Remix)
+06. High Voltage Of My Heart
+07. 2000 Years Ago2012Жанр: Tech House, ProgressiveПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B023A96CCC898658C0ED040348502F62F197040
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

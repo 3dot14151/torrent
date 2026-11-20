@@ -1,0 +1,786 @@
+###  Публикация: 541464   (501496) от 31.08.2012
+
+VA - Ночной эфир - Выпуск 50/50 (2012) [MP3|320 kbps]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501496.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wynter Gordon - Stimela
+002. Андрей Леницкий &amp; St1ff И Mc Pasha - Любовь Сохрани
+003. Gary Barlow &amp; The Commonwealth Band - Sing
+004. Sandro Monte Feat. Mischa Daniels &amp; J-Son - Simple Man
+005. Lmfao - Party Rock Anthem
+006. Rudimental Feat John Newman - Feel The Love
+007. T.O.T.A.L. И Антитіла - Весна-Любовь
+008. The Saturdays - All Fired Up
+009. Eleni Foureira - Ti Poniro Mou Zitas
+010. Arash Ahangari - Ahange Zamoone(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC4A34633C4E8FDFE090DC382449230301A4E7A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541161   (501495) от 31.08.2012
+
+VA - Super вечеринка радио Рекорд 50/50 (2012) [MP3|256 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Fresh feat. Rita Ora - Hot Right Now (Radio Edit)
+02. Chukie Feat Gregor Salto - What Happens In Vegas
+03. Loreen - Euphoria
+04. Ole van Dansk - Mary's Prayer
+05. Nelly Furtado - Big Hoops
+06. The Party Must Go On (feat. Lori Glori)Жанр: ClubПродолжительность: 06:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C67245B09555479E8E2CDC1C8BEBEA08362F41
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541774   (501494) от 31.08.2012
+
+Count Indigo – Homme Fatale (2003) [FLAC|Lossless]<House, Downtempo, Synth-pop, Disco>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воистину роковой мужчина ("homme fatale") - знойный мулат, со жгуче сияющим черепом и бородой-эспаньолкой. Граф Индиго! (Настоящее имя - Брюс Маркус). Трепещите, герцогини и пейзанки, дамы и телки! Зажигательное диско, вкрадчивый сексуальный голос и аристократические манеры способны совратить любую. Включая вашу подругу. К счастью, граф далеко. (А.К.Троицкий)01. Trinity, Part II (Bringing Out the Devil) :: 05:27
+02. What Makes You So Special :: 05:21
+03. Low Fidelity :: 04:51
+04. Loving It Back Again :: 03:05
+05. Sly Comforts :: 05:03
+06. Homme Fatale :: 05:46
+07. If I Could Give You Anything :: 04:07
+08. Exclusively Yours :: 04:06
+09. Shopping for Love :: 05:10
+10. Playboys R'Us :: 05:07(   Читать дальше...   )Жанр: House, Downtempo, Synth-pop, DiscoФормат: CD, AlbumПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541497   (501493) от 31.08.2012
+
+VA - Summer Vibes 2012 (Artist Recordings A017LP, 2012) [MP3|320 кб/с]<Drum'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Rameses B & Holly Drummond - Dreaming (5:02)
+02. Command Strange - Summer Time (4:52)
+03. Moleman - Wip June (4:50)
+04. Genetic Bros - Time Machine (5:14)
+05. Slogun & iOh - Be With You (4:53)
+06. Colossus - Longer Lasting (5:15)
+07. Cardmoth - Waiting Summer (4:11)
+08. Inflex - Take Away (feat. Katie's Ambition) (5:20)
+09. Maduk - Voyager (5:21)
+10. Tobax - Light Contrast (5:17)(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB35E4D5FDC2F144A39FA746E94EDFE3189EF8C1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516521   (501492) от 31.08.2012
+
+Paul Oakenfold - Full On Fluoro 001 - 016 (2011-2012) [MP3|256 кб/с]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full On Fluoro - Intro (00:54)
+02. Day.Din - Halkidiki (04:54)
+03. Day.Din & Alfredo Garcia - Theory Of Mind (05:47)
+04. Paul Oakenfold - Tokyo (06:50)
+05. Vaishiyas - Satisflaxion (04:38)
+06. Neelix vs. PPK - Ask The Right Questions (Dirtyloud Remix) vs. Resurrection (Paul Oakenfold Mash Up) (05:19)
+07. Underworld vs. Danny Corsten - Timeless (03:14)
+08. Zuri vs. Narcotic Influence - Giving Them Drugs (ID Mash Up) (04:38)
+09. Beatman & Ludmilla - In Breaks We Trust (07:11)
+10. Solesystem & El Aero - Birds (Line Of Sight Remix) (05:04)(   Читать дальше...   )01.	Full On Fluoro - Intro	(00:56)
+02.	Lou Pigalle - Brothers In The World	(02:58)
+03.	John Moss - Green Landings	(02:57)
+04.	Adele vs. Paolo Mojo & Eric Prydz - Set Fire To 1983 (Kenneth Thomas Mashup)	(04:40)
+05.	Alessandro - At Night	(04:22)
+06.	Poncho feat. Paul Oakenfold & Maxi Trusso - Please Me (Flesh & Bone Remix)	(05:03)
+07.	Stefano Noferini - That's Good (Christian Cambas Remix)	(03:12)
+08.	School Of Seven Bells - Reappear (Thomas Datt Remix)	(05:08)
+09.	TeeEx - Unbreakable	(04:22)
+10.	Ronski Speed - Proton12 (Maor Levi Remix)	(05:48)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA43659A84B14B9CF812A8156917FCC47FF6701
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541682   (501491) от 31.08.2012
+
+PLC - Воздух (2012) [MP3|320 кб/с]<Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Начало
+ 02. Первый (при уч. Chest)
+ 03. Это Юг
+ 04. Время
+ 05. Для Тебя (при уч. Nady)
+ 06. Город спит (при уч. Nady и Вероника Ли)
+ 07. Пепел (при уч. СКВО и А.Труфман)
+ 08. Последний день
+ 09. Я иду вперед
+10. Воздух(   Читать дальше...   )Жанр: Hip-Hop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC39BCD6D3B4FC69FAEAEC74DC3979F5A71C9B8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541559   (501490) от 31.08.2012
+
+Landscapes HD Wallpapers (30.08.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E9433F432A0F82D15AC96A96EA4882BB214030
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541205   (501489) от 31.08.2012
+
+Get Well Soon - The Scarlet Beast O'Seven Heads (2 CD Limited Edition) (2012) [FLAC|Lossless]<Alternative, Indie Rock, Folk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501489.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Prologue
+02. Let Me Check My Mayan Calendar
+03. The Last Days Of Rome
+04. The Kids Today
+05. Roland, I Feel You
+06. Disney
+07. A Gallows
+08. Oh My! Good Heart
+09. Just Like Henry Darger(   Читать дальше...   )Жанр: Alternative, Indie Rock, FolkПродолжительность: 00:54:18 / 00:18:13
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541645   (501488) от 31.08.2012
+
+Markus Schulz - Scream (Extended Mixes) (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz - Scream (Extended Mixes) (2012)
+
+Год: 2012
+Жанр: Trance
+Продолжительность: 02:25:13Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Markus Schulz - Our Moment (Intro Mix) (1:36)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A8196BAF70C9BE3EF3E327B20423BE4D7CE182
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564240   (501487) от 17.07.2022
+
+InShot - Фото и видеоредактор 1.840.1360 Mod by Apps Store [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501487.jpg" />
+</div>
+
+
+###  Подробнее
+
+InShot - Фото и видеоредактор - очень впечатляющее своими возможностями и удобством приложение, что завоевало стойкую положительную репутацию у пользователей мобильных гаджетов. Проект представляет собой фоторедактор и видеоредактор, а так же обладает функцией превращения статичных изображений в так называемые живые фотографии. Не стоит ожидать от программы внешность (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.07.2022Разработчик: InShot Video EditorЯзык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43281354209FF4C2138F0055C465BD6257156A8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380222   (501486) от 26.08.2011
+
+Журнал | Мировая авиация №133 (август 2011) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Самая полная коллекция об авиации. Военные и гражданские самолеты, воздушные бои и пилоты-асы, авиатехнологии и история авиации, вертолеты, авиация специального назначения и многое другое.
+Журнал представляет интерес для широкого круга читателей интересующихся авиацией. Множество статей о разработке, эксплуатации, боевом применении воздушных судов. Схемы окраски, технологические схемы, карты боевых действий, расследование авиакатастроф, авиация в лицах - темы способные заинтересовать многих. Маленький объем каждого выпуска компенсируется переодичностью (еженедельно), в итоге за месяц получается более-менее приличное издание.2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB41E79FE2EB49477B63F854401382C2C4569AE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463223   (501485) от 17.07.2022
+
+Синяя птица / The Blue Bird (1940) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая история, основанная на германских сказаниях, как брат и сестра ищут Синюю птицу для исполнения своего желания и попадают в разные места и времена. Основан фильм на пьесе бельгийского драматурга Мориса Метелинка (опубликованной в 1908 году и первая экранизация была в 1910 году) и был задуман как ответ на фильм студии "Twentieth Century-Fox", которые (   Читать дальше...   )Производство: США, Twentieth Century Fox Film CorporationЖанр: фэнтези, драма, семейныйРежиссер: Уолтер ЛэнгАктеры: Ширли Темпл, Спринг Байингтон, Найджел Брюс, Гэйл Сондергаард, Эдди Коллинз, Сибил Джейсон, Джесси Ралф, Хелен Эриксон, Джонни Расселл, Лора Хоуп Крюз, Расселл Хикс, Сесилия Лофтус, Эл Шин, Леона Робертс, Джин РейнолдсПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDDBECF1F3DA709EB3C438463034299BA0D67E6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317356   (501484) от 31.07.2019
+
+A Hundred Birds - To The EdEN (2007) [MP3|320 Kbps] <Ambient, Jazzdance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hundred Birds feat. TeN - Feeling Your Bright Light (Album Version) (5:54)
+02. A Hundred Birds feat. TeN - Jungle Kitten (6:24)
+03. A Hundred Birds feat. TeN - Because THe Way Love Is (Album Version) (5:20)
+04. A Hundred Birds - Love Is A Master of Disguise (5:40)(   Читать дальше...   )Жанр: Ambient, JazzdanceПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18B7221388303A74CD6CE170F45F396CDF5C0B2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317370   (501483) от 31.07.2019
+
+Anouar Brahem - Blue Maqams (2017) ECM Records [FLAC|Lossless|image + .cue] <World Fusion, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Day [7:01]
+02. La Nuit [10:29]
+03. Blue Maqams [8:42]
+04. Bahia [8:46](   Читать дальше...   )Жанр: World Fusion, Modern CreativeПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20061B5CCEF1348DF3F1FE4049CD0DA95803AD95
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317282   (501482) от 31.07.2019
+
+maria - Cor e Forma (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (fonte) (1:41)
+02. Padrão de azul (5:17)
+03. Volta (feat. João Tamura) (9:31)
+04. I can feel your green Vibes (3:07)(   Читать дальше...   )Производство: Monster JinxЖанр: Hip-Hop, Instrumental, ElectronicПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7802BEFA054D9044BEEC1BF1BBAB909D9C67010A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380512   (501481) от 26.08.2011
+
+VA - NeРусский Шторм 32 (2011) [MP3|320 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Alessia - Loca Por Tu Boca (Radio Edit)
+02. Asco Feat. Veronika – Disco Party (Radio Edit)
+03. Avril Lavigne – Wont Let You Go
+04. Darren Hayes – Talk Talk Talk (Radio Edit)
+05. David Deejay Ft. Dony – Change Your Heart
+06. David Guetta feat. Chris Brown & Lil Wayne – I Can Only Imagine
+07. David Guetta Feat. Sia – Titanium
+08. Deepcentral – Speed Of Sound (Radio Edit)
+09. Dj Aptekar feat Monika Star – A Dream With In A Dream (Remix Radio Edit)
+10. Dj Carmixer & Dj Save & Dj Francy M Feat. Rick Flow – La Noche Caliente (Radio Mix)(   Читать дальше...   )2011Жанр: Pop | DanceПродолжительность: 02:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1374C5ABFC13842B9A41BAABF0A90078A50C4F37
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564143   (501480) от 17.07.2022
+
+Cockos REAPER 6.64 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEF86BD559528BDD5F18EB275A870CBBB51B393
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317301   (501479) от 31.07.2019
+
+Outsidr - Rapture EP (2019) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twilight (03:42)
+02. Nomad (03:28)
+03. Obsidian (03:51)
+04. Rapture (03:51)(   Читать дальше...   )Жанр: Future Garage, AmbientПродолжительность: 00:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7386965432965AA04A285A2F15AB8795B098A85A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380300   (501478) от 26.08.2011
+
+VA - The Rough Guide To The Music of Tanzania (2006) [FLAC|Lossless] <world, ethnic african>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_501478.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:01] 01. Vijana Jazz Band - Tambiko
+[04:27] 02. X Plastaz - Dunia Dudumizi
+[05:48] 03. Saida Karoli - Omukaile Kilinjwi
+[06:17] 04. Ikhwani Safaa Musical Club - Vingaravyo
+[05:49] 05. Mlimani Park Orchestra - Rehema
+[04:46] 06. The Master Musicans Of Tanzania - Lukunzi
+[06:48] 07. Mohammed Issa Matona - Msumeno
+[05:29] 08. Ndala Kasheba - Nimlilie Nani
+[04:35] 09. Dataz - Mume Wa Mtu
+[06:37] 10. Nia Safi & Imani Ngoma Group - Kibati(   Читать дальше...   )2006Жанр: world, ethnic africanПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379189   (501477) от 26.08.2011
+
+[Wallpapers] Sexy Girls Pack №64 [jpg]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Сексуальные обои на рабочем столеФормат: jpg
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2593FEFA1ED7FEAB202E3BE6E2D3819974FC025
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379862   (501476) от 26.08.2011
+
+Особо опасно. Возраст (2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Почему погиб Виктор Цой, Высоцкий, Галкин...?
+Кризис среднего возраста и связанное с этим разочарование в жизни, алкоголизм, наркомания, суицид... Как справиться с этим?
+Почему дети и подростки такие жестокие?
+Почему женщины после сорока бросаются во все тяжкие?
+На эти и многие другие вопросы вы найдёте ответы в этом фильмеЖанр: ДокументальныйПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C25A7AF1466423E521AEE41422C3F7752927ADD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317412   (501475) от 31.07.2019
+
+Туфли с золотыми пряжками (1976) DVD5 (серии 1-2 из 2)
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_501475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Иванушки плетёт лучшие во всей округе лапти. Своё умение он передал сыну, но что-то грустно стало в последнее время Ивану и он отпросился у родителей сходить на ярмарку, купить себе немного счастья. Деньги — полный кошель медяков, он по дороге истратил. Половину дал разбойникам, чтобы выручить из беды скомороха Тимоню, а другую у него выманил ярмарочный плут. (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: Детский, сказка, мьюзикл, комедияРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Лев Дуров, Александр Хочинский, Вера Кузнецова, Ирина Малышева, Юрий Медведев, Владимир Старостин, Павел Винник, Владимир Герасимов, Петр Бенюк, Георгий ШтильСубтитры: ОтсутствуютПродолжительность: 01:04:02 + 01:04:19
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564054   (501474) от 17.07.2022
+
+Последняя миссис Андерсон / La ultima senora Anderson (The Fourth Victim) (1971) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супруга Артура Андерсона Глэдис погибла при таинственных обстоятельствах, которые дали почву для подозрений против ее мужа. Тем не менее, суд полностью оправдал Артура, несмотря на то, что инспектор Скотланд-Ярда Данфи сделал все, чтобы тот оказался на скамье подсудимых. Вскоре вернувшийся домой мистер Андерсон обнаружил, что в доме по соседству поселилась очаровательная (   Читать дальше...   )Производство: Италия, Estudios Cinematográficos, Filmayer, Tritone CinematograficaЖанр: детектив, мелодрама, триллер, ужасыРежиссер: Эухенио МартинАктеры: Кэррол Бейкер, Майкл Крэйг, Миранда Кампа, Хосе Луис Лопес Васкес, Энцо Гаринеи, Филип Росс, Альберто Фернандес, Мануэль Галлардо, Альберто Гонзалес Эспиноза, Марина МалфаттиПеревод: Авторский (Андрей Дольский)Субтитры: АнглийскиеПродолжительность: 01:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE8B49C82673F91665622F1FA4E5234211B7A4B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379308   (501473) от 26.08.2011
+
+[Wallpapers] Valina's Wallpapers (24.08.11)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E5687EE2C9250AF0BBB616F3C06C5D092A2A87
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317409   (501472) от 31.07.2019
+
+Туфли с золотыми пряжками (1976) DVDRip [H.264] (серии 1-2 из 2)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Иванушки плетёт лучшие во всей округе лапти. Своё умение он передал сыну, но что-то грустно стало в последнее время Ивану и он отпросился у родителей сходить на ярмарку, купить себе немного счастья. Деньги — полный кошель медяков, он по дороге истратил. Половину дал разбойникам, чтобы выручить из беды скомороха Тимоню, а другую у него выманил ярмарочный плут. (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: Детский, сказка, мьюзикл, комедияРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Лев Дуров, Александр Хочинский, Вера Кузнецова, Ирина Малышева, Юрий Медведев, Владимир Старостин, Павел Винник, Владимир Герасимов, Петр Бенюк, Георгий ШтильСубтитры: ОтсутствуютПродолжительность: 01:04:02 + 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC66F55CBF010E53ECDBF3B6394388624251350
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564193   (501471) от 17.07.2022
+
+CrystalDiskInfo 8.17.4 RePack (& Portable) by 9649 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_501471.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EEB93145BC921071925614168B5776EEEF492A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

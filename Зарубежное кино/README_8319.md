@@ -1,0 +1,747 @@
+###  Публикация: 997613   (873764) от 17.03.2016
+
+Pet Shop Boys - The Pop Kids (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pop Kids (Offer Nissim Drama Mix) (06:30)
+02. The Pop Kids (MK Dub Radio Edit) (03:35)
+03. The Pop Kids (PSB Deep Dub Radio Edit) (03:17)
+04. The Pop Kids (MK Dub) (07:18)Жанр: Progressive House, Electro HouseПродолжительность: 00:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133D09C4277A7376E519EBFEF0AD33992EE55934
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997555   (873763) от 17.03.2016
+
+Blocs 1.6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_873763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой способ создания красивых сайтов.
+Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
+
+Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 марта 2016Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07C89F7F60449B376845665BD29E420E45C8337
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997730   (873762) от 17.03.2016
+
+CocCoc 54.2.133 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873762.jpg" />
+</div>
+
+
+###  Подробнее
+
+CocCoc Browser - браузер, который является продуктом вьетнамской компании Cốc Cốc. Браузер основан на открытом исходном коде проекта Chromium, поэтому браузер очень похож на Google Chrome.Язык интерфейса: Русский, Английский и Другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1564C17A3271B91384B8EE82E03AA15B6CE1BD3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997288   (873761) от 17.03.2016
+
+Энтони Дорр | Стена памяти [сборник] (2016) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые на русском – сборник Энтони Дорра, автора поразительного международного бестселлера «Весь невидимый нам свет» (роман получил Пулицеровскую премию и стал финалистом Национальной книжной премии США) и сборника «Собиратель ракушек». Семь трогательных, поэтичных историй о вечных и неразрешимых проблемах, о бескрайней природе и месте человека в ней, о непостижимости (   Читать дальше...   )Жанр: Современная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7967898CE26CDFD484541D54DF601FBCAB9F9BA8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997450   (873760) от 17.03.2016
+
+Эдмунд Фелпс | Массовое процветание. Как низовые инновации стали источником рабочих мест, новых возможностей и изменений (2015) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873760.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге нобелевский лауреат Эдмунд Фелпс предлагает новый взгляд на причины «богатства народов». Почему в одних странах в 1820–1960-х годах наблюдался резкий рост благосостояния, сопровождавшийся ростом не только материального богатства, но и «процветанием» — осмысленным трудом, самовыражением и личностным ростом для большего числа людей, чем когда-либо прежде? (   Читать дальше...   )Жанр: Бизнес, экономика, финансыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158F668F86AEF98DF3623492F4675FA8DEDBCF53
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997528   (873759) от 17.03.2016
+
+iMazing 1.5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873759.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 марта 2016Разработчик: DigiDNAПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D13B1952A018A917E72B59B4DB3457D1B3F0FDC6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106224   (873758) от 19.02.2017
+
+VA - Cappuccino Lounge Vol.2 (Relaxed Coffee Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Urban Phunk Society - Spring 2 Summer  3:03
+02.  Artur Bayramgalin - Cafe Rendez-Vouz  5:01
+03.  Greg Walker - Rio Geo (Revisited)  3:31
+04.  Charly McLion - Sunrise  4:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC6B480B3DB389347011F93E5E4BFAD907F9E5B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106298   (873757) от 19.02.2017
+
+SnapNDrag Pro - organize and edit screenshot 4.2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873757.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapNDrag - органайзер, нарезка скриншотов, редактирование, шаринг.
+SnapNDrag - Небольшая утилита для создания скриншотов. SnapNDrag позволяет делать снимок экрана всего одним нажатием кнопки, и сразу перетащить готовый результат в другое приложение для дальнейшей работы с ним.
+
+SnapNDrag поддерживает PNG, JPEG и TIFF форматы, если на первом месте стоит качество, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 февраля 2017Разработчик: Yellow Mug SoftwarПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0569C4D3ADD01024F2EE73D946EDF8914D2EA545
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106338   (873756) от 19.02.2017
+
+VA - Naked Lounge Vol.2: Erotic and Soulful Chill Out Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive - Freezing Cold
+02. Velvet Dreamer - Your Game My Love (feat Diana Jasilionyte & Tim Gelo)
+03. Inventors Of The Sun - Opium Lovers
+04. Weathertunes - Nothing Without You(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EA1CBC94651FB6686FC179A46E24FE9709F4EA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106471   (873755) от 19.02.2017
+
+Skeptic Muse - Theodicy Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theodicy Blues (5:40)
+02. Off The Tracks (4:26)
+03. Good Without God (5:08)
+04. Why? (4:32)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26BA030D03661B80B98591E09FE83719B065C6E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106300   (873754) от 19.02.2017
+
+Jimmy Johnson And The Chicago Dave Blues Band - Brothers Live (2002) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Will Never Do (5:36)
+02. I'm A Jockey (4:44)
+03. Little By Little (5:58)
+04. As The Years Go Passing By (9:57)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C615039F6E7DC3B91A4EC633CE3141EF1E955C9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 187461   (873753) от 30.03.2010
+
+VA - House Vip (27.03.10) [MP3|192/320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/011/save_picture_873753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andre Picar Feat. Ice Mc - Its A Rainy Day (Luengo & Diaz Remix) (5:31)
+02. Calabria - Dirty (Original Mix) (6:00)
+03. Dj Alex Rose feat. Miss E - Pussy Pussy 2010 (Extended Summer Mix) (5:29)
+04. Dj Bitt - Polka Papa (The Plushers Remix) (5:55)
+05. Take A Look Inside The Mobb Remix Edit (3:13)
+06. Keri Hilson- I Like Remix (DRM) (6:02)
+07. Laidback Luke - Be vs. Insomnia (DJ Bassiv Bootleg 2010) (5:41)
+08. Mario Lopez - Sadness (DB Pure Remix) (6:20)
+09. Mason - Exceeder (Felguk Remix)(Jason Parker Vocal Edit) (5:32)
+10. Modjo-Lady (Robix Electro Rmx 2010) (5:43)(   Читать дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106466   (873752) от 19.02.2017
+
+Voltage - Travellin' Men (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Road Home (4:17)
+02. Travelling Man (4:09)
+03. Cruisin' (2:43)
+04. River (4:27)(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A6FF5989C3305C6C0C7DE0D2E321AAC77700F2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106238   (873751) от 19.02.2017
+
+Минута славы (2017.02.18) HDTVRip [H.264/720p] (выпуск 3)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_873751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотни претендентов на участие в юбилейном сезоне «Минуты» прошли строгий внеэфирный кастинг и готовы раскрыть перед зрителями Первого все мыслимые грани человеческих возможностей в предварительном отборе, четвертьфиналах, полуфиналах и в финале, где победителя ждет всероссийская слава и крупный денежный приз. Оценивать выступления будет жюри проекта в составе: Сергей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоу, развлекательныйПродолжительность: 01:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230334581A662D73EE970E9E6875D99BC2674927
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 187959   (873750) от 30.03.2010
+
+VA - House Vip (28.03.10) [MP3|192-320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/011/save_picture_873750.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Akon - Keep You Much Longer (V1r00z Remix) (5:53)
+2. Andre Picar - It's A Rainy Day (RG Remix) (4:41)
+3. Beattraax pres. Marcell Rossi - Draculas Castle (Vampires Mix) (4:43)
+4. Dumas - Davai Davai (DMP Remix) (3:06)
+5. Mario Lopez - Sadness (Savanna Brothers Remix) (5:58)
+6. Rihanna - Hard (Unight Remix) (7:33)
+7. Samuel Kimko - Sex Dance (Dj Fole Acid Remix) (5:34)
+8. SpliTT & KoniX - One Night In Zango (Original Mix) (5:33)
+9. T.A.T.U - Loves Me Not 2010 (Electrical Brothers Remix) (5:28)
+10. The Flame - Electro soul (Original mix) (8:22)(   Читать дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106120   (873749) от 19.02.2017
+
+Polyphony - Without Introduction (1971) 2011, Gear Fab Records [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psychedelic, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873749.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Juggernaut (14:04)
+2. 40 Second Thing In 39 Seconds (1:07)
+3. Ariel's Flight (15:15)
+- a) Gordons Of The Glade(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic, Space RockПродолжительность: 00: 37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6D1B74377AF1F512C46E875EA184CE583E6A5D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106055   (873748) от 19.02.2017
+
+VA - Зимняя сотка хитовая. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873748.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ольга Орлова - Девушка Простая 3:35
+002. Потап & Настя - Золотые Киты 2:13
+003. Alexno - Перенапряжение 3:16
+004. Гена Селезнев - Ливни 3:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D208147425645150281E7C875C36A034B1134813
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188048   (873747) от 30.03.2010
+
+Armin van Buuren - A State of Trance Official Podcast 121 (30.03.2010) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. Susana feat. Omnia & The Blizzard - Closer
+2. Ron Hagen & Al Exander - Last Minute
+3. Ørjan Nilsen - Lovers Lane
+4. Andy Moor feat. Carrie Skipper - She Moves
+5. Andrew Bennett feat. Sir Adrian - Run Till U Shine (Cosmic Gate Remix)Жанр: Trance
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106272   (873746) от 19.02.2017
+
+VA - Empire Records - Dancenudisco 9 (2017) [MP3|243-320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lisa Millett, Juan Kidd, Felix Baumgartner vs Siente - Now Youre Gone (Gumanev & Cosmos DeepTool)
+02. Sterling Void - It's All Right (Eric Kupper Remix)
+03. Melih Aydogan - You Tell Me (7Even Remix)
+04. Alien Disco Sugar - What You Feel(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 02:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B6AC856AFF6291A0C868DF52696952BD7B6D68
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106318   (873745) от 19.02.2017
+
+VA - Euphonic Traveller: Tropical Chill Zoone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bananaquit - Hold Me Up
+002. Soda Lounge - The Love We Share (Radio Edit)
+003. Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)
+004. Omaya - We All Do - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A5ACE72CF916A7CD2D5F45D66E1575C7BA7C95
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106084   (873744) от 19.02.2017
+
+Патрик Квентин | Моя память - убийца (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питер Дьюлет,муж известной киноактрисы,с диагнозом амнезия,попадает к людям,которые по всей видимости замешаны в преступлении...Жанр: ДетективПродолжительность: 09:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A92FD1742A189A7CDB3FA489E428C949973631F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106440   (873743) от 19.02.2017
+
+Лучше всех (2017.02.19) SATRip (сезон 2, выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_873743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое детское телевизионное шоу талантов, куда приглашаются юные участники от трех до 12 лет. Если ваш ребенок проявляет экстраординарные способности, то его ждут в нашем шоу!Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E34F1D7EB93DD0E90931736F905A511FDD04E8B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106037   (873742) от 19.02.2017
+
+VA - Зимние лучшие блатные песни. Сборник № 8 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Централ - Соскучился 4:08
+002. Андрей Шпехт - Придет Весна 3:52
+003. Максим Апрель & Светлана Тернова - Глупая 3:37
+004. Смирнов & Компания - Роман 3:24(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F73D4EB070ABA602760758A573243AB6C8204A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106262   (873741) от 19.02.2017
+
+VA - Club Dance Ambience Vol.102 (2017) [MP3|320 Kbps] <House, Mash Up, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873741.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Tujamo - Boom ( BimBo & El Matex Bootleg )  4:06
+002.  Armin van Buuren & Sharon Den Adel - In And Out Of Love (DJ Ramirez & YASTREB Remix)  4:13
+003.  Lx24 - Уголек (Premium  Art Remix)  4:32
+004.  Martin Garrix & Dua Lipa - Scared To Be Lonely (DJ DMC Remix)  5:12(   Читать дальше...   )Жанр: House, Mash Up, Dance, ClubПродолжительность: 07:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118E13D67190E0AB98075F61A18D1E8F2B7D79EE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106253   (873740) от 19.02.2017
+
+Brent Johnson - Set The World On Fire (2014) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Make A Sound  (4:43)
+02. Meet Me In The Morning (6:27)
+03. The Ticket  (5:17)
+04. Don't Take It With You  (4:04)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FA8376BC813EE9FA440FDCB3247CB878809A7D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106133   (873739) от 19.02.2017
+
+VA - Снегопад новинок. Выпуск 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_873739.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aisha - Заново 3:13
+002. Dnce - Zoom 3:42
+003. Alekseev - Держи Меня 4:37
+004. Вирус - По Зимнему Снегу 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA616AFA3F40BB20843CA67B825D9F6F40CB2C5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

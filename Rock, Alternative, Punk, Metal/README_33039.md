@@ -1,0 +1,731 @@
+###  Публикация: 1649228   (231041) от 27.07.2023
+
+Cavern Deep - 3 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Cavern Deep
+2023 - Breach, Pt. II
+2023 - Skeletal WastesЖанр: Doom MetalПродолжительность: 3 CD, 02:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD286E2999844FEBC5875CF83B2F748E49DF507
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637137   (231040) от 02.06.2023
+
+Telegram Desktop 4.8.3 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_231040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0556AA34F9306C004F02DD9FD5527868BBC8F311
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648762   (231039) от 25.07.2023
+
+Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Adolescence
+02. Virgin Flesh
+03. The Damned
+04. Bleeding the Bled(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECB9A78D1BB811767DC6F93171FBF114C0AAA53
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648391   (231038) от 23.07.2023
+
+Nouveau Arcade - Dead Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Cyberpunk>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Static Eyes [00:04:18]
+02. iHumanz [00:04:55]
+03. Crazy Like That [00:04:11]
+04. Summer Is Over [00:03:39](   Читать дальше...   )Жанр: Synthwave, CyberpunkПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B7D0FA987E3204F987CD98C9BED59085389EA2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 681706   (231037) от 05.06.2022
+
+Helloween - Keeper Of The Seven Keys Parts I & II (2010) Remastered, Deluxe Expanded Edition [FLAC|Lossless]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation - 1:09
+02. Eagle Fly Free - 5:11
+03. You Always Walk Alone - 5:11
+04. Rise And Fall - 4:23
+05. Dr. Stein - 5:06
+06. We Got The Right - 5:09
+07. March Of Time - 5:16
+08. I Want Out - 4:42
+09. Keeper Of The Seven Keys - 13:38
+10. Save Us - 5:15(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7501163D7CC1C6BFF013EEE28C6CA76650041D5A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637016   (231036) от 02.06.2023
+
+Led Zeppelin - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_231036.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Stairway To Heaven
+A2 Custard Pie
+A3 D'Yer Mak'er
+A4 Houses Of The Holy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B023AFBE1BDCF28A2386BD86C4C89199AAA0E246
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581693   (231035) от 06.10.2022
+
+Алексей Калинин | Якудза из другого мира (Книга 4) (2022) [MP3, Алексей Семёнов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_231035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время идет, я меняюсь и приобретаю вес в обществе, как преступном, так и аристократическом. Теперь я из породы хищников, мелких, но опасных. Не-не, я не крыса – предпочитаю называть себя хорьком.
+И чтобы хорек справился с крупным тигром мы решили вызвать самого мощного духа. Вот только косяк маленького тануки внес свои коррективы и вышло всё опять через одно место. (   Читать дальше...   )Жанр: Боевики, Боевое фэнтези, Эротическое фэнтезиПродолжительность: 08:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF5184F7C38BE6CFDD37EE73CF2203234E5BFF9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649312   (231034) от 27.07.2023
+
+Gardenian - Soulburner (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As a True King
+02. Powertool
+03. Deserted
+04. Soulburner(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD1E29DDC1A26DD875483679EC6F60D0247F1AE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637045   (231033) от 02.06.2023
+
+Хватай не глядя / Storage Wars (2010-2011) WEBRip [H.264/1080p] (сезон 1, серии 1-19 из 19)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_231033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Складские и гаражные аукционы – это богатейший и практически неисчерпаемый источник скрытых сокровищ. Понятно, что охотники за этими сокровищами постараются завладеть ими, обойдя всех конкурентов, в надежде, что в старом хламе отыщутся по-настоящему ценные вещи, которые можно выгодно перепродать. Аукционы проходят так: владелец склада открывает дверь, и у потенциальных (   Читать дальше...   )Производство: США, ORIGINAL PRODUCTIONS, INC A Fremantle Company for A&E NETWORKЖанр: телепередача, реальное ТВРежиссер: Мэттью БеннеттПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:22:00 каждая серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FD69B75D0C73499A2B77AA112366EFDFA2D001
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648993   (231032) от 25.07.2023
+
+Chain Timer 9.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Chain Timer – это удобный мультитаймер на каждый день.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2023Разработчик: © Roman SevastyanovПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB51D35F867A75025375CB42363A09F027CE39F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648346   (231031) от 23.07.2023
+
+Mission In Black - Profit Reigns Supreme (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Profit Reigns Supreme [00:05:41]
+02. What Does It Take to Be Alive [00:05:06]
+03. Patron of the Downfall [00:04:49]
+04. Dead Alive [00:05:58](   Читать дальше...   )Жанр: Melodic Power, Thrash MetalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5E1E6574A1AF5E187655107BA9D93CEE320AF3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555731   (231030) от 05.06.2022
+
+Фантастические твари: Тайны Дамблдора / Fantastic Beasts: The Secrets of Dumbledore (2022) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_231030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Альбус Дамблдор узнаёт, что могущественный тёмный волшебник Геллерт Грин-де-Вальд планирует захватить власть над миром. Понимая, что не сможет остановить его в одиночку, Дамблдор просит магозоолога Ньюта Саламандера возглавить команду выдающихся волшебников и одного отважного магла-пекаря. Им предстоят невероятно опасные приключения, встреча со старыми (   Читать дальше...   )Производство: Великобритания, США / Warner Bros, Heyday FilmsЖанр: Фэнтези, боевик, приключенияРежиссер: Дэвид ЙейтсАктеры: Эдди Редмэйн, Джуд Лоу, Эзра Миллер, Дэн Фоглер, Элисон Судол, Каллум Тернер, Джессика Уильямс, Кэтрин Уотерстон, Мадс Миккельсен, Оливер МазуччиПеревод: Дублированный (Red Head Sound), Многоголосый профессиональный (HDRezka Studio, Jaskier, NewComers, TVShows)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Forced), английские (Full, SDH)Продолжительность: 02:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E44875E5419608A13BDDBA26097A6EEFDA33E61
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581574   (231029) от 06.10.2022
+
+VA - Осень на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_231029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sofia Reyes feat. Jason Derulo & De La Ghetto - 1, 2, 3 (3:21)
+02. James Hype, Miggy Dela Rosa - Ferrari (3:06)
+03. Purple Disco Machine feat. Sophie And The Giants - In The Dark (Denis Bravo Radio Edit) (3:10)
+04. Shakira feat. Rauw Alejandro - Te Felicito (Amice Remix) (3:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5157A80C416961D87375DBF9CFEDFAE72994A2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637087   (231028) от 02.06.2023
+
+VA - 80's Super Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_231028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Cut a Long Story Short - Gary Kemp
+02 - Love Changes (Everything) - Dennis Morgan
+03 - Forever Young - Bernhard Lloyd
+04 - Some Guys Have All the Luck (2008 Version)Жанр: Pop, Rock, RnBПродолжительность: 03:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770CB8DB5982CA2EEEEF5A43683833B34ED587EF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649238   (231027) от 27.07.2023
+
+Godfall - The Sound of Robogroove (1995) EP [FLAC|Lossless|image + .cue] <Melodic Death, Thrash Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robotica
+02. Re-Human
+03. Beesting Voyage
+04. Super-Sonic(   Читать дальше...   )Жанр: Melodic Death, Thrash Metal, Hard RockПродолжительность: 00:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7089FDD1F3F813E5D4FBF5452E8F1D6DC0C06E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637092   (231026) от 02.06.2023
+
+Гасан Багиров ( Музыкальные композиции Александра Морозова ) - Мелодии для души (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_231026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Горница
+02. Душа болит
+03. Малиновый звон
+04. Остановите землю(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9332F1D2DAF0E4F0C73849DF307A74AF8BD8453
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648909   (231025) от 25.07.2023
+
+Dona Eis Requiem - Grant Them Rest (2007) Demo [FLAC|Lossless|image + .cue] <Experimental Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Benediction Of Our Blessed Demise (07:30)
+02. Lamentations Of A Fallen Angel (10:15)
+03. Spiritual Bereavement (03:02)
+04. Fin (15:16)Жанр: Experimental Death, Doom MetalПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42961FD9F0F90673CB06907E8A0DFD67E1E3E15
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648478   (231024) от 23.07.2023
+
+FreeFileSync 12.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231024.jpg" />
+</div>
+
+
+###  Подробнее
+
+FreeFileSync - это утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46FBC6AA9796BE3FA76F2D4E68CDE2E85DD7CF5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368368   (231023) от 05.06.2022
+
+Аигел - 9 Relises (2017-2022) [MP3|320 Kbps] <IDM, Hip-Hop, Electronic>
+
+>>Electronic
+>>IDM
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_231023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - АИГЕЛ, Saint Rider - Свет (Saint Rider Remix) [00:03:15]
+02 - АИГЕЛ, iBenji - Төн (Remix) [00:03:44]
+03 - АИГЕЛ, Saint Rider - Татарин (Saint Rider Remix) [00:03:08]
+04 - АИГЕЛ, Ghostek - Две недели (Ghostek Remix) [00:03:44](   Читать дальше...   )Жанр: IDM, Hip-Hop, Rap, Trap, House, Electronic, ScoreПродолжительность: 9 CD, 04:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630F576913B0E7DC90CCEA654089324A41AD8211
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648379   (231022) от 22.07.2023
+
+Alarm Clock Pro 15 v.15.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в срок.
+Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2023Разработчик: © 2023 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6E31D5107F340FA9DF0036CB291EB25D2567CF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581698   (231021) от 06.10.2022
+
+Божья страна / God's Country (2022) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_231021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда убитая горем профессор колледжа сталкивается с двумя охотниками, которых она застала на своей территории, она оказывается втянутой в серьезное противостояние с катастрофическими последствиями.Производство: США, Cold Iron PicturesЖанр: триллерРежиссер: Джулиан А. ХиггинсАктеры: Тандиве Ньютон, Dan Gravage, Aakii, Таная Битти, Кай Леннокс, Джордж Де Фриз, Lynn Solomon, Джон Хоскин, Bob Wheeler, Джорис ДжарскиПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C835FF0189BB1209387F857155131B51D993696
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637130   (231020) от 02.06.2023
+
+Виктор Клемперер | LTI. Язык Третьего рейха. Записная книжка филолога (1998) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_231020.jpg" />
+</div>
+
+
+###  Подробнее
+
+«То и дело цитируют афоризм Талейрана: язык нужен для того, чтобы скрывать мысли дипломатов (и вообще хитрых и сомнительных личностей). Но справедливо как раз обратное. Пусть кто-то намеренно стремится скрыть – только лишь от других или себя самого – то, что он бессознательно носит в себе, – язык выдаст все. В этом, помимо прочего, смысл сентенции: le style c’est (   Читать дальше...   )Жанр: история, публицистика, лингвистикаПеревод: А.Б. ГригорьеваЯзык: РусскийФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BE29071C437614442F4628C9E40EB9ADCA690A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649292   (231019) от 27.07.2023
+
+Yoink 3.6.85 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yoink представляет собой посредника, который позволяет упростить доступность файлов. После установки приложения в левой части экрана появляется панель Yoink. Теперь если необходимо переместить файл с одного стола в окно открытое на другом, можно просто перетащить его в панель Yoink. Соответственно не перейдя на другой рабочий стол, просто перетягиваем файл из панели. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2023Разработчик: © 2011-2023 Eternal Storms SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA968533FC2FC64715C14AD152F01E6A6BFFFA7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637077   (231018) от 02.06.2023
+
+Друг мой, Колька!.. (1961) [H.264/1080p-LQ] [hand made Remastered Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/save_picture_231018.jpg" />
+</div>
+
+
+###  Подробнее
+
+В школе, где учатся герои фильма, внешне все было благополучно, но на самом деле царили равнодушие, формализм и скука. Была даже создана подпольная организация ТОТР (Тайное Общество Троечников). Их цель - мстить зубрилам и выскочкам. Но, однажды, автобаза направляет в эту подшефную школу своего шофера, парня простого, умного и честного, который организует ремонт (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Комедия, драма, семейныйРежиссер: Александр Митта, Алексей СалтыковАктеры: Александр Кобозев, Анна Родионова, Алексей Борзунов, Виктор Онучак, Татьяна Кузнецова (I), Анатолий Кузнецов (I), Антонина Дмитриева, Виталий Ованесов, Савелий Крамаров, Борис Новиков, Людмила Чернышёва, Игорь Косухин, Светлана Харитонова, Юрий Никулин, Евгений ТетеринПродолжительность: 01:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC0698A5D77F831DC5A1E98B39F1E8F3D819B57
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648342   (231017) от 23.07.2023
+
+VA - 40 Summer Hits 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - Fade To Grey [02:59]
+02. Teknova - Around the World (La La La La La) [02:37]
+03. Aldo Bit - Stolen Dance [02:13]
+04. Rene Rodrigezz - Feel Good [01:58](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374205070D21AB6F8F3386C5087A721B06D272A6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648820   (231016) от 25.07.2023
+
+Desolator - Sermon of Apathy (2020) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_231016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Portal Tomb
+02. Adversarial Doctrine
+03. Creatures of Habit
+04. Methods of Self-Deception(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB16459AB1B2E01769F73B012754DA58AEB75139
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

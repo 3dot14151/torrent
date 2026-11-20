@@ -1,0 +1,790 @@
+###  Публикация: 1203567   (787557) от 03.02.2018
+
+Judas Priest - Painkiller (1990) Reissue, 2017, Columbia [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_787557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painkiller (6:10)
+02. Hell Patrol (3:37)
+03. All Guns Blazing (3:58)
+04. Leather Rebel (3:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D981169D9A7F41E9D75B517ABBBB48591C13EA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124338   (785741) от 11.04.2017
+
+KOTO - The Original Masterpiece (2014) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo-Disco, Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_785741.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Chinese Revenge
+A2. Japanese Wargame (Club Mix)
+A3. Visitors
+B1. Jabdah (Long Version)(   Читать дальше...   )Жанр: Italo-Disco, Synth-PopПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BEC0F31F573A2C030CB9BA579C1DB5952FEDD9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202943   (785265) от 04.02.2018
+
+Elton John - Made In England (1995) Mercury-526185-4 [FLAC|Lossless|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_785265.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 	Believe  Arranged 4:55
+A2 	Made In England  5:09
+A3 	House Arranged   4:27
+A4 	Cold Arranged      5:37(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A20DDDEDFFB26CE2BFEAC312FF9F19327D0EBBD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203687   (785232) от 04.02.2018
+
+Чайф - Пусть Все Будет Так, Как Ты Захочешь (1995) [FLAC|Lossless|tracks] <Blues Rock, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_785232.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 (Уже)	4:17
+A2 Четверо Парней	4:00
+A3 Пусть Тебе Приснится	4:44
+A4 Но Это Так	5:45(   Читать дальше...   )Жанр: Blues Rock, AcousticПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DA5BAAA20D1D964E1E4287A66FD1E9994324B6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203660   (785217) от 04.02.2018
+
+Pink Floyd - Atom Heart Mother (1978) EMS-80320 [FLAC|Lossless|tracks] <Rock Style, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_785217.jpg" />
+</div>
+
+
+###  Подробнее
+
+A.1	Father's Shout
+A.2	Breast Milky
+A.3Mother Fore
+A.3	Funky Dung(   Читать дальше...   )Жанр: Rock Style, Psychedelic RockПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:418BC6E4078AC7E347422BA10A68C233C907467B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204978   (783986) от 08.02.2018
+
+Beth Hart & Joe Bonamassa - Black Coffee (2018) [FLAC 2.0 24/192|image|Vinyl-Rip] <Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_783986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It Everything You Got (4:38)
+ 02. Damn Your Eyes (4:34)
+ 03. Black Coffee (4:15)
+ 04. Lullaby of the Leaves (5:42)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F48E93BD74B0141E5DFFF4E3344AA5035C4398
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205785   (783180) от 11.02.2018
+
+10cc - How Dare You! (1975) [FLAC 2.0|192/24|tracks +.cue|Vinyl-Rip]  <Art-Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_783180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Dare You (4:14)
+02. Lazy Ways (4:21)
+03. I Wanna Rule the World (3:58)
+04. I'm Mandy, Fly Me (5:22)(   Читать дальше...   )Жанр: Art-Rock, Pop RockПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84750145A44EC22BAD4D6BA8D7787118BAA22D92
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205577   (783152) от 11.02.2018
+
+Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Easy Listening, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_783152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koi No Kisetsu (3:23)
+ 02. Yuzuki (2:25)
+ 03. Shinjuku Sodachi (2:57)
+ 04. Hoshi O Minaide (2:28)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377963   (781360) от 19.06.2020
+
+Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_781360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Down One Side (3:55)
+ 02. Like I've Never Been Gone (5:58)
+ 03. Big Log (5:07)
+ 04. In The Mood (5:21)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207556   (780371) от 19.02.2018
+
+Demis Roussos - 5 Albums (1971-1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_780371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fire And Ice 
+A1 Fire And Ice
+A2 She Came Up From The Nort
+A3 Good Days Have Gone(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 03:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE47DCD164DDA7F43736DEFB744B22B3844689A4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207999   (780193) от 20.02.2018
+
+Queen - The Game (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_780193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play The Game (3:30)
+02. Dragon Attack (4:19)
+03. Another One Bites The Dust (3:34)
+04. Need Your Loving Tonight (2:49)(   Читать дальше...   )Производство: EMI Records - EMA 795Жанр: RockПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917FEFB453720A6BF0F4E87012394F4F45DA796B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207147   (780176) от 20.02.2018
+
+Lindsey Stirling - Brave Enough (2016) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Modern Classical, Dance-pop, Dubstep>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_780176.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lost Girls
+2. Brave Enough
+3. The Arena
+4. The Phoenix(   Читать дальше...   )Жанр: Modern Classical, Dance-pop, DubstepПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9E73B1F759B061B09727E85848AA367F1C36DB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208378   (779760) от 23.02.2018
+
+Within Temptation - Hydra (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_779760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Us Burn
+02. Dangerous (feat. Howard Jones)
+03. And We Run (Feat. Xzibit)
+04. Paradise (What About Us?) (feat. Tarja)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8404BFE1F2EAC5D41638FAB2B010C58864E49E66
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208159   (779755) от 23.02.2018
+
+Lindsey Stirling - Shatter Me (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Dubstep, Modern Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_779755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beyond The Veil
+2. Mirror Haus
+3. V-Pop
+4. Shatter Me (feat. Lzzy Hale)(   Читать дальше...   )Жанр: Dubstep, Modern ClassicalПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B90C59C319DD4A7CA29272EDF7F763173D0ACD4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208156   (779729) от 23.02.2018
+
+Imagine Dragons - Night Visions (2012) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_779729.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Radioactive
+2. Tiptoe
+3. It's Time
+4. Demons(   Читать дальше...   )Жанр: Rock/PopПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5388CE1B361B85EDF1692D9AC925DA26CFDB4C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210826   (778426) от 04.03.2018
+
+Pink Floyd - The Dark Side Of The Moon (1973) Repress, 1974, Harvest [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_778426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak To Me (1:08)
+02. Breathe (In The Air) (2:49)
+03. On The Run (3:44)
+04. Time (6:56)(   Читать дальше...   )Производство: EMI Records / Harvest - EMS-80324Жанр: Psychedelic RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210840   (778047) от 05.03.2018
+
+Алла Пугачёва - Виниловая коллекция (1977-1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/save_picture_778047.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Iceberg
+A2 The Rope-Dancer · Канатоходка
+A3 Leningrad · Ленинград
+A4 A Woman Who Sings · Женщина Которая Поeт(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 10:06:51 (общая)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99F729BD77B67D57886CDFD2742E31DB8E336C3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659039   (775474) от 22.05.2013
+
+Paradise Lost - Tragic Idol (2012) [FLAC 2.0 16/44.1 | image (Vinyl-Rip)]<Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Solitary One
+02. Crucify
+03. Fear of Impending Hell
+04. Honesty in Death
+05. Theories from Another World
+06. In This We Dwell
+07. To the Darkness
+08. Tragic Idol
+09. Worth Fighting For
+10. The Glorious EndЖанр: Gothic MetalПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A532EDE5779F9E8818EC02DAEA767BE087FB9C6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971684   (775442) от 09.05.2016
+
+Queen - 8 альбомов + 6 синглов + 1 сборник (1976 - 1995)  [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_775442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 07:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706B25D616F11A380814A7DA9D8CC728241F05C3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659107   (775423) от 22.05.2013
+
+Dead Can Dance - In Concert (2013) [FLAC 2.0 16/44.1|Tracks (Web-DL)]<Rock / Darkwave / Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_775423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of The Sun (7:33)
+02. Anabasis (6:43)
+03. Rakim (6:15)
+05. Lamma Bada (4:19)
+06. Agape (6:18)
+07. Amnesia (6:16)
+08. Sanvean (5:25)
+09. Nierika (4:35)
+10. Opium (5:36)
+11. The Host Of Seraphim (6:13)(   Читать дальше...   )Жанр: Rock, Darkwave, ambient.Продолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BB7570030DC04447DF5925D8A4125BDE24ADE3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659557   (775386) от 22.05.2013
+
+Marilyn Monroe - Incomparable (2012) 2LP Set [FLAC 2.0 24/192|image (Vinyl-Rip)]<Smooth, Jazz-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Diamonds Are Girl's Best Friend [3:29]
+02. When Love Goes Wrong (With Jane Russell) [3:21]
+03. Two Little Girls From Little Rock (With Jane Russell) [4:09]
+04. Bye Bye Baby [6:46]
+05. Ladies Of The Chorus [1:30]
+06. Every Baby Needs A Da Da Daddy [2:54]
+07. Anyone Can See I Love You [1:30]
+08. Kiss [2:59]
+09. One Silver Dollar [2:01]
+10. Down In The Meadow [2:29](   Читать дальше...   )Жанр: Smooth, Jazz-PopПродолжительность: 01:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F3FE04BE42CE41ED991216A78C49FD67691D65
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659398   (775335) от 22.05.2013
+
+Tiesto - Just Be (Limited Vinyl Edition) (2004) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+A1. Forever Today [8:42]
+ B1. Love Comes Again [8:11]
+ C1. Traffic [7:05]
+ D1. Nyana [9:40]
+ E1. Walking On Clouds [8:22]
+ F1. A Tear In The Open [11:34]
+ G1. Just Be [9:48]
+ H1. Adagio For Strings [9:34]Жанр: TranceПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1119AB13570A2664A65843622A4EE94921DE5A6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659489   (775330) от 22.05.2013
+
+Ennio Morricone - The Good, The Bad And The Ugly (Original Motion Picture Soundtrack)(1968)[FLAC 2.0 24/96|tracks(Vinyl-Rip)]<Mod.Classical, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. The Good, The Bad, And The Ugly (Main Title)  	(2:38)
+2. The Sundown                                            	(1:12)
+3. The Strong                                                         	(2:20)
+4. The Desert                                                      	(5:15)
+5. The Carriage Of The Spirits 	    (2:04)
+6. Marcia                                                             	(2:46)
+7. The Story Of A Soldier              	(3:50)
+8. Marcia Without Hope             	(1:47)
+9. The Death Of A Soldier                  	(3:05)
+10. The Ecstasy Of Gold                               	(3:20)(   Читать дальше...   )Жанр: Modern Classical, SoundtrackПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196134   (774876) от 13.03.2018
+
+Сергей Минаев - ЛомБаба (Нон-Стоп) (1989) [DSD2.0|5,64MHz/1bit|image+.cue|МС-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_774876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ЛомБаба (03:31)
+02. 22 притопа (03:32)
+03. Ты крутила мной (Ломбада) (03:37)
+04. Анжелика (04:01)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CD66E8A5ED1CFFE72699A595E97ABF2795062F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659815   (774600) от 23.05.2013
+
+Ottawan - 2 Альбома (1980,1981) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Hands Up (Give Me Your Hand)
+02. Siesta For Two
+03. A.I.E. Is My Song
+04. Sing Along With The Juke-Box
+05. Crazy Music
+06. It's A Top Secret
+07. Shubidube Love
+08. Doudou Rumba
+09. Hands Up (Instrumental)Жанр: DiscoПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE959D17896554ED0C19D7DB015943AFBC49EF1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659621   (774581) от 23.05.2013
+
+Akshan - The Rise Of Atlantis (2013) [FLAC|24 Bit|Lossless]<Psybient, Ambient, Downtempo, Progressive Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01.		 The Rise Of Atlantis 	(3:24)
+02.		 Antinea's Secret 	(8:53)
+03.		 Shadows And Lights 	(10:20)
+04.		 Orichalcum 	(8:17)
+05.		 Gates Of Heaven 	(10:32)
+06.		 Journey To Persia 	(9:52)
+07.		 East West 	(9:27)
+08.		 Pillars Of Hercules 	(9:39)
+09.		 Calling The Ancients 	(9:08)
+10.		 The Rise Of Atlantis (Mixed Set) 	(1:18:00)Жанр: Psybient, Ambient, Downtempo, Progressive TranceПродолжительность: 02:37:40
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

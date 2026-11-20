@@ -1,0 +1,744 @@
+###  Публикация: 789515   (732974) от 25.05.2014
+
+Liz McComb - Rock My Soul (1993) [FLAC|Lossless]<Vocal Jazz, Gospel>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. I Told Jesus, I would Be Alright If He Changed My Name
+02. Rock My Soul
+03. In The Upper Room
+04. Traveling Shoes
+05. Soul Say Yes
+06. At The Cross
+07. Motherless Child
+08. I Don't Know What I Would Do Without The Lord
+09. Humble Me
+10. Everytime I Feel The Spirit(   Читать дальше...   )Жанр: Vocal Jazz, GospelПродолжительность: 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88664E87300A97265305664781542E6B63EFEB40
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789528   (732973) от 25.05.2014
+
+Lizzy Parks - Raise The Roof (2008) [FLAC|Lossless]<Vocal Jazz, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Raise The Roof
+02. Take Care
+03. Time
+04. Soul Bird
+05. Forever And A Day
+06. Spring Changes
+07. Seveb Day Fool
+08. All That
+09. Ode To St Cecile
+10. Leaving Home(   Читать дальше...   )Жанр: Vocal Jazz, Soul, FunkПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16BBEDCEA8CE074DE230EA91E18551EC7C42F8A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399603   (732972) от 01.08.2020
+
+Kenny Barron - At The Piano (1981) 2015, Elemental Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_732972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bud-Like [6:08]
+02. The Star Crossed Lovers [8:47]
+03. Misterioso [7:53]
+04. Calypso [4:09](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399527   (732971) от 01.08.2020
+
+Ensiferum - Iron (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferrum Aeternum (03:28)
+02. Iron (03:53)
+03. Sword Chant (04:45)
+04. Mourning Heart - Interlude (01:24)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A0D15671984CBB48C77CC2EA148FDD8E347D25
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399627   (732970) от 01.08.2020
+
+Kenny Barron & Mark Sherman - Interplay (2015) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afternoon in Paris [6:12]
+02. Venture Within [7:43]
+03. Dear Old Stockholm [4:53]
+04. Darn That Dream [7:37](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8789552E2030C18C50204C04D82AC14611CD534
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399630   (732969) от 01.08.2020
+
+John Lewis & The American Jazz Orchestra - Ellington Masterpieces (1989) EastWest [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sepia Panorama [3:43]
+02. Johnny Come Lately [3:29]
+03. All Too Soon [4:07]
+04. Ko-Ko [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B1825C4CC8FD9B70610036B1B4E3A8D3E93892
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399329   (732968) от 01.08.2020
+
+Lyonen - This Is Lyonen (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation (04:40)
+ 02. Lyonen (04:54)
+ 03. No Borders (04:53)
+ 04. Nehme Die Sunde (03:23)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B3DAC3E4BB7B7E301E2C3932C2058501C1C91D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399280   (732967) от 01.08.2020
+
+Cheesing Gweilo - Oriental Adventures... (2020) (Powered By Rice) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Sir (02:57)
+ 02. Wild Ducks And Low Flying Doves (04:08)
+ 03. L.B.F.M. (05:26)
+ 04. Slow (04:48)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2B11C15E461C704F20A9322EA8A157F6602647
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399669   (732966) от 01.08.2020
+
+Алексей Вязовский | Невероятные приключения Мии. Новые приключения Мии. Книга 2. (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории космических приключений девочки Мии. Простая и немного наивная детская фантастика в антураже будущего.Жанр: Детская литература/Фантастика/ПриключенияПродолжительность: 03:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B373160A994364BB23E9F8CE8A8CCDA508943E6D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399610   (732965) от 01.08.2020
+
+Land of Talk - Indistinct Conversations (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_732965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diaphanous
+02. Look To You (Intro)
+03. Look To You
+04. Weight Of That Weekend(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399618   (732964) от 01.08.2020
+
+!!! (Chk Chk Chk) - Certified Heavy Kats (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_732964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do the Dial Tone (04:05)
+02. Maybe You Can’t Make It (03:44)
+03. Tighten the Grip (03:33)
+04. Let It Fall (03:53)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399597   (732963) от 01.08.2020
+
+Старый Лев / Le Lion Devenu Vieux (1932) DVDRip [H.264] [hand made colored]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_732963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый король Лев подвергается издевательствам со стороны своего окружения. Вспоминает как в молодости он выкрал свою невесту-львицу. В конце-концов он умирает всеми забытый.Производство: ФранцияЖанр: Кукольный, СказкаРежиссер: Владислав СтаревичПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 00:08:35
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399606   (732962) от 01.08.2020
+
+Northlane - Alien (2019) Deluxe Edition, 2020 [MP3|320 Kbps] <Progressive Metalcore>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_732962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Details Matter [00:04:05]
+02 Bloodline [00:03:25]
+03 4D [00:04:11]
+04 Talking Heads [00:03:50](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399715   (732961) от 01.08.2020
+
+Eclipse - Eclipse (1976) LP [MP3|320 Kbps] <Electronic, Prog Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_732961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vision Interieure (10:50)
+02. Le Reve De John W (6:26)
+03. T'aime (Voix) (0:59)
+04. La Derniere Fois (3:08)(   Читать дальше...   )Жанр: Electronic, Prog RockПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399520   (732960) от 01.08.2020
+
+Dizzy - The Sun and Her Scorch (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_732960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worms (02:05)
+02. Sunflower (03:34)
+03. Good And Right (03:35)
+04. The Magician (03:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399665   (732959) от 01.08.2020
+
+Алексей Вязовский | Невероятные приключения Мии. Невероятные приключения Мии. Книга 1. (2020) [MP3]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_732959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая и немного наивная детская фантастика в антураже будущего. Космические приключение девочки Мии.Жанр: Детская литература/Фантастика/ПриключенияПродолжительность: 06:02:38
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399465   (732958) от 01.08.2020
+
+The Psychedelic Furs - Made of Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boy That Invented Rock & Roll (03:36)
+02. Don't Believe (03:45)
+03. You'll Be Mine (04:47)
+04. Wrong Train (04:12)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA13DF7700192A7EE359ED220C9C66AB46E8416
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399658   (732957) от 01.08.2020
+
+Владислав Крапивин | Дело о ртутной бомбе (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Митя Зайцев был несправедливо обвинен в ложном сообщении о террористическом акте. И кто знает, чем бы закончилось «дело о ртутной бомбе», если бы вовремя не пришла помощь…Жанр: Детская литература/ПриключенияПродолжительность: 03:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8597B49AF76D92CDE7355DA6DE4B6F106A8A6828
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399367   (732956) от 01.08.2020
+
+Damnation Angels - Fiber of Our Being (2020) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than Human (04:43)
+ 02. Railrunner (06:35)
+ 03. Fiber of Our Being (04:58)
+ 04. Our Last Light (04:14)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04D033B63FAD13E5AE6EF137CAC0805E688C6B8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399668   (732955) от 01.08.2020
+
+Формула 1. Сезон 2020. Этап 4. Гран-при Великобритании. Свободная практика 3 (01.08.2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Великобритании. Свободная практика 3
+Арена: Автодром Сильверстоун (Сильверстоун, Великобритания)
+01 августа 2020 года, пятница. 13:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32191206FFC48CD0B988E6D85FB16DC8A78B4A3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399666   (732954) от 01.08.2020
+
+Формула 1. Сезон 2020. Этап 4. Гран-при Великобритании. Свободная практика 3 (01.08.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Великобритании. Свободная практика 3
+Арена: Автодром Сильверстоун (Сильверстоун, Великобритания)
+01 августа 2020 года, пятница. 13:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0D5A5CC5F27F9C02E181C34A4E653142537593
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399605   (732953) от 01.08.2020
+
+Meta 1.9.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
+С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Он поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, ID3v2.4, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.06.2020Разработчик: Benjamin JaegerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B737001C23361FB29B2A854D10E12AC2DDF2AD6D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399411   (732952) от 01.08.2020
+
+Lionheart - The Reality Of Miracles (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvation (00:55)
+ 02. Thine Is the Kingdom (04:24)
+ 03. High Plains Drifter (03:54)
+ 04. The Reality of Miracles (04:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADD5665FE102930A2E79AE3186F37A0DBC826A3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399709   (732951) от 01.08.2020
+
+Черстин Лундберг Хан | Миндальное сердце (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732951.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Оскара есть всё: замечательные родители, лучший друг Хьюго и весёлая подруга Бие. Но сам Оскар страстно мечтает о собаке. В его сердце есть заветный уголок, словно специально отведённый для верного лохматого друга. Но мама ждёт ребёнка, и родители слушать не желают ни про каких собак. А тут ещё и Бие с Хьюго начинают вести себя крайне странно… Книга о том, как (   Читать дальше...   )Жанр: Детская литература/ПриключенияПродолжительность: 03:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9208F6C60514A0C6D41BA64FBCB14065D0966E1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399697   (732950) от 01.08.2020
+
+Формула-3. Сезон 2020. 4-й Этап. Гран-при Великобритании. Гонка 1 (01.08.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732950.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-й чемпионат ФИА Формула-3. Сезон 2020 года
+01 августа 2020, суббота. 12:25 МСК
+4-й Этап. Гран-при Великобритании. Сильверстоун (Великобритания)
+Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262307BFB0685C038119F4440737883D54A356B1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399601   (732949) от 01.08.2020
+
+Карл Ясперс | Философская вера (2008) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_732949.jpg" />
+</div>
+
+
+###  Подробнее
+
+"СМЫСЛ И НАЗНАЧЕНИЕ ИСТОРИИ" ("Vom Ursprung und Ziel der Geschichte", 1949) - произведение Ясперса. Ясперс выдвигает концепцию всемирно-исторического процесса, ориентированную на обнаружение его единства. Данное единство трактуется не как результат саморазвертывания некоей тотальности по жесткой схеме, но как общий итог смысловых проблем человека. (   Читать дальше...   )Жанр: Философия, ИсторияПродолжительность: 05:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240EBDFC2E2C4821388B7691B7755C3D056C5AB4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

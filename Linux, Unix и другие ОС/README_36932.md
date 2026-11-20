@@ -1,0 +1,736 @@
+###  Публикация: 1686812   (126230) от 24.12.2023
+
+Demon - British Standard Approved (1985) Japanese Edition, Reissue, Remastered, 2020, Rubicon Music [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_126230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Class
+02. Cold In The Air
+03. Touching The Ice
+04. Second Stage(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B624D14D05A16585535072029002D1D91AAF8D30
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686898   (126229) от 24.12.2023
+
+Народное творчество | Садко. Былины (2013) [MP3, Олег Исаев]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126229.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Взял Садко свои гусельцы яровчатые, пошёл к Ильмень-озеру. Сел на берегу на синь-горюч камень и ударил в струны звонкие, завёл напев переливчатый. Играл на берегу с утра день до вечера. А на закате красного солнышка взволновалось Ильмень-озеро. Поднялась волна, как высокая гора, вода с песком смешалася, и вышел на берег сам Водяной – хозяин Ильмень-озера. Оторопь (   Читать дальше...   )Жанр: Древнерусская литература, Мифы / легенды / эпосИздательство: Литрес ПаблишингПродолжительность: 01:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD5EED421335B2210D823023497B24A40180CAD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686895   (126228) от 24.12.2023
+
+Rustik Mode - In The Desert Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crazy Dreams (00:03:50)
+02 - Humanity Hides (00:04:58)
+03 - Every Day and Night (00:05:54)
+04 - Eclipse (00:03:59)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496950063E48FE3D5436C4BD7EEA27A86C066B8B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686909   (126227) от 24.12.2023
+
+Владимир Крепс, Климентий Минц | Клуб знаменитых капитанов (Выпуск 2). Встречи продолжаются (2010) [MP3, Валентина Сперантова, Ростислав Плятт и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива Гостелерадиофонда. Учиться – это весело!
+В 40-х – 80-х годах прошлого столетия на волнах радио выходила в эфир замечательная многосерийная радиопьеса для детей «Клуб знаменитых капитанов».
+...Заканчивался ничем не примечательный рабочий день. Библиотекарша Мария Петровна и ее помощница Катюша гасили свет, поворачивали в дверном замке ключ и (   Читать дальше...   )Жанр: Детский географический радиожурнал, приключения, познавательная литератураИздательство: Студия «АРДИС»Продолжительность: 04:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1668B96DC2093CBD94E6A752CDDB36BAA6CFFC6D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686938   (126226) от 24.12.2023
+
+Джером К. Джером | Как мы писали роман (2015) [MP3, Аркадий Бухмин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
+Роман «Как мы писали роман» написан Джером в 1893 году. Другие названия: Наброски к роману; Наброски для романа; О том, как мы писали роман; Наброски для повести.
+Переводчик Елизавета Григорьевна Полонская.
+(   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Неофициальное издание профессионального исполнителяПродолжительность: 05:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC920985C839C221EF6F544B3B766AF6AAF64C5A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686910   (126225) от 24.12.2023
+
+Владимир Крепс, Климентий Минц | Клуб знаменитых капитанов (Выпуск 3). На воде и под водой (2010) [MP3, Александр Хованский, Валентина Сперантова и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива Гостелерадиофонда. Учиться – это весело!
+В 40-х – 80-х годах прошлого столетия на волнах радио выходила в эфир замечательная многосерийная радиопьеса для детей «Клуб знаменитых капитанов».
+...Заканчивался ничем не примечательный рабочий день. Библиотекарша Мария Петровна и ее помощница Катюша гасили свет, поворачивали в дверном замке ключ и (   Читать дальше...   )Жанр: Детский географический радиожурнал, приключения, познавательная литератураИздательство: Студия «АРДИС»Продолжительность: 04:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357A96EF7ACA5662F017806834989E58BB137170
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686843   (126224) от 24.12.2023
+
+Freya Ridings - Blood Orange (Live at Apollo) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Introduction (Live at Apollo)
+02 – Dancing In A Hurricane (Live at Apollo)
+03 – Weekends (Live at Apollo)
+04 – Bite Me (Live at Apollo)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF90C16D41FCC5668921C1DBB04CE941345DF12
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686849   (126223) от 24.12.2023
+
+Почему убивают судей / Perche si uccide un magistrato (1974) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Режиссёр Джакомо Соларис выпустил фильм о судье, который слишком много знал, потому что дружил с мафией, и которого поэтому убивают. Возмущённый прокурор требует, чтобы фильм запретили, но его тоже убивают. Режиссёр понимает, что на ход дела влияет кто-то сверху... Далее начинают погибать его друзья...Производство: Италия, Capital, Rizzoli Film S.p.a.Жанр: драма, криминалРежиссер: Дамиано ДамианиАктеры: Франко Неро, Франсуаза Фабиан, Пьерлуиджи Апра, Джанкарло Бадесси, Эннио Бальбо, Лучано Катеначчи, Джорджио Чериони, Тано Чимароза, Мико Кундари, Ева ЧемерисПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русскиеПродолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034A0E7B750BD2C0D15CA1DD825C3B0D5992DD46
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686731   (126222) от 24.12.2023
+
+Grateful Dead - Winter Solstice (Live) (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 16:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD7ADBEE2D1AC1108B2E361FCD84701DBB08636
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686992   (126221) от 24.12.2023
+
+Glass Hammer - Arise (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_126221.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Launch Of The Daedalus (01:12)
+2. Wolf 359 (05:38)
+3. Arion (18 Delphini B) (05:14)
+4. Mare Sirenum (02:57)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F707202466678A626DCF85440626B7FDB42A245F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686912   (126220) от 24.12.2023
+
+Владимир Крепс, Климентий Минц | Клуб знаменитых капитанов (Выпуск 4). Под пиратским флагом (2012) [MP3, Михаил Названов, Борис Лавров и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива Гостелерадиофонда. Учиться – это весело!
+В 40-х – 80-х годах прошлого столетия на волнах радио выходила в эфир замечательная многосерийная радиопьеса для детей «Клуб знаменитых капитанов».
+...Заканчивался ничем не примечательный рабочий день. Библиотекарша Мария Петровна и ее помощница Катюша гасили свет, поворачивали в дверном замке ключ и (   Читать дальше...   )Жанр: Детский географический радиожурнал, приключения, познавательная литератураИздательство: Студия «АРДИС»Продолжительность: 05:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37047617A97C4B49BB30FB2BD0F39A3A3D83C3B2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686757   (126219) от 24.12.2023
+
+Джером К. Джером | Скряга из Саардама и другие рассказы (2023) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена (Английская литература).
+Джером Клапка Джером (1859–1927) – плодовитый романист, эссеист, автор коротких рассказов, в нашей стране известен преимущественно благодаря своей знаменитой повести «Трое в лодке, не считая собаки». За первые двадцать лет было продано более миллиона экземпляров книги по всему миру. Также, книга легла в (   Читать дальше...   )Жанр: Издательский дом «Союз», Покидышевъ и сыновьяИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 02:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0759F420B8DEA5F9D60143DE7DE76823A19E2E73
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686907   (126218) от 24.12.2023
+
+Neil Levin - Cosmic Blues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Worthwhile (4:04)
+02. Gone Away Prelude (0:19)
+03. Gone Away (2:45)
+04. Roses On The Grave (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3949B28361FFC4C98E7C6C278DAF658E5146000
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686995   (126217) от 24.12.2023
+
+Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Helsinki Ice Hall 2019 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/017/save_picture_126217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under The Grass Clover (4:04)
+02. Platitudes And Barren Words (4:21)
+03. In Your Face (4:07)
+04. Shovel Knockout (4:13)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C75BD9DEDCA78CCD79501DA3E2A01DD18F9F387
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686495   (126216) от 24.12.2023
+
+[Amatory] - ВПС 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Восковый дождь 2023 [00:02:18]
+02. Страница VI 2023 [00:03:56]
+03. Осколки 2023 [00:03:58]
+04. Вечно прячется судьба 2023 [00:03:16](   Читать дальше...   )Жанр: Metalcore, Nu Metal, Alternative RockПродолжительность: 00:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F2A035F8B271C794171AA7F72377818DD342C5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686469   (126215) от 24.12.2023
+
+Футбол. Клубный ЧМ. Финал. Манчестер Сити (Англия) - Флуминенсе (Бразилия) (22.12.2023) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Клубный ЧМ. Финал. Манчестер Сити (Англия) - Флуминенсе (Бразилия) (22.12.2023)
+СУДЬЯ Марциняк Шимон (Плоцк, Польша)
+СТАДИОН «имени короля Абдаллы» (Джидда)Телекомпания: Матч! Футбол 2Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8349DEC7AC1591EC18D49C73CB7413EE9B9A92E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686739   (126214) от 24.12.2023
+
+R.E.M. - Santa Monica 1991 - live (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - World Leader Pretend (live) [00:04:19]
+02 - Half A World Away (live) [00:03:18]
+03 - Disturbance At The Heron House (live) [00:03:28]
+04 - Radio Song (live) [00:04:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088D7B9545E36038A89E5DF9B4B17B6622FA422D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686908   (126213) от 24.12.2023
+
+Eagle - Come Under Nancy's Tent (1970) Remastered, 2023, Janus Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pack Up (00:03:52)
+02 - Come In, It's All For Free (00:02:55)
+03 - Brown Hair (00:03:28)
+04 - Dance On Little Beauty (00:02:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD25F85FBD24463DB3CD1E8E3EB830CA39AF2B8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686829   (126212) от 24.12.2023
+
+Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milano [6:09]
+02. Well, You Needn't [6:21]
+03. K.C. Blues [9:14]
+04. A Night in Tunisia [8:00](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A839AF655398EC7DAD370C1825C9D9F1A2C9E8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686570   (126211) от 24.12.2023
+
+Jack and the Axes - Proof Is In The Poison (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Love To You (4:47)
+02. Another Man With The Blues (3:28)
+03. Wasted Time (6:56)
+04. Baby I See You (4:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6EF387A954974FCBEBA4103D8017B759B01F79
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686952   (126210) от 24.12.2023
+
+Desespere - Furor Ab Intus, Caeleste Stragem Desuper (2023) [FLAC|Lossless|WEB-DL|tracks] <atmospheric black metal, doom metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Abyssum [00:01:58]
+02. Furor Ab Intus [00:13:23]
+03. Maledictus Utero [00:08:34]
+04. Caeleste Stragem Desuper [00:10:59]Жанр: atmospheric black metal, doom metalПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427D3C9F15591CAA46D21224D3BEE5732776D6AF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686616   (126209) от 24.12.2023
+
+Golden Earring - The Hole (1986) Remastered & Expanded Edition, 2023, Red Bullet [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - They Dance (00:05:21)
+02 - Quiet Eyes (00:04:12)
+03 - Save The Best For Later (00:05:18)
+04 - Have A Heart (00:04:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF06F42BC208187BE6804096D6BCF6C2FA059EC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686755   (126208) от 24.12.2023
+
+Goat - Levitation Sessions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Tarot Will Teach You (Live)
+02 – Golden Dawn (Live)
+03 – Under No Nation (Live)
+04 – Behind the Plank (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE805B6CD0FAD9A78D328A2C3AFD21694EA1AEC8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686491   (126207) от 24.12.2023
+
+Ермен Анти - Чёрный карнавал (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здравствуй и прощай [00:04:03]
+02. Крутись веселей [00:03:12]
+03. Особый резон [00:05:53]
+04. Back in USSR [00:05:08](   Читать дальше...   )Жанр: RockПродолжительность: 00:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E56CA8CFFA5FBEA07451EA714AA069ED7ECD61
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686868   (126206) от 24.12.2023
+
+Антон Павлович Чехов | Чехов детям [сборник] (2013) [MP3, Александр Хорлин, Наталья Грачева, Сергей Кирсанов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126206.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ангел-хранитель детей ведёт их, сияющих от радости и надежды, – но сам он имеет лицо печальное и задумчивое. Он знает то, что до времени скрыто от них. Так и Чехов ведёт за руку дитя улыбающееся, но сам он серьёзен: он слишком знает мимолетность человеческой улыбки, даже на детских устах. И новейшая русская история, больнее всего сделавшая именно детям, своею окровавленной (   Читать дальше...   )Жанр: Детская проза, Русская классикаИздательство: Литрес ПаблишингПродолжительность: 04:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17928A034E890562B8212F0ECDD5AC61DF7FE717
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686906   (126205) от 24.12.2023
+
+Mike Williams - Live @ Storylines, Hotel Arena, Amsterdam Dance Event (2023-10-21) [MP3|320 Kbps] <Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_126205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Williams & Firebeatz - Womp (Intro Edit) w/Mike Williams & Dastic - You & I (Acappella)
+02. Dillon Francis & Alesso & Clementine Douglas - Free
+03. Mike Williams & Magnificence - Here For You
+04. Mike Williams ft. Katie Cecil - Get Dirty w/Mightyfools - Footrocker (Get Your, Get Your Hands Up Acappella)(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8A7D5BDE91FA6A914A8795733961DAE8125A34
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,0 +1,732 @@
+###  Публикация: 189006   (864846) от 04.04.2010
+
+История легендарного Либидо / Garoojigi / A Tale of Legendary Libido (2008) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+То, что вам предстоит увидеть, это трагикомичная "летопись" начала половой жизни обычного корейского парня по имени Байюн, которого природа щедро наделила и силой, и статной внешностью, и добрым отзывчивым сердцем. Но вот об одном она похоже впопыхах забыла...Но да не беда! Ведь с помощью доброго совета старого дервиша, пожелавшего отплатить юноше добром за добро мог Байюн разом покончить со всеми своими неприятностями, однако Судьба распорядилась иначе и нежданная радость едва не стоила ему жизни...
+Но, все по-порядку...Жанр: Комедия, Эротика, ДрамаРежиссер: Шин Хан-СолАктеры: Бонг Тай-кью, Ким Син-Ах, Ох Дал-су, Юн Йео Джонг, Чон Су-кен, Се Йон, Сон Чей-хоПеревод: Одноголосый закадровый + оригинальный корейский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189412   (864845) от 04.04.2010
+
+BBC: Шкала времени. Гиммлер, Гитлер и конец Рейха / Time watch. Himmler, Hitler and the End of the Reich (2002) TVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+В апреле 1945 года советские войска вошли в Берлин, но Гитлер еще на что-то надеялся. Он считал капитуляцию позором, предпочитал смерть и того же ждал от своих соратников. 22 апреля 1945 года информагентство Reuters на весь мир передало, что Гиммлер активно общается с американскими и британскими дипломатами. Эта новость привела Гитлера в состояние бешенства.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189424   (864844) от 04.04.2010
+
+AnVir Task Manager Portable 6.3.1 [RUS]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+AnVir Task Manager - Portable (работает с любого носителя) менеджер процессов и программ автозагрузки с функциями анти-трояна, antispyware и анти-вируса.
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108188   (864843) от 24.02.2017
+
+Eddie "Lockjaw" Davis - Quartet (1985) 2000, Storyville Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Just Friends [06:55]
+ 02.Out of Nowhere [08:47]
+ 03.Take the 'A' Train [07:30]
+ 04.S 'Wonderful [06:12](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FFC3BF5B474E6E665A91F64AE0A0538F856606
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107816   (864842) от 24.02.2017
+
+Футбол. Лига Чемпионов УЕФА 2016-2017. 1/8 финала. 1-й матч. Порту (Португалия) – Ювентус (Италия) (22.02.2017) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864842.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 февраля 2017, среда. 22:45 МСК
+Лига Чемпионов УЕФА 2016-2017. Плей-офф
+1/8 финала. 1-й матч
+(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2311DBF88D36EF5FA3F6D1DF1C59C07C0CD6E2E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108125   (864841) от 24.02.2017
+
+John Hicks - Something To Live For: A Billy Strayhorn Songbook (1998) HighNote [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Something to Live For [05:47]
+ 02.Daydream [06:45]
+ 03.Medley: Lotus, Blossom [04:12]
+ 04.Blood Count [07:05](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F84EEB8837B0345E235A6C0F6A6B14FB5074827
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108231   (864840) от 24.02.2017
+
+Michael Dease - All These Hands (2017) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creole Country
+02. Delta City Crossroads
+03. Good & Terrible
+04. Territory Blues(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:65:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F165ED67FDAE4E81FF486E9435A0E0C637FD4EFC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108122   (864839) от 24.02.2017
+
+John Hicks - Nightwind: An Erroll Garner Songbook (1999) HighNote [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tribute To EG [03:00]
+ 02.Misty [06:24]
+ 03.Paris Cries [04:25]
+ 04.Paris Lover [05:26](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1919B988BB3FD39CB7A47E71DBD0B07B0FD1412
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108252   (864838) от 24.02.2017
+
+Tijerina - 2 Album (2009 - 2010) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2009 - Walk This Road
+2010 - Meant To BeЖанр: Blues-RockПродолжительность: 01:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F406C4AE96A2AEC44E4BC8C060AFE0A3B50F32DF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108240   (864837) от 24.02.2017
+
+Omer Klein - Sleepwalkers (2017) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonder and Awe
+02. Sleepwalkers
+03. Blinky Palermo
+04. One Step at a Time(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92702B34338FBF6701319A6C956F4FF6519F6F8D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108354   (864836) от 24.02.2017
+
+VA - Chillout Room (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864836.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robien M - Amour 5:58
+002. Victima - Silent Scream 5:49
+003. Sad radio on Cassini - Northern Wind 5:47
+004. MBogdanov - Atmosphere 5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D16B36665B5007610B28CFF7933F4372E56093
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108108   (864835) от 24.02.2017
+
+Nils Petter Molvaer - Baboon Moon (2011) Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mercury Heart [05:56]
+ 02.A Small Realm [03:22]
+ 03.Recoil [05:13]
+ 04.Bloodline [04:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C04C76F17A032A85EF0100F959BDB10FACEDFA5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108036   (864834) от 24.02.2017
+
+VA - Whenever Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864834.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Gorda Project - Count The Clouds 5:39
+002. Cane Garden Quartet - Sea Jam 5:24
+003. Enrico Donner - Catch A Glimpse 5:57
+004. Baghira - Happy Piano 5:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCF4DDD268ECE36678912210F2A15582AB93BBD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107823   (864833) от 24.02.2017
+
+Футбол. Лига Чемпионов УЕФА 2016-2017. 1/8 финала. Обзор Первых матчей. День 4-й (22.02.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864833.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 февраля 2017, среда
+Обзор Первых матчей 1/8 финала Лиги Чемпионов УЕФА 2016-2017.
+День 4-й:
+(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: Русский (Михаил Моссаковский)Продолжительность: 00:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6F0212FD3BF3E7B9FEE56667A98001AD440ECA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108119   (864832) от 24.02.2017
+
+Jean Goldkette And His Orchestra - Victor Recordings (1924-1928) 2001, Trans Atlantic Radio [FLAC|Lossless|tracks + .cue] <Early Jazz, Dance Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's The Blues [02:48]
+ 02.I Didn't Know [03:10]
+ 03.After I Say I'm Sorry [03:18]
+ 04.Dinah [03:07](   Читать дальше...   )Жанр: Early Jazz, Dance BandПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C71FFD3D6732C255713A4DFF9DA2E91A64FA0EB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108273   (864831) от 24.02.2017
+
+Belmont Blues Kingz - Blues in Sonoma (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rhythm-&-Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Jam (1:52)
+02. Have A Good Time (2:30)
+03. Everybody's Fishin' (3:35)
+04. Drugs Guns And Violence (4:04)(   Читать дальше...   )Жанр: Blues, Rhythm-&-BluesПродолжительность: 00:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795D6791CBF355AA2599B00D542FF9BD5811F073
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108110   (864830) от 24.02.2017
+
+VA - Electronic Dance Music Vol.14 (2017) [MP3|320 Kbps] <Trance, Tech Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ALX Project - Searching Sunlight (Original Mix)  8:49
+02.  Renegade System - Cloudwalker (Alan Wyse Remix)  6:39
+03.  DJ Kay - Waterfall (Original Mix)  8:32
+04.  Aaron Watton - Back To Reality (Brannock Remix)  6:52(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 03:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC842AA7BD47353FEB7F12B6853BCB3D5E14D21D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108075   (864829) от 24.02.2017
+
+VA - Creations Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Redlounge Orchestra - String Thing  4:40
+02.  Blue Vibes - In The Cool Drazer  5:15
+03.  Dyodho - The Land Of Sinead  8:33
+04.  Akilam - Beauty Language  6:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E4932841F09F65D10F4701A633D667E001358E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999516   (864828) от 22.03.2016
+
+Calendar 366 Plus 1.3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calendar 366 Plus - календарь событий и напоминаний для меню бара
+Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарям, а также сделает более легким управление  событиями и напоминаниями.
+
+Нажмите на иконку и получите (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 марта 2016Разработчик: n.spektorПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2863453FC3C7DD01FBDAE17E7032F04E786598A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999360   (864827) от 22.03.2016
+
+VA - Sexual Healing Lounge: Best of Erotic Tandra Cafe for Lovers (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pattern Mixer – Sex at the Beach – Dowbeat Buddha Chill and Tandra Mix
+ 02. Vegan T-Bones – Dirty Mind – Season 6 Mix
+ 03. Urban Felix – Watch Me – Intimate Shower Relaxation Mix
+ 04. Guilty by Innocence – Thief of Heart – Fading Lights of Sexyness Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D459BF1A87AE81AF7DB60FCC031A4B002774A720
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999551   (864826) от 22.03.2016
+
+Александр Коноплин | Шесть зим и одно лето (2001) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Шесть зим одно лето» – лагерная проза, вобравшая в себя воспоминания А. Коноплина; начат после освобождения, в 1954-м году, закончен сорок два года спустя, в 1996-м году.Жанр: Советская классическая проза, Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D4F73F94C8D5D05273481E26F776C5BD8D3D8A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999507   (864825) от 22.03.2016
+
+VA - Шансон-состояние души 97 (2013) [MP3|160-256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Акимов Юрий - Я-русский
+02. Виссонов Михаил - Срок
+03. Дадонкин Владимир - Письмо
+04. Игрунов Константин - Зима в Ростове(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66199DA03F2CFFBAFC16637CE6EAACDA5FD59BA1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999447   (864824) от 22.03.2016
+
+М. Червонный | Конспект курса политграмоты [Изд. 2-е] (1925) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предисловие:
+
+Насколько сильно назрела потребность в серьезной книге политграмоты, показывает большое распространение «Курса политграмоты» А. Бердникова и Ф. Светлова. Однако, большой размер книги и вызванная этим относительно высокая ее цена делают ее недоступной для некоторых кругов читателей — для одних из-за недостатка свободного времени, для других — за отсутствием (   Читать дальше...   )Жанр: История, политология, экономика, справочник, конспектФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613F169131D11731B77E5E2B09BF76F0A905C53E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998598   (864823) от 22.03.2016
+
+Ф. Ватсон | Между планетами (1947) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша солнечная система, в которую Земля входит в качестве небольшого тела, состоит не только из Солнца и девяти планет, но также из многих  тысяч мелких тел, которые иногда становятся несравненно заметнее самых ярких планет. Блестящая комета с длинным хвостом, тянущимся по небу; астероид, пролетающий около Земли на расстоянии всего нескольких миллионов километров; (   Читать дальше...   )Жанр: История, астрономия, физика, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEBD234F9F68CC6F929583A5C559B05904D68D2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999528   (864822) от 22.03.2016
+
+Антон Леонтьев | Трудно быть солнцем (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получив странное анонимное письмо, приглашающее ее в провинциальный городок Староникольск, Юля почти не удивилась, ведь именно там в начале прошлого века таинственно исчезла Юлина прабабка, знаменитая актриса немого кино Анна Радзивилл. Разбирая семейный архив, Юля узнала, что сто лет назад на Староникольск наводил ужас таинственный убийца по прозвищу Садовник, одной (   Читать дальше...   )Жанр: Детективный романПродолжительность: 16:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2060B5418A67C139A3E5328E523903C1FA50A942
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999453   (864821) от 22.03.2016
+
+А. А. Алексеев | Библия в богослужении. Византийско-славянский лекционарий (2008) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_864821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лекционарий (сборник библейских пассажей для чтения за богослужением) нашел применение в Византии в VIII—XII, а у славян в X—XIV вв. В книге охарактеризованы рукописная традиция лекционария на греческом и славянском языках и его структура, рассмотрены причины назначения библейских пассажей для чтения в определенные дни литургического года, устанавливаются обстоятельства (   Читать дальше...   )Жанр: ЛитургикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C892633E39D85F28B0C5C36CAC989470FE27AB2A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

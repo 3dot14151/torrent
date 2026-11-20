@@ -1,0 +1,731 @@
+###  Публикация: 969154   (148763) от 26.12.2015
+
+Clean Space 2015.04 Portable by SoftsPortateis [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clean Space - простая профессиональная программа, которая полностью очистит историю посещенных веб-сайтов, удалит файлы index.dat, куки, кэш, временные интернет-файлы, историю поиска, автозаполнение истории поиска и любые другие следы, которые пользователь оставляет после использования ПК. Будьте уверены, что ни один пользовательский документ не будет удален по ошибке! (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E30625F474EA9FF1C5D9BA656F45AF60F3E56A6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519598   (148762) от 24.12.2021
+
+Belore - Artefacts (2021) [Flac|Lossless|image + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tale of a Knight 08:22
+02. Artefacts of Power 07:31
+03. The Fall of Endeor 07:33
+04. Moonstone 08:08(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F3410D2D4491465451E1878ACFFF6E2EA6509B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086790   (148761) от 26.12.2016
+
+The Johnny Smith - Quartet (1955) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Django [05:08]
+ 02.Wait 'Till You See Her [02:19]
+ 03.0500 Blues [03:50]
+ 04.More Bass [02:33](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63830F6700AFD1AC4DC890C2C9ABB1F3323A5AA7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677795   (148760) от 19.11.2023
+
+Храбрый Пак (1953) DVDRip [H.265/1080p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год огненный дракон уничтожает урожай всей деревни, и никто не может противостоять ему. Но однажды храбрец Пак, не побоявшись, бросает ему вызов.Производство: СССР, СоюзмультфильмЖанр: Анимация, Детский, Приключения, Семейный, ФэнтезиРежиссер: Евгений Райковский, Владимир ДегтяревСубтитры: отсутствуютПродолжительность: 00:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFF7FB460DFAF0709C3378024D84CB9C6C226B0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347703   (148759) от 24.12.2019
+
+VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148759.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hante. - Waiting For A Hurricane
+002. Nima Gorji - A Better World
+003. Stilz - Anomaly
+004. Clock And Dagger - Planet X(   Читать дальше...   )Жанр: Synthwave, Electronic, DanceПродолжительность: 12:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C59B62E2734D3088D3B5F155616A0C012917D4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589790   (148758) от 15.12.2012
+
+Большие олимпийские гонки. Выпуск №1-13 (2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера игры «Большие гонки» состоялась во Франции в 1962 году. Идея веселого состязания между странами принадлежит бывшему Президенту Франции Шарлю де Голлю, он таким образом хотел объединить молодежь Европы и укрепить дружбу между странами. Россия впервые приняла участие в играх в 2005 году. Традиционно соревнования проходили во Франции. Вот уже много лет изюминкой «Больших гонок» являются быки, поэтому в этом сезоне смельчаки отправились на родину корриды в Испанию. Испания – страна страсти, корриды и страна, где проходили ХХV Олимпийские игры. Барселона впервые принимает у себя Большие Олимпийские гонки. Восемь стран-участниц сойдутся в состязании под испанским небом, чтобы определить триумфатора.Жанр: ТВ-ШоуФормат: AVIПродолжительность: 13х~01:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3679DBC689861872A44F42AE0FF313B6B86334
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434627   (148757) от 25.12.2020
+
+Татьяна Маричева | Школа Продюсера. Тариф Запуск + дополнительный поток (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы сделаете запуск своей онлайн-школы прямо в процессе обучения под руководством опытных наставников-практиков
+За два месяца вы изучите все аспекты онлайн-школ от поиска эксперта до продаж на вебинарах, внедрите это в свою работу
+
+В результате обучения вы станете профессиональным продюсером онлайн-школ, а это на мой взгляд – самая востребованная профессия в 2020 (   Читать дальше...   )Производство: Школа ПродюсераЖанр: Видео-курсЯзык озвучки: РусскийПродолжительность: 32:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088F29A67E1FE4159A2B52A87AE2311FA9D2CD81
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739060   (148756) от 27.12.2013
+
+VA - Клубные Новинки Vol. 356 (2013) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Cassani – Motorway (Dub Mix)
+02. Nera - Tonight Is The Night (Video Edit)
+03. Two & One with Denis Kenzo feat. Sveta B - Sitorya (Original Mix)
+04. Megastylez - Whiteline Fever (Radio Mix)
+05. Tim Besamusca - Hyperscape (Original Mix)
+06. Max Elto - Shadow Of The Sun (Radio Edit)
+07. David Bernardi & Stedman - Summer Groove (Vocal Mix)
+08. Nikola feat. Livingstone - You Won't Be Leaving Me (Radio Edit)
+09. tranzLift pres. Stellarium - Tenebris Somnia (Mark Dreamer Remix)
+10. Purebeat - Roll (Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C9CA349871AEF49CB96CCC041DAA072A579C6F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347560   (148755) от 24.12.2019
+
+VA - Bar 25 Music Presents: Selektion 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead-Tones - For The World To Know About (original mix) (7:38)
+02. Bondi - Away From Heaven (Niko Schwind remix) (7:32)
+03. She Knows - Passing Hours (Sascha Cawa remix) (6:55)
+04. Nicone - Una Rosa Es Una Rosa (feat Narra - original mix) (5:33)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E11890A77B8C026B4C9F79A748BE2F08E049171
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271714   (148754) от 24.12.2018
+
+Four On The Floor - Four On The Floor (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Goes My Baby (5:08)
+02. Gypsy Woman (6:12)
+03. Any Day Now (5:18)
+04. Glimmer Twins Medley - Let's Spend The Night Together (4:16)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EB61F2EF8B6FF6163D13FFAC1887FF354B4E2B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519471   (148753) от 24.12.2021
+
+Battery Indicator for Mac 2.11.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Battery Indicator показывает оставшееся время работы от батареи и процент в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 23.12.2021Разработчик: © 2021 Sindre SorhusПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4115BAD323473865315735B3DE9F9CED51CD18AD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087030   (148752) от 26.12.2016
+
+John Kirby - The Biggest Little Band In The Land (1938-1941) 1994, Jazz Portraits[APE|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rehearsin' For A Nervous Breakdown [02:39]
+ 02.Undecided [02:59]
+ 03.It Feels Good [02:48]
+ 04.Sweet Georgia Brown [02:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A97760BD4F343EDBC982C6113DCA5684A712226
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677843   (148751) от 19.11.2023
+
+Milli Vanilli - The Best of Milli Vanilli (2023) 35th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl You Know It's True [00:03:18]
+02. Baby Don't Forget My Number [00:04:10]
+03. Blame It on the Rain [00:04:08]
+04. I'm Gonna Miss You [00:03:59](   Читать дальше...   )Жанр: Pop, Rap, Synth-popПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496E84370BED269FBA14414CC7FAECCF21EF4EC9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739216   (148750) от 27.12.2013
+
+VA - Le Beat Technique, Vol. 6 (2013) [MP3|320 кб/с]<Techno, Tech House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Urbano - Traumwelt - Thomas Hessler Remix (06:18)
+ 02. Nikola Gala - Tunnel Vision (12:24)
+ 03. Joachim Spieth - Sensual - Jamal Moulay Remix (07:07)
+ 04. Yuuki Hori - Absolute Dub 1 (08:24)
+ 05. Klartraum - Endnormalisiert (06:43)
+ 06. Nadja Lind - Brain Candy - Blatancy Remix (08:28)
+ 07. Gathaspar - City Roast (07:52)
+ 08. Stefano Lotti - Ipnosi digitale - Lucy Remix (04:33)
+ 09. Rasmus Hedlund - Black Dust (08:58)
+ 10. M. Rahn - Stryx02 (06:30)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 03:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE07039BA924182D471A774D3F8DA61CF4EA0B94
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158040   (148749) от 25.12.2020
+
+Боги, наверное, сошли с ума / The Gods Must Be Crazy (1980) WEB-DL [H.264/1080p]
+
+>>След.
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148749.jpg" />
+</div>
+
+
+###  Подробнее
+
+В дикие, девственные леса Африки с небес падает бутылка «Кока-колы». Здесь же обитает по-детски невинное племя бушменов. Вокруг столкновения двух цивилизаций происходит масса комедийных моментов.Производство: Ботсвана, ЮАР / CAT Films, Mimosa FilmsЖанр: комедия, приключения, боевикРежиссер: Джейми ЮйсАктеры: Н!ксау, Сандра Принслу, Мариус Вейерс, Лоу Вервей, Майкл Тис, Ник Де Ягер, Фаньяна Х. Сидумао, Джо Сикэтси, Брайан О’Шонесси, Кен ГампуПеревод: Многоголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 01:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C89A8F419B9582D4A0DDA5005EA6D68B5FE99C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589042   (148748) от 15.12.2012
+
+PhotoLine 17.51 Portable by SamDel [Multi/Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+PhotoLine - хорошая альтернатива дорогостоящему и громоздкому PhotoShop, универсальная программа с множеством разнообразных функций и очень быстрой скоростью работы. Сначала привлекает возможностью создавать множество различных эффектов в изображениях, но по мере пользования программой всё больше раскрываются ее возможности. С помощью PhotoLine Вы сможете красиво и оригинально оформить фото своих детей и близких, сделать поздравительные открытки, визитки и бейджики, карманные и настенные календари и многое другое, вплоть до создания профессиональных рекламных проектов, подготовленных для типографской печати.Название программы: PhotoLine PortableЯзык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677881   (148747) от 19.11.2023
+
+Opera One 105.0.4970.16 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C6A0AD36819A313DA0BFB3E451A577172F287B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087085   (148746) от 26.12.2016
+
+The Michael Brecker Band - Live (1993) Jazz Door [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Gossip [06:24]
+ 02.Nothing Personal [14:56]
+ 03.Original Rays [22:24]Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F0E9BFC2A19DDDA3995EB504211B0FB0FD078B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519408   (148745) от 24.12.2021
+
+Леонид Цыпкин | Лето в Бадане (Сборник) (2013) [MP3, Леван Твалтвадзе]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое издание романа Леонида Цыпкина (1926-1982) "Лето в Бадене", вышедшее в переводе на английский язык, стало на Западе сенсацией. "Затерянный шедевр", "грандиозная веха русской литературы XX зека", "самое неизвестное гениальное произведение, напечатанное в Америке за последние 50 лет" - таковы отзывы из многочисленных рецензий.Жанр: Cовременная прозаПродолжительность: 26:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B1336C2C17C6262FECE42A8B192140FB0AF483
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271633   (148744) от 24.12.2018
+
+VA - German Top 100 Single Charts 31.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148744.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ava Max - Sweet But Psycho
+002. Mariah Carey - All I Want For Christmas Is You
+003. Sido - Tausend Tattoos
+004. Mero - Baller los(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F1C9528934CB0B072C3F5B2822144A19095F92
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347765   (148743) от 24.12.2019
+
+Nicky Romero & Laidback Luke - Live @ Avicii Tribute Concert, Friends Arena Stockholm, Sweden 2019-12-05 [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicky Romero & MORTEN - ID
+02. Deniz Koyu & Don Palm vs. Calvin Harris & Alesso - Lift vs. Under Control (Nicky Romero Mashup)
+03. Meduza X Becky Hill X Goodboys - Lose Control w/ID - ID
+04. Armin van Buuren ft. Ne-Yo - Unlove You (Nicky Romero Remix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B1BBB3E3D536CC15C98AF82156B43674EDDB41
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589577   (148742) от 15.12.2012
+
+Дэвид Эддингс | Маллореон [1987-1991] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дитя Тьмы, безжалостный Торак, убит. Мир воцарился в Западных землях... Но злая сила, которая создала Торака, не собирается сдаваться. Снова собирает она Апостолов Зла, сияет красным цветом Сардион, а Белгарион и Се'Недра снова должны будут делать выбор, от которого зависит судьба мира.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7CB1AD5668900578E1109626AC55F31521133A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434391   (148741) от 25.12.2020
+
+Яндекс отключил расширения с аудиторией в 8 млн пользователей.
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некоторое время назад пользователи Яндекс.Браузера стали обращаться в поддержку с жалобами на странный звук, который можно было принять за аудиорекламу.Общение с пользователями помогло нам понять, что источником звука на самом деле была видеореклама. Но странность заключалась в том, что никакое видео в этот момент на экране не воспроизводилось. Сначала мы подумали, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347634   (148740) от 24.12.2019
+
+студия Диафильм | Я - сам! (1971) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шотландские народные сказки.
+
+Диафильм представляет собой последовательность из 30—50 диапозитивов размером 18×24 мм, отпечатанных на общем рулоне позитивной 35-мм киноплёнки. Кадры диафильма выстроены в определённом порядке и сопровождаются титрами, превращающими фильм в иллюстрированный рассказ. В диафильмах чаще всего использовались репродукции рисунков, (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976F9D70A0A915C16CA235EBFDBA8096460C0D6E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677933   (148739) от 19.11.2023
+
+Создатель / The Creator (2023) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148739.jpg" />
+</div>
+
+
+###  Подробнее
+
+На фоне войны будущего между человечеством и силами искусственного интеллекта Джошуа, закаленный в боях и бывший оперативный агент, переживает исчезновение жены, и теперь ему предстоит найти и уничтожить Создателя — неуловимого архитектора, создавшего искусственный интеллект и оружие, способное положить конец всему людскому роду.Производство: США / 20th Century Studios, Entertainment One, Regency TelevisionЖанр: фантастика, боевик, драмаРежиссер: Гарет ЭдвардсАктеры: Джон Дэвид Вашингтон, Мэделин Юна Войлс, Джемма Чан, Эллисон Дженни, Кэн Ватанабэ, Стерджил Симпсон, Амер Чадха-Пател, Марк Менчака, Робби Танн, Ральф АйнесонПеревод: Дублированный (Postmodern)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (forced, full, SDH)Продолжительность: 02:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5D9B79A44943B8E315123822C56EE894645D28
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271167   (148738) от 24.12.2018
+
+VA - The Ratpack At Christmas (2012) [MP3|320 Kbps] <Jazz, Pop, Folk
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_148738.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Frank Sinatra - White Christmas                         [03:26]
+2. Dean Martin - Let It Snow! Let It Snow! Let It Snow!    [01:53]
+3. Sammy Davis Jr. - A Man With A Dream                    [02:48]
+4. Frank Sinatra - Silent Night, Holy Night                [03:12](   Читать дальше...   )Жанр: Jazz, Pop, FolkПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D56494D672B2EE90DAF0DE0C0CB9847F06EDC63
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

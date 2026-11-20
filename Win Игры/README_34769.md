@@ -1,0 +1,723 @@
+###  Публикация: 1426569   (186058) от 25.11.2020
+
+VA - Музыка РУ. Шансон (2005) [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Назар - Шофёр
+02. М. Круг - Дороги
+03. Мафик - Привет
+04. С. Бобков - Коса и камень(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44BB5D40DD6A2AFF1B3CE19FAE8EE39B30D1BFB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664186   (186057) от 25.09.2023
+
+Paquito D'Rivera - Este Camino Largo (1978) 2002, Yemaya Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_186057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Este camino largo [6:05]
+02. Hasta siempre [9:39]
+03. La canción de los niños [6:17]
+04. Ragtime [5:22](   Читать дальше...   )Жанр: Latin Jazz, Ethnic JazzПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5502108C575D580404089AD010F1A3F17FB772E9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664205   (186055) от 25.09.2023
+
+Ronin - Valak the Defiler (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_186055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturn's Portal [00:04:18]
+02. Beyond the Pale [00:04:13]
+03. Hatred's Mate [00:02:55]
+04. Monster [00:02:53](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA925421A09C8837D8DBF876CFE022E677AA0E5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664150   (186053) от 25.09.2023
+
+Bang Camaro - Bang Camaro I-III (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_186053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2007 - Bang Camaro I
+2009 - Bang Camaro II
+2023 - Bang Camaro IIIЖанр: Hard RockПродолжительность: 02:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21107725F17C413B62B9742629382486A6A4449
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426300   (186052) от 25.11.2020
+
+Беличьи секреты (тайны) / Secrets of Squirrels (2018) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Белки нравятся всем! Милые и игривые, а еще — сообразительные. Создатели данной картины сумели заснять белок в их естественном окружении: высоко в листве и на верхушках деревьев. Они изучили их интеллект, а также постоянную борьбу за господство.Производство: Австрия, ORF, ARTE, NDR и dreiD.at FilmproduktionЖанр: документальный, природа, фаунаРежиссер: Франц ФуксПеревод: Одноголосый профессиональныйПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D2FF9A930A398762280464C075D5994C7409C7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664190   (186050) от 25.09.2023
+
+Rene Marie - Vertigo (2001) MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_186050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [5:19]
+02. Surrey With the Fringe on Top [6:25]
+03. I'd Rather Talk About You [4:54]
+04. Don't Look at Me Like That [5:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2148DF1BBFEF41B5C943DAFE495DE0BDB9086866
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426631   (186049) от 25.11.2020
+
+VA - Music News vol.51 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indira - На Краю Неба (03:28)
+ 02. Amelia - Mare Rosso (03:41)
+ 03. Andro - Любит Пироги (02:02)
+ 04. Angelica - L'ultimo Bicchiere (03:22)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629FAD7A0E1ACA8A9EA139D1C8C353E8001D8CEB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426734   (186047) от 25.11.2020
+
+Джек Фэруэдер | Добровольный узник. История человека, отправившегося в Аушвиц (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это первая полная книга об удивительной истории Витольда Пилецкого. В 1940 году он добровольно отправился в новый концентрационный лагерь, созданный нацистами, – Аушвиц. Витольд организовал в лагере подпольную сеть и на протяжении двух с половиной лет тайно передавал на волю информацию о происходящем. Благодаря ему миру открылись подробности и масштабы преступлений (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаПеревод: Ирина МатвееваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A37049395676DBFABE94A361514D79C8A173D6A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664133   (186046) от 25.09.2023
+
+Dead Feathers - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Psychedelic Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_186046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full Circle [00:07:01]
+02. Lightning [00:05:13]
+03. Daughters [00:06:17]
+04. One Year Before The Island [00:01:44](   Читать дальше...   )Жанр: Psychedelic Rock, Psychedelic Blues RockПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1361C2607CF4CE9F9B68FC11CE52B000EA6F466B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664242   (186044) от 25.09.2023
+
+Thibaut García - El Bohemio (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Un sueño en la floresta (8:02)
+02. Aire de zamba (2:31)
+03. Mazurka appassionata (5:39)
+04. 24 Preludes, Op. 28: No. 20 in C Minor (Arr. Barrios Mangoré for Guitar) (1:38)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3CE5C16CDDD03C015BE60921DE9D99696DA24B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426630   (186042) от 25.11.2020
+
+Zoner Photo Studio X 19.2009.2.283 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18E05C5225B6557199C1E45C4DEB11A4384A5F4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426602   (186041) от 25.11.2020
+
+Mystery Case Files 22: Crossfade (2020) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детективу предстоит вернуться к своим прежним расследованиям, чтобы восстановить шкалу времени и спасти мир. Он должен снова встретиться лицом к лицу со злодеями и получить помощь от старых друзей. Какое будущее настанет после того, как все будет сказано и сделано? Есть только один способ это выяснить!Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA481C3B79FFDFB70675658EE2D46513701CA748
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664284   (186040) от 25.09.2023
+
+Лорел и Харди. Двойной кутеж / Double Whoopee (1929) WEBRip (color)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_186040.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отеле Фронтенак переполох: с минуты на минуту ожидают принца, который приехал в США с визитом. Но сначала вместо принца приходят наши друзья. Правда, на поверку они оказываются новыми лакеем и швейцаром. Переодевшись, с усердием оба принимаются за исполнение своих обязанностей. А тут и принц появляется с премьер-министром.
+Фильм колоризован.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, немое киноРежиссер: Льюис Р. ФостерАктеры: Стэн Лорел, Оливер Харди, Джин Харлоу, Брукс Бенедикт, Чет Бранденбург, Эд Бранденбург, Розалинд Бирн, Бобби Каллахан, Джек Чиф, Джек ДириПеревод: немой с интертитрами (bankolya)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26DEB52765218FCE33E0E40B71F4E772307028E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664143   (186038) от 25.09.2023
+
+Lost Romantic - LovexHate (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_186038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No! Looking Back [00:01:17]
+02. Bad Intentions [00:02:22]
+03. Waterfalls [00:02:40]
+04. Sober [00:02:57](   Читать дальше...   )Жанр: Alt.RockПродолжительность: 00:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403792A0B7A9E9005728AB56B99BA287A7F7680E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426562   (186036) от 25.11.2020
+
+VA - Outliers:2 (2020) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Halftime, Experimental>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam KDC - Obsessed (04:42)
+ 02. Last Life - Opium (04:31)
+ 03. Antagonist - Vectors (07:12)
+ 04. Torana - Magnate (06:36)(   Читать дальше...   )Жанр: Drum n Bass, Halftime, ExperimentalПродолжительность: 02:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B332B59D10BFC72ED19DAFE2EF364E39DF8BD62F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664147   (186035) от 25.09.2023
+
+Doris Melton - Reflected Perspective (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Psychedelic Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_186035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone in My Room [00:03:33]
+02. Maybe Tomorrow [00:03:40]
+03. Everyone Is My Enemy [00:03:43]
+04. Getting Even Pt I [00:04:55](   Читать дальше...   )Жанр: Prog Rock, Psychedelic Rock, Alternative RockПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62880A6D92A4161A10F2AC089CB8D6407A3A049
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426739   (186034) от 25.11.2020
+
+Игорь Диденко | НеВенец творения. Всё, что вы боитесь знать о будущем (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга экономиста и медиаменеджера Игоря Диденко «НеВенец Творения, или Все, что вы боитесь знать о будущем» шокирует и открывает глаза на то, в каком мире мы будем жить уже завтра, что станет нашей повседневностью! Автор, опираясь на достоверные факты и исторические события, рисует чёткую картину нашего будущего.
+Цифровые технологии - это зло или благо? И чем их (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA43CED4081EB22EA9756E80A56AE7311B128965
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664146   (186032) от 25.09.2023
+
+Lieder Distortion - The Age of Art (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Operatic Rock, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_186032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Giovanni [00:06:44]
+02. Auf Dem Flusse [00:03:16]
+03. Se il cor guerriero [00:03:23]
+04. Du Hiärtans Tröst och Lilja [00:02:25](   Читать дальше...   )Жанр: Symphonic Operatic Rock / Heavy ProgПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFCCBD3F97FD531DD8A79E48F909CE5039E745D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426783   (186030) от 25.11.2020
+
+Мунго Мелвин | История Крыма и Севастополя. От Потемкина до наших дней (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монументальный труд выдающегося британского военного историка – это портрет Севастополя в ракурсе истории войн на крымской земле. Начинаясь с самых истоков – с заселения этой территории в древности, со времен древнего Херсонеса и византийского Херсона, повествование охватывает период Крымского ханства, освещает Русско-турецкие войны 1686–1700, 1710–1711, 1735–1739, (   Читать дальше...   )Жанр: История России, Популярно об историиПеревод: Юрий ГольдбергФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9149C9E9D938FC81380541170B50C03A5B28A2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426533   (186029) от 25.11.2020
+
+Amethystium - Odonata: 20th Anniversary Edition (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opaque (20th Anniversary Edition) (4:43)
+02. Enchantment (20th Anniversary Edition) (6:02)
+03. Dreamdance (20th Anniversary Edition) (4:17)
+04. Tinuviel (20th Anniversary Edition) (3:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591B6936F9D576EEA96D4A612508C7AFCB9F8462
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664126   (186028) от 25.09.2023
+
+Hax - Wives with Knives (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_186028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway 69 [00:04:15]
+02. Work the Room [00:03:55]
+03. Bad Kiss [00:03:46]
+04. Must Be Love [00:02:36](   Читать дальше...   )Жанр: Alternative rockПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308D34B27142D87454883D3F12E1A58302756C52
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426677   (186026) от 25.11.2020
+
+Prison Empire Tycoon v2.0.2 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prison Empire Tycoon — игра-кликер – отличная игра на андроид, где вы будете управлять тюрьмой. Возьмите под свой контроль тюрьму и зарабатывайте на ней деньги.Тип издания: ПираткаРелиз состоялся: 23 ноября 2020 г.Разработчик: CodigamesПоддерживаемая ОС: Android 5.0 и вышеЖанр: Simulation (Симулятор)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4433D98F477C9D324539F8644FF6C3445AE05DEF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664220   (186025) от 25.09.2023
+
+Royal Academy of Music Soloists Ensemble, Trevor Pinnock, The Glenn Gould School - Bach: Partitas (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. I. Praeludium (1:46)
+02. II. Allemande (3:32)
+03. III. Corrente (3:05)
+04. IV. Sarabande (5:01)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2614A8535B9FB84FE8373CC2D08DEBDD8071636A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664283   (186023) от 25.09.2023
+
+Лорел и Харди. Двойной кутеж / Double Whoopee (1929) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/save_picture_186023.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отеле Фронтенак переполох: с минуты на минуту ожидают принца, который приехал в США с визитом. Но сначала вместо принца приходят наши друзья. Правда, на поверку они оказываются новыми лакеем и швейцаром. Переодевшись, с усердием оба принимаются за исполнение своих обязанностей. А тут и принц появляется с премьер-министром.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, немое киноРежиссер: Льюис Р. ФостерАктеры: Стэн Лорел, Оливер Харди, Джин Харлоу, Брукс Бенедикт, Чет Бранденбург, Эд Бранденбург, Розалинд Бирн, Бобби Каллахан, Джек Чиф, Джек ДириПеревод: немой с интертитрами (bankolya)Субтитры: русские (интертитры)Продолжительность: 00:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0727BA198F055EEB1FB892E97521F64C08BF564
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426603   (186021) от 25.11.2020
+
+BluffTitler Ultimate 15.0.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_186021.jpg" />
+</div>
+
+
+###  Подробнее
+
+BluffTitler - программа для создания красивых текстовых 3D эффектов и простейшей мультипликации, применяемых при монтаже видео. Результат можно просматривать в реальном времени с последующим экспортом в картинку или видео-формат. Вся создаваемая анимация состоит из слоев, которые могут модифицироваться независимо.BluffTitler поддерживает большое количество различных (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09798E9C8FB220E743B80B76CF6CFAAAD1ACA887
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664267   (186020) от 25.09.2023
+
+Владимир Першанин | «Зверобои» штурмуют Берлин. От Зееловских высот до Рейхстага (2022) [MP3, Александр Иванов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_186020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этой победной весной 1945 года «зверобоям» предстоит взламывать мощнейший укрепрайон на Зееловских высотах, объявленный Гитлером «неприступной твердыней Рейха». Им брать штурмом проклятый Берлин, превращенный в огромную крепость. Им крушить 152-мм снарядами бетонные доты, бронеколпаки и тяжелые панцеры, бить прямой наводкой по Рейхстагу и вновь смотреть в лицо смерти (   Читать дальше...   )Жанр: БоевикиИздательство: ЛитРесПродолжительность: 07:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6619EE00205F2EB396B96A9FE1A2A640EB562E1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
