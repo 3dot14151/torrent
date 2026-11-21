@@ -1,0 +1,733 @@
+https://t.me/izofen
+###  Публикация: 1461221   (1021974) от 09.04.2021
+
+Saille - V (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suffering Sanctuary (Parts 1, 2, 3)
+02. Fetid Flesh
+03. Charnel Chamber
+04. Loathsome Legacy(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F49F5100BD6BB384D07B536615DD14D3EABBC2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461356   (1021973) от 09.04.2021
+
+Memoriam - 4 Studio Albums (2017-2021) 4xCD [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейбл Nuclear Blast подписал контракт с британской Death Metal группой MEMORIAM, в состав которой входят Карл Уиллетс (Karl Willets, BOLT THROWER) на вокале, Фрэнк Хили (Frank Healy, BENEDICTION, CEREBRAL FIX) на басу, Скотт Фэйрфакс (Scott Fairfax, CEREBRAL FIX) на гитаре. C 2020-го года в группе новый барабанщик Spike T Smith (SACRILEGE, CONFLICT, KILLING JOKE, (   Читать дальше...   )2017 - For The Fallen
+2018 - The Silent Vigil
+2019 - Requiem For Mankind
+2021 - To The EndЖанр: Death MetalПродолжительность: 03:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B138178003CE746F16BDE007E0D268B117012FF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461016   (1021972) от 09.04.2021
+
+VA - R&B: Warm Time Of Representation (2021) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте весну с музыкой сборника "R&B War Time Representation"! Сегодня это современная музыка мегаполисов, где есть место для соула, танцевальной музыки и ритму. Вы непременно начнете отбивать в такт мелодии и ритму вслед за R&B исполнителями. Остаться равнодушным у Вас не получится!001. Rotimi, Wale - In My Bed
+002. Dornik feat. Zelly One - Temptation
+003. Lala Maria - Unapologetic
+004. Marvin Gaye - Running From Love(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B933E09024F818991FD34D5DDB4D206302D4E402
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461217   (1021971) от 09.04.2021
+
+ScreaMachine - ScreaMachine (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demondome
+02. The Metal Monster
+03. The Human God
+04. Darksteel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA7877D47BBC21987C7231C41EDB94D099734AA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461394   (1021970) от 09.04.2021
+
+Night Spirit - The Spark (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight (04:03)
+02. Fire (04:17)
+03. Event Horizon (03:05)
+04. The Night is Ours (03:50)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2985F4F522A83917C8D1EC0D4F2B97D249A69365
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461275   (1021969) от 09.04.2021
+
+Perfect Storm - No Air (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strength (08:21)
+02. The Search (06:58)
+03. Sun For Life (08:11)
+04. Hope (07:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CB0C999403D623EBFA425108C20633496B5526
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461203   (1021968) от 09.04.2021
+
+VA - Fitness Week: Electro House Mix (2021) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рады Вам представить отличный микс музыки в стиле Electro House для занятий активным спортом. Это не только ритмичные однообразные мелодии, а лучшим образом подходящие для тренировок мотивирующие треки разной интенсивности. Благодаря этому предполагается его использование этой музыки не только для силовых, но и для фитнесс занятий.001. Beth Lydi - Bulk
+002. The Houzeplayer - Me Gusta Balia
+003. Joseph Gray - Da La Belle
+004. Dongle Brothers - Read Up(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 09:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7431D132B8E99A3200EFFB7BB1FECF0A723A0512
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461408   (1021967) от 09.04.2021
+
+Сергей Рублев | Детям о животном мире. Животные Азии (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энциклопедия «Животные Азии» откроет тебе удивительный и многоликий мир животных прекрасной и загадочной Азии. Красочные иллюстрации, интересная информация сделают изучение этой книги по-настоящему увлекательным занятием и помогут узнать много нового.Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BADC8EE86D90404F283EC16E4DE75E492F01FF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461432   (1021966) от 09.04.2021
+
+Марьяна Романова (сост.) | Солнечная система в вопросах и ответах. Сатурн (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сатурн — самая лёгкая планета Солнечной системы. И единственная планета, у которой есть хорошо видимые яркие кольца. Учёные надеются, что на некоторых спутниках Сатурна могут существовать примитивные формы жизни. Почему Сатурн иногда называют младшим братом Юпитера, чем пахнет Сатурн, из чего состоят кольца этой красивой планеты, как учёные собираются искать жизнь (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977172C8CFBFB0926842EA5B39BC6FA01B00B104
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461433   (1021965) от 09.04.2021
+
+Марсель Перез. Шаги любви / Amor pedestre (1914) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ах, эти дамские ножки, такие соблазнительные и недоступные, скрытые под длинным одеянием, которое лишь разжигает интерес и будоражит воображение. Сколько по их вине пролито слёз и крови, они способны свести с ума и подарить неземное блаженство. Они живут своей собственной жизнью, а их лёгкие шаги – это шаги любви. В шесть минут экранного времени мастер короткого (   Читать дальше...   )Производство: Италия, AmbrosioЖанр: Комедия, короткометражный, немое киноРежиссер: Марсель ПерезАктеры: Марсель Перез, Нильде БараккиПеревод: Немой с интертитрамиСубтитры: Итальянские интертитры, русские отдельным файломПродолжительность: 00:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEE93E93D0C846628198ECE72B4620C8B7F7D4C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461274   (1021964) от 09.04.2021
+
+Primal Fear (feat. Tarja) - I Will Be Gone (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Be Gone (feat. Tarja Turunen) (4:27)
+02. Vote of No Confidence (6:05)
+03. Rising Fear (1:39)
+04. Leave Me Alone (4:04)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43E026A7B57B00D5827C2854541378221E18087
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461171   (1021963) от 09.04.2021
+
+Siamese Youth - Echoes of Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Now (3:38)
+02. So Far from Home (3:33)
+03. Young Nights (3:50)
+04. Making Me High (3:38)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E471B7A54215B3EDD2BBA1B5670BB2083EADCB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461204   (1021962) от 09.04.2021
+
+VA - Night Tropical Collection: Chillout Music (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отрешитесь от суеты и растворитесь в мелодиях прекрасной музыки сборника "Night Tropical Collection: Chillout Music". Музыка проникающая глубоко в душу, порождающая невесомые, высокие чувства, дозволяя не только наслаждаться звуком музыкальных инструментов, но и познать себя, излечить сердце, забыть о суете и погрузиться в непередаваемый мир, где Ваша душа (   Читать дальше...   )001. Uppermost - Shatter
+002. Tangent - Unrealistic Unrestrained
+003. Argus - Calm Sea
+004. Lauge - Icebound(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8726F13F0FB459F11531018C2EC24EA6BC856AD1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461360   (1021961) от 09.04.2021
+
+U.D.O. - Live in Bulgaria 2020 (2021) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021961.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Tongue Reaper (4:38)
+02. Make the Move (5:38)
+03. Midnight Mover (3:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2262E7DB21ABA0A0AC60E1F9C2C8E46075C85716
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461445   (1021960) от 09.04.2021
+
+Гарольд Ллойд. Выглядите симпатичней, пожалуйста / Look Pleasant, Please (1918) WEB-DLRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотографа интересует не столько работа, сколько хорошенькие клиентки. Да вот только придется отвечать за свои фривольности перед ревнивым мужем. Как же избежать проблем? Очень просто. Надо подставить вместо себя какого-нибудь случайного простака.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Альфред Дж. ГулдингАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Уильям Блэйсделл, James Blyler, Jane Blyler, Florence Brewster, Сэмми Брукс, Гарри Барнс, Lige ConleyПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CECC03A1F39EC3DA06DE959E7F75473CE1ECFB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461440   (1021959) от 09.04.2021
+
+Рой Викерс, Эбан Англез и др. | Классика зарубежного детективного рассказа (Выпуск 6 )(2021) [MP3, Александр Клюквин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почувствуйте себя самым настоящим детективом и вместе с признанными мастерами криминалистики расследуйте несколько леденящих кровь преступлений, рассказы о которых ждут вас в этой аудиокниге. Кто знает, может быть в вас дремлет до сих пор нераскрытый дедуктивный талант, и поиск преступников - это ваше настоящее призвание.Жанр: ДетективПродолжительность: 04:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F2E579009E5C92883921F13E7589F02E188682
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461251   (1021958) от 09.04.2021
+
+Johan Kihlberg's Impera - Spirit Of Alchemy (2021) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Will Last
+02. Read It And Weep
+03. All About You
+04. When Souls Collide(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5AAF1CF4C184EEF89AB6815209838EA9F5121F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461457   (1021957) от 09.04.2021
+
+KAUAN - Ice Fleet (2021) [FLAC|Lossless|Web-DL|tracks] <Ambient, Post Rock, Folk Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enne (4:24)
+02. Taistelu (5:10)
+03. Maanpako (5:47)
+04. Kutsu (5:13)(   Читать дальше...   )Производство: Artoffact Records - 628070638697Жанр: Ambient, Post Rock, Folk Doom MetalПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DE97F9AA81D61BDEAA194CB8939E87A48B648A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461359   (1021956) от 09.04.2021
+
+Hott City - Ain't Love Grand (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feelin' Love (6:45)
+02. If All We're Gonna Do Is Dance (8:34)
+03. Ain't Love Grand (5:05)
+04. I Took His Money (7:03)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4315B5689CB07EB80A2AD0226B36F9B32F82005F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461456   (1021955) от 09.04.2021
+
+Наталья Литтера | Встретимся на Арбате (2021) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арбат… Одна из самых старых и знаменитых улиц Москвы. Здесь пересекаются пути совершенно разных людей. Продавец в букинистическом магазине и экскурсовод, торговец картинами и скромный бухгалтер, студент театрального училища и девушка, работающая в службе доставки, владелица цветочного магазина и главный редактор столичного глянца…
+У каждого из них свои разочарования, (   Читать дальше...   )Жанр: Современная русская проза, Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F573C7F06F016E8757935F729590681E2E3541
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746701   (1021954) от 09.04.2021
+
+Б. Евгеньев | Катин «Ликбез» (1929) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Катю разбудил шум начинавшегося дня.
+За окном, хлопая крыльями, кричал петух, и громко чирикали воробьи в кустах. Где-то близко мычал теленок. В соседней комнате пили чай и говорили шопотом...Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81E899DF9CD866BA22698E7C53FFC84A76A1C9F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461313   (1021953) от 09.04.2021
+
+Mirko Hirsch - Love Is Blind: Songs from the Motion Picture Pretty Boy (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco, AOR>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Blind (Long Version) (3:57)
+02. Return to Neon (Alternate Ending) (4:37)
+03. King Without a Crown (6:12)
+04. When Love Said No (4:23)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, AORПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D759C20B024CAF44225E1F13C4F714FDE1B65737
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461492   (1021952) от 09.04.2021
+
+Microsoft Edge 89.0.774.75 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F44511866C8ED805AFA527F25D27CC2CE424778
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461057   (1021951) от 09.04.2021
+
+Faithless - All Blessed (2020) [FLAC|Lossless|image + .cue] <Dance, House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poetry (3:39)
+02. Gains (3:27)
+03. I Need Someone (4:54)
+04. Remember (7:05)(   Читать дальше...   )Жанр: Dance, House, TranceПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9062F5A36AE2CA960ED3BAA132C58728005F6388
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461175   (1021950) от 09.04.2021
+
+W O L F C L U B (Wolfclub) - Just Drive - Part 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Drive (feat. Summer Haze) (3:32)
+02. A Sea of Stars (feat. Dora Pereli) (3:19)
+03. Fever Dream (feat. Dora Pereli) (3:57)
+04. Shoulder Blades (4:32)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B825EEBD8445F877FE7103D07AAF5AABE8B22A2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461341   (1021949) от 09.04.2021
+
+VA - Night Rider 2 (2021) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_1021949.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Murtagh - 10AM (5:08)
+002. Dirty South - Space Between Us (5:03)
+003. Pryda - Warrior (8:23)
+004. Giuseppe Ottaviani - Time Shift (4:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCA67A76A4C1E8E2C114CA16A4B24B597277EC5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

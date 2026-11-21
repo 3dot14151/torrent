@@ -1,0 +1,744 @@
+###  Публикация: 462490   (95429) от 04.03.2012
+
+Журнал | Авиаколлекция №12 [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+"Авиаколлекция" - Приложение к журналу "Моделист-конструктор". Специализированный журнал для любителей истории авиации и авиамоделистов. Данный выпуск познакомит вас с окраской и обозначениями самолётов ВВС Китая в 1911-1949.2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1FA1DD79626C603968DF30D657387FC09ABB84
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461853   (95428) от 04.03.2012
+
+VA - Зарубежные Новинки Сезона (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+001. Bruno Mars - Marry You (Dan Clare Radio Edit Remix)
+ 002. Christopher S feat. Max Urban - Star (Mike Candys remix)
+ 003. Marc Anthony feat. Pitbull - Rain over me
+ 004. Mr. Dyf - All Day Lover feat. Katherine Ellis (David Jones Remix)
+ 005. Medina - The One (Svenstrup And Vendelboe Remix)
+ 006. Nicki Minaj feat. Flo-Rida & David Guetta - Where dem girls at
+ 007. Darius And Finlay - Till Morning (Dan Winter remix)
+ 008. Mode Seven - No Place To Hide
+ 009. Bryce feat. J-Malik - Nothing can hold us back
+ 010. Brisby & Jingles - Fantasy Girl (Hands-Up edit mix)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C9ADA15B9DE90E8F3014665076F6E2F6791B20
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459755   (95427) от 04.03.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (29.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B92DEF2F393F231A97706AAB90D2F3F71388B2A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462409   (95426) от 04.03.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack  (05.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7212BA55E704EA79AEDA01801573D698639AD77
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462203   (95425) от 04.03.2012
+
+Журнал | Автоцентр №10 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+"Автоцентр" - еженедельный журнал полностью посвящен миру автомобилей. Основные рубрики: Автосалон, Автополигон, Концепции, Авторынок, Автобизнес, События и выставки, Практические технические и юридические советы, Спорт и другое.март 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0185F596E57C39EE81902D473F28413FF7EA8949
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461497   (95424) от 04.03.2012
+
+[Wallpapers] Girls Wallpapers (02.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74FEA98C0A1ACB3F919BCE721195566C45F79E3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462408   (95423) от 04.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (05.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B53E05AC5410393F973B4701DF09DF83D0A0471
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462197   (95422) от 04.03.2012
+
+Sumatra PDF 2.0.5717 (x86/x64) + Portable [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -файлов. Программа быстро работает, имеет очень простой дизайн, не загружает систему, может запускаться с внешних USB-карт. Минималистский дизайн программы с лихвой искупается ее очень шустрой работой, что выгодно отличает Sumatra PDF от того же Adobe Reader. В этой версии улучшена обработка документов, добавлен диалог настроек, улучшена обработка юникода, добавлена возможность не вести историю просмотренных файлов, улучшена поддержка SyncTeX, введена новая иконка для PDF-файлов и исправлены ошибки. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462303   (95421) от 04.03.2012
+
+Развод по-русски. Выпуск №58. Звездная крыша  (04.03.2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+У нас в России — все по-особенному. У нас даже обманывают иначе. Впаривают, втюхивают, надувают, обвешивают-обсчитывают и кидают на каждом шагу. Это — Россия, и это — развод. Развод по-русски. А его жертвы, которых в сухих сводках называют обманутыми потребителями, клиентами, потерпевшими, — это все мы, обычные люди и телезрители.
+«Развод по-русски» — это то, с чем мы сталкиваемся каждый день в магазине, в больнице, в приемной чиновника… Что мы едим, где отдыхаем, как лечимся, кому доверяем наших детей — изобретены (   Читать дальше...   )Телекомпания: Жанр: ТелепередачаПродолжительность: ~ 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6891B35C25051D62DE4F5BDD38FADB2134238D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459555   (95420) от 04.03.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (28.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7D0924E884B599A1733D0B1A23B0679194431D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461484   (95419) от 04.03.2012
+
+[Wallpapers] World Desktop Wallpapers Pack (02.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] World Desktop Wallpapers Pack (02.03.12) 
+Название:  World Desktop Wallpapers Pack (02.03.12) 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 2592х1944
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F145A2B5DC6ED8996A1E1D7C4D2CEF1239F1227D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459563   (95418) от 04.03.2012
+
+[Wallpapers] Girls Wallpapers (28.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CA3831CDA143AF49125DD5180C353DA0D7A3E1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459562   (95417) от 04.03.2012
+
+[Wallpapers] Girls Wallpapers Mix (28.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2211853A5FA4C29CE5896584478DC827FC56BB2C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462344   (95416) от 04.03.2012
+
+Schallusion - Morphologic Tales (2012) [MP3|320 кб/с]<Goa Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_95416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaman 17:10
+ 02. The Aborigine 11:05
+ 03. Transcendance 07:54
+ 04. Harmonic Tales 10:49
+ 05. Crossover 08:59
+ 06. Collaborator 11:03
+ 07. Future Stomp 08:592012Жанр: Goa TranceПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB20C2817CC8F55BC050A0B30441C1DEDBC3D1CB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462221   (95415) от 04.03.2012
+
+Журнал | Афиша Мир №1 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Информационно-познавательный журнал, отражает стиль жизни активных и состоятельных людей, которые свободно путешествуют и не бояться открывать для себя уголки мира, не обозначенные в путеводителях.март 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A670208497CC39B52FC14C3BDF92AA31B36FDD2A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462712   (95414) от 04.03.2012
+
+Авто плюс - Наши тесты / Mercedes Viano (2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем.
+Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля.
+Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: АвтопередачаПродолжительность: 00:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6B20422530DE190D11C807871E29FD6E6B52D8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462051   (95413) от 04.03.2012
+
+Voyager - Future Retro (1997) [MP3|192 кб/с]<Intelligent, Downtempo, Jungle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Desire (Original Mix) /6:49/
+02. Hypersleep /8:14/
+03. Animal Magic /5:34/
+04. Collect Call /5:59/
+05. Martian Chronics /6:33/
+06. Jazzed Out /5:54/
+07. Definition Of Love /7:06/
+08. Desire (Wishful Thinking Mix) /5:32/
+09. Waiting For Me /7:03/
+10. Long Distance /6:52/(   Читать дальше...   )1997Жанр: Intelligent, Downtempo, JungleПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D126B94A5B74EE552E0EC814E720B7EA79566F53
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462385   (95412) от 04.03.2012
+
+VNP - Trance Traveling 23 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Bayer & Matt Lange feat. Kerry Leva - In and out of phase (Original Mix)
+02. Chris Reece - Right Back (EDXs Indian Summer Remix)
+03. David Broader - The Best Is Yet To Come (Solid Stone Remix)
+04. Kwan Hendry - Don't Give Up (Original Dub Mix)
+05. Gareth Emery & Christina Novelli - Concrete Angel (Original Mix)
+06. Allure - I Am (Sied van Riel Remix)
+07. Kyau and Albert - This Love (Original Mix)
+08. Progressiver - Blue Variations
+09. Vegar - Ipanema
+10. Serenade - Serenade (Etasonic Remix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41B25E0289BB15CB1DF5EA459600135AFAB825C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461503   (95411) от 04.03.2012
+
+[Wallpapers] PC Wallpapers OS (02.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEE61945E2CD2325649E9D74EB512B7A0FCF720
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459346   (95410) от 04.03.2012
+
+Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_95410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How do you like my earrings (03:14)
+02. Changing trains (04:11)
+03. Dear Jack & Stacey (03:24)
+04. Tiger in your heart (04:59)
+05. Coco (03:41)
+06. Too many knives (03:14)
+07. Something new (05:42)
+08. Someone with a slow heartbeat (05:07)
+09. Stuck in the mud (04:12)
+10. Institutions of the World (05:31)(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0F1E3019904A80CCA2908A4A6847D1730528D9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459536   (95409) от 04.03.2012
+
+DJ Darrel - Happy Filthy Holidays (2011) [MP3|192 кб/с]<Drum&Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_95409.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Throttler - Dark steel
+ 2. DJ Hidden - You're not real
+ 3. DJ Hidden - Dying star
+ 4. Seid - The Machine
+ 5. Switch Technique - The edge of chaos
+ 6. Eye-D & DJ Hidden - Rain
+ 7. Zeal & Litta - Screams of Another (Current Value remix)
+ 8. Nanotek - Venus
+ 9. Current Value - Warship
+ 10. Limewax - Aria(   Читать дальше...   )2011Жанр: Drum&BassПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8595AAA523113BD4B3B79F05DD81FECB12CCC070
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459751   (95408) от 04.03.2012
+
+[Wallpapers] Girls Wallpapers Mix (29.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF196EA0FDF639F195528A448ADB96644B686CE9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462050   (95407) от 04.03.2012
+
+Andy Bey - Ain't Necessarily So (2007) [FLAC|Lossless]<Vocal Jazz>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Ain't Necessarily So (Gershwin-Gershwin)
+03. Hey, Love (Rodgers-Charnin)
+04. All the Things You Are (Kern-Hammerstein II)
+05. I Let a Song Go Out of My Heart (Ellington-Mills-Nemo-Redmond)
+06. If I Should Lose You (Robin-Rainger)
+07. On Second Thought (Coleman-Leigh)
+08. Brother, Can You Spare a Dime? (Harburg-Gorney)
+09. Someone to Watch over Me (Gershwin-Gershwin)2007Жанр: Vocal JazzПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460306   (95406) от 04.03.2012
+
+[Wallpapers] World Games Wallpapers (01.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337751632FFEBD3E52408BB7A1FD411624003486
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462709   (95405) от 04.03.2012
+
+Авто плюс - Наши тесты / Mercedes Benz E63 AMG vs Jaguar XF R (2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем.
+Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля.
+Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: АвтопередачаПродолжительность: 00:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC29C7D8546960346B7CA128D17693DA83C3E69
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461501   (95404) от 04.03.2012
+
+[Wallpapers] Best Wallpapers (02.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A855E095208AC57630373F51402BB4A95C8631D8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,0 +1,806 @@
+###  Публикация: 466877   (96417) от 12.03.2012
+
+[Wallpapers] Best HD Wallpapers Pack (13.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E74BBB47AFAB5330C224E0ED0FD69AA6A1CB18F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466820   (96416) от 12.03.2012
+
+VA - NRJ Extravadance 2012 (2CD) (2012) [MP3|320 kbps]<Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+CD-1:
+
+01.Michel Telo – Ai Se Eu Te Pego
+02.Rihanna-You Da One
+03.Titanium - Guetta David
+04.International love - Pitbull
+05.Les mots - Keen' V
+06.Rock the boat - Bob Sinclar
+07.Levels - Avicii2012Жанр: DanceПродолжительность: 02:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02130DCACBE675AB0338FE99F402C43B6096B16C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466643   (96415) от 12.03.2012
+
+Газета | Ждём гостей №3 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_96415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие кулинарные рецепты к торжествам и праздникам. Газета поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B05217B0709E862823FB0F25DCCC81EB75902DE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466873   (96414) от 12.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (13.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C9B599C659EEC77F78657B389993E9F67A55EE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467036   (96413) от 12.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 2 
+Название:  Desktop Wallpapers Pack 2 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33751B8991FF390331304A2DDD20F896E4320A9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466625   (96412) от 12.03.2012
+
+Exhumed - All Guts, No Glory (2011) [FLAC|Lossless]<Death Metal, Grindcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_96412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Guts, No Glory (instrumental) 01:48
+02. As Hammer to Anvil 03:38
+03. Your Funeral, My Feast 03:27
+04. Through Cadaver Eyes 04:08
+05. Death Knell 03:48
+06. Distorted and Twisted to Form 02:40
+07. I Rot Within 03:44
+08. Dis-assembly Line 03:00
+09. Necrotized 03:39
+10. Funereality 03:01(   Читать дальше...   )2011Жанр: Death Metal, GrindcoreПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465509   (96411) от 12.03.2012
+
+Ayman - Doorways (1996) [MP3|320 кб/с]<New Age, Contemporary Instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+(4:03) 01. Namya's Calling
+(4:50) 02. Flying Carpets
+(4:33) 03. Dancing Round the Rowan Tree
+(5:18) 04. The Lake of Southcroft
+(4:26) 05. The Show
+(3:36) 06. Doorways
+(4:51) 07. The Sultan's Wing
+(5:14) 08. Orion's Bells
+(4:19) 09. Sweet Spirulina
+(7:29) 10. The Yummy Connection(   Читать дальше...   )1996Жанр: New Age, Contemporary InstrumentalПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B272A36030DE7719C255ED8BC7C325D732BC1C23
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466494   (96410) от 12.03.2012
+
+Восстановление Японии / Rebuilding Japan. Пилотный выпуск (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_96410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы увидите, как инженеры и ученые неустанно работают для того, чтобы улучшить жизнь людей, пострадавших от землетрясения.Жанр: ДокументальныйПродюсер: Shiro Toma, Yuji TodaПеревод: Профессиональный (одноголосый)Продолжительность: ~ 00:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDAD143511E483184D3A07EAAEDD5B4B129B148
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466953   (96409) от 12.03.2012
+
+Al Hirt - Swingin' Dixie! (2010) [APE|Lossless]<Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_96409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan
+02. Tiger Rag
+03. Fidgety Feet
+04. Tailgate Ramble
+05. St. Louis Blues
+06. Saints
+07. Floatin' Down To Cottontown
+08. Mississippi Mud
+09. And The Angels Sing
+10. New Orleans(   Читать дальше...   )2010Жанр: Dixieland, New Orleans JazzПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466449   (96408) от 12.03.2012
+
+VA - Хиты радио чартов (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Анастасия Приходько - Смогла
+02. Reflex - Первый Раз (Версия 2012)
+03. MaXimA - Алло (Fidel Wicked mix)
+04. Nando Fortunato feat. Alexandra Mamaсita - My angel
+05. Дмитрий Колдун - Ничего
+06. Винтаж - Стерео
+07. Виктория Дайнеко и Корни - Многоточие
+08. Елка - Прованс (DJ HiTretz mix)
+09. Тамерлан и Алена Омаргалиева - Не смотри назад
+10. Эдгар - Повстречал Тебя2012Жанр: PopПродолжительность: 06:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DF365C31392702A5FD87FB108FDAC92FDE95D7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465504   (96407) от 12.03.2012
+
+VA - House Vip (09.03.12)[MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_96407.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gerra G. - Humanize (Original Mix) (7:33)
+ 2. Armin Van Buuren feat Jan Vayne - Serenity (Dj Amor Remix)
+ 3. Amy B & W.arehouse - You And Me Tonight (Danny Merx Instrumental) (6:52)
+ 4. A Virtual Friend - Sorry (Neon Stereo Club Remix) (5:55)
+ 5. Kitsch 2.0 - Tonight Is the Night (Sunlight Remix) (5:42)
+ 6. Mylo - Drop The Pressure (Dada Life Guerilla Fart) (5:40)
+ 7. Harris & Ford – Ich Habe Lust (Club Mix) (5:35)
+ 8. BAZEDA, Custom Drops - Love To Party (Original Mix) (5:16)
+ 9. Hot Pink Delorean - Move It (Original Mix) (5:06)
+10. Gotye feat. Kimbra - Somebody I Used To Know (NE!TAN Bootleg) (4:57)2012Жанр: Electro HouseПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56AA976E0F3AF34C06CCA9897FE25801DBB6C632
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466922   (96406) от 12.03.2012
+
+VA - Trance Symphony Volume 7 (13.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_96406.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hydrogenio - 777 (Ben Gold Remix)
+002. Christian Drost & DK Project - Always Connected (Original Mix)
+003. Faruk Sabanci - As Faces Fade (Alexander Popov Remix)
+004. Fadios & Raneem - Chromium (Max Graham Remix)
+005. Indecent Noise - Civitanova (Nick Callaghan & Will Atkinsons Dark Sessions Remix)
+006. Justin Dobslaw - Cold Snap (Andrew Rayel Remix)
+007. EDX - D.A.N.C.E. (Original Mix)
+008. Juventa - Dionysia (Skytech Remix)
+009. Ikerya Project - End Of Begining (Original Mix)
+010. Electric Traveller - Enlight (Original Mix)(   Читать дальше...   )13.03.2012Жанр: Uplifting Trance, TranceПродолжительность: 06:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A642287437652455C3C37DF5ACAD9DE792DB218B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466763   (96405) от 12.03.2012
+
+Google Chrome Portable 18.0.1025.54 Beta (online.paf) by PortableApps [Русский/Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome - веб-браузер с открытым исходным кодом, обеспечивающий более удобный, быстрый и безопасный доступ в Интернет, который имеет облегчающий работу упрощенный дизайн. В Chrome использованы наработки Apple WebKit и Mozilla Firefox. Из особенностей Chrome разработчики особо выделяют изолированные вкладки, предотвращающие сбой работы программы и обеспечивающие более надёжную защиту от опасных сайтов. Кроме этого, в Chrome реализован новый движок JavaScript V8, который позволит браузеру работать с веб-приложениями нового поколения.Язык интерфейса: Русский/Multi
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467034   (96404) от 12.03.2012
+
+КВН. 50 виртуальных игр. Игра 41 (12.03.2012) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Программа "КВН" является самой долгоживущей передачей отечественного телеэкрана. Впервые выйдя в эфир 8 ноября 1961 года, она стала легендой еще черно-белого телевидения. В 1986 году "КВН" вновь появился на экране после 14-летнего перерыва и практически сразу вернул себе былую популярность.
+Сегодня телевизионная программа "КВН" - это вершина огромного айсберга, который представляет из себя Международный Союз КВН, включающий в себя более двух десятков официальных подготовительных Лиг и сотни региональных чемпионатов. Именно в этой передаче участвуют лучшие команды Клуба Веселых и Находчивых.
+Более 40 лет ведет программу Александр Васильевич Масляков - Президент международного союза КВН, человек, мнением которого дорожит каждый КВНщик.
+
+50 виртуальных игр:
+Эти игры действительно существуют только в виртуальном мире. Команды, которые встречаются в каждой из юбилейных передач, никогда не играли друг с другом в реальной кавээновской жизни, потому что их разделяет ВРЕМЯ...
+
+Каждая игра (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: ~ 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2EFB9987508753031EDFAFE64FF5E4C7B1BB29
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466621   (96403) от 12.03.2012
+
+Edge Of Sanity - Kur-Nu-Gi-A (2012) [MP3|~259 кб/с (V0)]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_96403.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Decepted By The Cross 03:47
+2. Maze Of Existence 04:47
+3. Beyond The Unknown 03:48
+4. The Day Of Maturity 03:41
+5. Immortal Souls 03:50
+6. Serenade For The Dead 00:55
+Bonus Tracks:
+7. Decepted By The Cross (Live) 03:40
+8. Immortal Souls (Live) 04:12
+9. Maze Of Existence (Roughmix) 04:082012Жанр: Death MetalПродолжительность: 00:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519EAA3BCA2185D83952882E939DC8C9D9604A0D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466814   (96402) от 12.03.2012
+
+VA - Best Club Party (2012) [MP3|256 kbps]<Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. RJ feat. Pitbull - U Know It Aint Love (DJ Rebel Radio Edit)
+02. Tom Boxer Vs Tematik & Kerim Muravey & Алие Дживан - Я Улетаю
+03. Maroon 5 Feat. Christina Aguilera - Moves Like Jagger (Cutmore Club Mix)
+04. NikitA - Машина (Dj Fisun remix)
+05. DJ Solovey feat. Leila - Всё впереди (Sergey Clash remix)
+06. Colina - Du and Ich (Rain Edit)
+07. DJ Цветкоff & Оля Милакса - Белая ночь (Dj Amor remix)
+08. Invisible DJs & InVersia - Иди на! (Джонни)
+09. Thomas Anders - Love You A Lifetime
+10. MC Zali - Боря рокер(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B068926CFDDF597FC0D1543F592044D33F4DEA9C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466312   (96401) от 12.03.2012
+
+Аферисты. Выпуск 22-25 (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_96401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Граждане! Будьте осторожны - в городе орудует банда опасных преступников. Сначала они обманут Вас и заберут последнее, а потом еще и покажут по телевизору, как это было!
+Вы и моргнуть глазом не успеете, как эта четверка доберется до Вашего кошелька, присвоит себе только что купленный Вами телефон, а кроме этого сможет посидеть в ресторане на круглую сумму за Ваш счет!
+Приветливая и обаятельная Елена-Кристина Лебедь, двое харизматичных мужчин - Дмитрий Суммар и Денис Розгон, а также главарь банды Анастасия Касилова уже готовы втянуть Вас в аферу только для того, чтобы потом Вас больше никогда не смогли обмануть! Вы узнаете психологические приемы настоящих аферистов и увидите на практике, как действуют самые невероятные мошеннические схемы. Вам станет известно, как можно получить новенькую видеокамеру за... чашку кофе. Или как можно украсть из ювелирного бутика платиновое колье просто на глазах у продавцов.Жанр: ТелепередачаПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6682943ED1033F9E06513C54D89E64C0372628C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466610   (96400) от 12.03.2012
+
+Media Player Classic HomeCinema 1.6.1.4139 + Portable [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic HomeCinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: он умеет воспроизводить DVD диски, умеет аппаратно декодировать популярный формат H.264 на видеокартах последнего поколения, умеет корректно работать со вторым монитором (телевизором), поддерживает различные виду субтитров, умеет работать с форматами QuickTime и RealVideo и т.д. Плеер имеет небольшой размер и полностью понятный и не перегруженный излишними функциями интерфейс, переведенный на 14 языков. Имеет полную совместимость с Windows XP и Windows Vista, причем не только 32- битной версией, но и 64-битной.Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466982   (96399) от 12.03.2012
+
+Дорожные войны  (2012.03.11) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал «Дорожные войны» рассказывает о работе сотрудников ГИБДД. Программа основана на материале, снятом видеорегистраторами патрульных машин, уличными камерами наблюдения и случайными очевидцами. Также присутствуют и собственные репортажи от съемочной группы ДТВ, выезжающей на дежурство вместе с экипажами ГИБДД.
+В целом, «Дорожные войны» посвящены двум извечным проблемам: дуракам и дорогам. Теперь, когда появились видеокамеры, можно оценить масштабы этих проблем. Сюжеты получаются разные: от смешных до трагических, от поучительных до просто вызывающих недоумение. Конечно, больше всего проблем на дорогах создают подвыпившие водители, но бывают и более интересные случаи. Например, съемочной группе выдалось заснять как наряд ГИБДД несколько кварталов гнался за… трактором! Водитель долго пытался скрыться, создавая угрозу на дороге — выезжал на встречную полосу и на тротуары. Когда трактор, наконец, удалось остановить, выяснилось, что он числиться в угоне, но водитель так и не смог объяснить, зачем (   Читать дальше...   )Жанр: Документальный сериал, криминалПродолжительность: 2 х ~ 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3786CD6E1FD1287FEBCC32B2FD13124E1DA5B48A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466784   (96398) от 12.03.2012
+
+Apollo - Cap Inedit (1999) [FLAC|Lossless]<Contemporary Jazz>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_96398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En corde a linge ibere
+02. Le puisatier de Zubenegenubi
+03. Didji
+04. Le bransle des vieux
+05. Kindertotenlieder
+06. Bourree domestique
+07. Dernier chant des hommes-poussiere
+08. Kouguel
+09. Jacaranda
+10. Mardi trois1999Жанр: Contemporary JazzПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466607   (96397) от 12.03.2012
+
+VA - House Vip (11.03.2012) [MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_96397.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 9Five - Dental (Original Mix) (7:02)
+ 2. Chris Brown - Turn Up The Music (Alessio Silvestro Remix) (5:58)
+ 3. Distorted Frequency, Teslatronik - Rocket Knight Adventures (NewtonE Remix) (4:35)
+ 4. G-Lontra - The Time Is Now feat. Rachel Kramer (Alex Guerrero Remix) (6:43)
+ 5. Irrenhouse - Party On & On (Original Mix) (4:51)
+ 6. Jeany Kiss & Sunray feat. Gemma B - My Heart Beats Like A Drum (Nick Austin Remix) (6:37)
+ 7. Savage - Dont Cry Tonight 2012 ( Alexandra D Extended Mix) (5:02)
+ 8. Tejl - Boing (HAS Remix) (6:45)
+ 9. Under Construction - Yourself Tonight (Scarytoys Remix) (6:00)
+ 10. Uppermost - Life Is A Fight (Original Mix) (6:30)11.03.2012Жанр: Electro HouseПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEC392BB3A64052ACE64393F9C32D4E6CCBD9A6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466878   (96396) от 12.03.2012
+
+[Wallpapers] Nature Wallpapers (13.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E81BBF49E8936A087CBEC751FBA162B3FE052C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466672   (96395) от 12.03.2012
+
+VA - Попсовый всесезонный хит (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/save_picture_96395.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Света - Пятый Элемент (Andrey S.P.L.A.S.H. Radio Remix)
+ 002. Алина Кабаева - Верьте В Себя
+ 003. Vilana - Море
+ 004. MMDance - Мой Босс
+ 005. Neoclubber - Только Я и ты
+ 006. Таша - Ищи Меня В Своих Снах
+ 007. Виктория Дайнеко & Корни - Многоточие
+ 008. Ирина Нельсон - Тёплое Солнце (Dark City Remix)
+ 009. Марина Журавлева - Небо плакало
+ 010. Сhris Parker Feat. Катя Старикова - Не Уходи (Radio Edit)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7FF6CFAAB51A37FD0A0D338BF14D2D17B621B9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466663   (96394) от 12.03.2012
+
+Far Manager 3.0 build 2537 (x86/x64) [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+FAR Manager – мощнейший известный всем консольный файловый менеджер с поддержкой UNICODE. FAR Manager понимает длинные имена, корректно работает с русскими буквами (есть и перекодировщик WIN-KOI-ISO). Встроенный FTP-клиент, настройка панелей по своему вкусу, раскраска файлов, просмотр сети, развитая система управления горячими клавишами и очень большой набор плагинов, расширющих возможности программы - вот лишь некоторые из многочисленных возможностей этого файлового менеджера.Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466980   (96393) от 12.03.2012
+
+Улетное видео по-русски. Новый сезон  (2012.03.10) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2583B5D710A81567B3610EE116132511D7635B43
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466535   (96392) от 12.03.2012
+
+VA - Bomba Hits! 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+001 IKA - Москва Слезам Не Верит
+002 Dirty Vegas - Electric Love (Original Mix)
+003 Макс Барских - Fuck Off
+004 Belle Amie - Girls Up (Soulshaker Club)
+005 Valentina - Между Нами
+006 Dino And Rocker - Breakfast At Tiffanys Move Town (Remix Edit)
+007 Вирус - За Тобой
+008 Rudenko Feat. Popov & Mcd - Stranger (Remix)
+009 MMDance - Ломай Себя Полностью
+010 Gravitonas - Call Your Name(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D7FF9A2BD30A3C9E60554E8B32781BDFC82632
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

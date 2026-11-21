@@ -1,0 +1,731 @@
+https://t.me/izofen
+###  Публикация: 1198839   (801875) от 15.01.2018
+
+Биатлон. Кубок Мира 2017-2018. 4-й Этап. Рупольдинг (Германия). Женщины. Индивидуальная гонка (11.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801875.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 января 2018 года, четверг. 16:20 МСК
+5-й этап Кубка Мира по биатлону 2017-2018. Рупольдинг (Германия)
+Женщины. Индивидуальная гонка 15 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D831C63CA978EA3715DA7DD7EF9C38CC484E4A77
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199377   (801874) от 15.01.2018
+
+Биатлон. Кубок Мира 2017-2018. 5-й Этап. Рупольдинг (Германия). Мужчины. Масс-старт (14.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801874.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 января 2018 года, воскресенье. 14:15 МСК
+5-й этап Кубка Мира по биатлону 2017-2018. Рупольдинг (Германия)
+Мужчины. Масс-старт 15 кмТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCE6111DADA559D5A0D7F8CF8102D60C14D0FA1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199084   (801853) от 15.01.2018
+
+Горные лыжи. Кубок мира 2017–2018. Аделбоден (Швейцария). Женщины. Слалом 2-я попытка (07.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801853.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 января 2018 года, воскресенье. 14:15 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Краньска Гора (Словения).
+Женщины. Слалом 2-я попыткаТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEC5FC24C76CA934B9DFB980606BA6A6B69065A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199078   (801852) от 15.01.2018
+
+Горные лыжи. Кубок мира 2017–2018. Аделбоден (Швейцария). Женщины. Слалом 1-я попытка (07.01.2018) HDTV [H.264/720p] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801852.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 января 2018 года, воскресенье.
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Краньска Гора (Словения).
+Женщины. Слалом 1-я попыткаТелекомпания: Италия, RSI La 2 HDЖанр: СпортПеревод: Не требуется, нет голосовых комментариевЯзык озвучки: ИнтершумСубтитры: отсутствуютПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F7D2797FEFD645170DE60C870DAD7F07CA9C3E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199380   (801851) от 15.01.2018
+
+Биатлон. Кубок Мира 2017-2018. 5-й Этап. Рупольдинг (Германия). Женщины. Масс-старт (14.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801851.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 января 2018 года, воскресенье. 16:40 МСК
+5-й этап Кубка Мира по биатлону 2017-2018. Рупольдинг (Германия)
+Женщины. Масс-старт 12,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72AE394B7F63E10CD634E44539267FD44DDC0AD3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199395   (801850) от 15.01.2018
+
+Биатлон с Дмитрием Губерниевым. Сезон 2017-2018. 7-й Выпуск (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эфир от: 14.01.2018
+Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66B0E215758363A0422CEE68DB8B1067EC9C670
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199285   (801849) от 15.01.2018
+
+Charles Fambrough - The Proper Angle (1991) CTI [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Quixote [06:33]
+02. The Dreamer [07:19]
+03. Uncle Pete [04:16]
+04. Sand Jewels [07:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5800D00545A6A4A782F5F24AC4442869D8A95F66
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199262   (801848) от 15.01.2018
+
+Газета | 1000 секретов [Украина] №25 (декабрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801848.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AA62F6F542B18E1F3BD1ED0D5C6520197844BC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199167   (801847) от 15.01.2018
+
+Famous by February - Confessions (2017) EP [FLAC|Lossless|tracks + .cue] <Indie Pop, Art Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Crystal Clear (04:17)
+02. Waves (04:44)
+03. Occupy (04:20)
+04. Pour Me Out (04:08)(   Читать дальше...   )Жанр: Indie Pop, Art RockПродолжительность: 00:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FD7216DCC2933F1DE622427608410D4D8D0815
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199233   (801846) от 15.01.2018
+
+Ereb Altor - By Honour (2008) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal, Epic Metal, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perennial (4:40)
+02. Awakening (8:07)
+03. By Honour (8:25)
+04. Winter Wonderland (7:21)(   Читать дальше...   )Жанр: Black Metal, Doom Metal, Epic Metal, Viking MetalПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720D4E13A61C4B795EB6DC639612ECFFF9C843BA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199263   (801845) от 15.01.2018
+
+Газета | 1000 секретов [Украина] №26 (декабрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801845.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C82175BEEDEC591D01FD88C7CE3BAE0C479D5CF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199290   (801844) от 15.01.2018
+
+Bennie Moten's Kansas City Orchestra - 1929 - 1930 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Certain Motion [03:06]
+02. It Won't Be Long [02:50]
+03. When Life Seems So Blue [02:53]
+04. Loose Like A Goose [02:56](   Читать дальше...   )Жанр: Early Jazz, SwingПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AF2FD1B35ACA6173EBA6DBDE2BCCF54FA1403C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198945   (801843) от 15.01.2018
+
+Hed Kandi - World Series: Tokyo (2010) [FLAC|Lossless|tracks] <Progressive House, Vocal House, Funky House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardrive - Deep Inside (Harry Choo Choo Romeros Fun in the Sun Remix Edit) (3:31)
+02. Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (6:21)
+03. Simian Mobile Disco - Cruel Intentions (DJ Pierre Remix) (3:20)
+04. Ian Carey Feat. Michelle Shellers - Keep On Rising (Nicky Romero Remix) (4:20)(   Читать дальше...   )Жанр: Progressive House, Vocal House, Funky HouseПродолжительность: 02:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DE1E66ECF4576ED783424D57F7882A62F31729
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199265   (801842) от 15.01.2018
+
+Б. П. Пальванова | Победа Великой Октябрьской социалистической революции и раскрепощение женщин-туркменок (1957) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801842.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной работе автор сделал попытку дать некоторое обобщение опыта раскрепощения женщин-туркменок на базе вовлечения их в строительство социализма путем повышения политической, производственной и общественной активности самих трудящихся женщин в борьбе с косностью и консерватизмом во взглядах на женщину, за преодоление пережитков феодально-байского отношения к женщине, (   Читать дальше...   )Жанр: История, политология, экономика, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84265DDDA9383D0BF7D26077EA47A7AE0D4FDBF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198908   (801841) от 15.01.2018
+
+VA - Cosy Winter Lounge Vol.3 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Euphonic Traveller  -  NYC Christmas Lights 2017 (Acoustic Version With Band)  5:28
+02.  Van  -  I Remember (Original Mix)  9:44
+03.  Marc Hartman  -  The Awakening (Original Mix)  4:25
+04.  Matthew Daniel  -  Lose Your Smile (Original Mix)  2:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE217961DE2DC88F8C3D6A1CEDD1DE748DBCBA9C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199309   (801840) от 15.01.2018
+
+Forever Free - Metal is Back (2016) EP [MP3|320 Kbps] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal is Back (04:26)
+02. Two Worlds (03:42)
+03. Cursed Soul (04:31)
+04. Hellboy (03:35)Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC81009EFCB37E6C7727180F4A9FF04C78EFB851
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199364   (801839) от 15.01.2018
+
+VA - Ori Uplift - Uplifting Only 257 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. illitheas - Levity (Intro Mix)
+02. PRE-RELEASE PICK: Eric Senn - Kharon (EXCLUSIVE PREMIERE)
+03. Ross Rayer - Memories (EXCLUSIVE PREMIERE)
+04. Jericho Frequency feat. Emma Chatt - Do You See Me? (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B04D9D274AA5142DD347E94B5428FFAEF310C66
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199411   (801838) от 15.01.2018
+
+ДМЦ (Дороги Меняют Цвет) - Что снится собаке? (2018) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801838.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Что снится собаке?Жанр: RockПродолжительность: 00:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5678D38769868D944CA3F51A0832DBAB7488288A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199206   (801837) от 15.01.2018
+
+Обійми Дощу - Сон (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Остання мить (08:37)
+02. Крила (10:10)
+03. Разом (07:33)
+04. Темна ріка (11:09)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E59AB7EE22DEA63ACE8A843F063AF8CC33C4B2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199386   (801836) от 15.01.2018
+
+VA - Aly & Fila - Future Sound Of Egypt 530 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jorgio Kioris - Linda (Ziger Remix)
+02. Chris Llopis - Platonic Shower (Dmitry Molosh Remix)
+03. Chris Bekker - Klangstunde
+04. POok - Lola(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2204A58F0CD0B742137B2AD5BCA669B28DC502
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199213   (801835) от 15.01.2018
+
+VA - Future Sounds. EDM (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maureen Sky Jones & DJ Combo  -  I Had A Dream (Stephan F Remix)  4:44
+02.  Geo Da Silva & DJ Combo  -  To My Beat (Original Mix)  3:39
+03.  Turbotronic  -  Show Me The Money (Original Mix)  4:13
+04.  Mr. Pit & Sean Norvis feat. Justine Berg  -  Afraid To Feel (Original Mix)  5:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDACB54FC357EDFB94A76021935E40462056DE64
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198907   (801834) от 15.01.2018
+
+Hed Kandi - Beach House (2010) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801834.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01 South Street Player - (Who) Keeps changing your mind (Daniel Bovie & Roy Rox Remix)
+02 Choklate - The Tea (The Layabouts Main Vocal Mix)
+03 Christian Hoff & Lily McKenzie - Take You(   Читать дальше...   )Жанр: HouseПродолжительность: 03:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAE50D7BAD9C7BA860D849AFC8DD6FCE8035162
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199413   (801787) от 15.01.2018
+
+Tremonti - Dust (2016) [MP3|320 Kbps] <Alternative Metal, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Last Mistake (4:30)
+02. The Cage (3:35)
+03. Once Dead (3:06)
+04. Dust (5:22)(   Читать дальше...   )Жанр: Alternative Metal, Post-GrungeПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47AF7A364799AA0AADB19378922AED6CF4D2B1E3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199365   (801786) от 15.01.2018
+
+Журнал | Сваты на кухне №12 (38) (декабрь 2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801786.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Сваты на кухне" - журнал, в котором своими любимыми рецептами делятся читатели. В каждом номере более 200 кулинарных и околокухонных советов, «вкусные» премудрости, праздничные, экономные и быстрые рецепты. Читатели получат множество кулинарных советов, которые смогут тут же применить на практике; разнообразят свое домашнее меню с помощью рецептов-помощников, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BBF36686EB8AD1F9F68CA657EC4BC0868774D7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199259   (801785) от 15.01.2018
+
+В. Е. Полетаев, И. Л. Корнаковский | Социальный облик советской рабочей молодежи [по материалам социологических обследований] (1979) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801785.jpg" />
+</div>
+
+
+###  Подробнее
+
+На материалах социологических обследований в брошюре прослеживается социальное развитие советской рабочей молодежи, раскрываются важнейшие черты ее социального облика — производственная деятельность, трудовая и общественно-политическая активность.
+
+Особое внимание уделено заботе партии о молодой рабочей смене.Жанр: История, политология, экономика, культурология, социологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0416041860977702D1FB8B36DC54C665B4CBB50
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199367   (801784) от 15.01.2018
+
+Газета | Готовим вкусно! №12-1 (172) (декабрь 2017 - январь 2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_801784.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Готовим вкусно" - издание для тех, кто любит вкусно приготовить, вкусно поесть, вкусно угостить друзей. Красочное издание для радушных хозяек. В нем рассказывается, как принимать гостей и сервировать стол. В каждом номере - кулинарные рецепты изысканных и "модных", повседневных блюд, и блюд национальной кухни, здорового питания и экономной кулинарии: (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D14A33B8BF58EB81CB4E7C232AEA5B512E2C5C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

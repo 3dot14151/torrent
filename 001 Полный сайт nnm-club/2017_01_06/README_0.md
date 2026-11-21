@@ -1,0 +1,729 @@
+###  Публикация: 1090252   (947608) от 06.01.2017
+
+VA - Midnight Lounge Vol.24 The Piano (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Riccardo Ascani - Playa Arcobaleno 3:45
+02.  Riccardo Ascani - Fiesta En El Mar (No Theme) 3:19
+03.  Deep Space - To Save Love 7:19
+04.  Riccardo Ascani - Nostalgia 4:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC61BAAA36B64A8237B596BAFF3A389076F15B8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090456   (947606) от 06.01.2017
+
+Дмитрий Нагишкин | Айога (1962) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нанайская сказка для детей дошкольного и младшего школьного возраста Нагишкина Дмитрия Дмитриевича с иллюстрациями Челинцовой Валентины Николаевны.Жанр: Детская проза, СказкаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C63BD75F879FA6D3FC44FDEE9777D05DB13261
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090038   (947604) от 06.01.2017
+
+VA - Музыкальное потрясение зимы на Русском радио (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947604.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алсу - Я Пойду Чуть-Чуть Поплачу 3:37
+002. Сергей Вольный - Воспрещен Вход 3:52
+003. Элемент - Музыка 3:27
+004. Юлианна Караулова - Так Близко 3:42(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0244057D6082D2A1AF73883B447DEA668C386F0A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090178   (947602) от 06.01.2017
+
+VA - Essential Happy Hour Ibiza Lounge & Chillout Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sean Woodby - Acoustic Mood 4:01
+02.  Ashley Scott - Don't Give Up 7:03
+03.  Chris Wilson - Back Seat 3:40
+04.  Cary Summer - You Can Do It 4:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A874EA093CBA187BAE2E486A976DCDE69827530
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090337   (947600) от 06.01.2017
+
+VA - Re-Fresh The 90s: Club Classics (2017) [MP3|320 Kbps] <House, Euro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lovestation - Teardrops (Flava 12' Mix) 6:31
+02.  Strike - U Sure Do (Guest List 12' Mix) 7:23
+03.  Serious Danger - Deeper (Pt. 1) 6:37
+04.  Mr Roy - Something About U 7:37(   Читать дальше...   )Жанр: House, Euro HouseПродолжительность: 06:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27C2C0CA350B1586E49D5FD852A7ADE10EFEE07
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089780   (947598) от 06.01.2017
+
+VA - Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aurosonic & Sue McLaren - Captured By Gravity (Original Mix) 8:08
+02.  4 Strings - Wondering (Original Mix) 6:02
+03.  Hazem Beltagui & Sarah Russell - When Our Story Has To End (Original Mix) 6:55
+04.  Ana Criado - Vulnerable (Denis Kenzo Remix) 6:45(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB73A636F7A2A960EFE79299216B7063037624D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090224   (947596) от 06.01.2017
+
+Газета | Сезон у дачи №25 (227) (Декабрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF587E1B89529FB3842E6583C8CB81540CCE2D8F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088560   (947594) от 06.01.2017
+
+Габор Васари | Monpti (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Центральная фигура в романе, конечно, сам рассказчик – художник Жорж. Это именно его глазами читатель видит Париж и его улочки, обитателей третьеразрядной гостиницы «Ривьера», в которой он проживает, это в его воспроизведении оживают диалоги с Анн-Клер, его возлюбленной, и вообще чаще всего он непосредственно выходит «на связь» с читателем, повествуя о своих переживаниях (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 11:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C707FDECEF20B359E20D9830B5612FCAD4066A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971587   (947592) от 06.01.2017
+
+McCoy Tyner Trio - Infinity (1995) 2004, Impulse![FLAC|tracks+.cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Flying High [10:16]
+ 02.I Mean You (Monk) [07:19]
+ 03.Where Is Love [05:32]
+ 04.Changes [09:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB39F383A8B7D5A797D108748F733C9475BD332E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090465   (947590) от 06.01.2017
+
+GraphicConverter 10.3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947590.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter - графический редактор и конвертер
+GraphicConverter - полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов.
+
+Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06 января 2017Разработчик: Lemke Software GmbHПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAF03F5EE6F29C56B416ED775B4F98CF3225FD8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090370   (947588) от 06.01.2017
+
+Jordan Officer - I'm Free (2014) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  At Least I've Got the Blues  (03:58) 
+02|  A Night of Fun  (03:39) 
+03|  I'm Free  (05:16) 
+04|  When We Were Just Two  (05:02) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9183398C9E95FFD163B5844103FA027CF8C8B392
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089725   (947587) от 06.01.2017
+
+JohnnyM5 - The Best Song Collection (bootleg) (2009) [MP3|256 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The Heat (3:30)
+02. Don't Be Blue (3:46)
+03. Flames Of Love (Album Version) (3:55)
+04. Moscow Nights (Maxi Version) (6:40)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183FBE50F352C3EE84DA5A7560A9B6810D4F9A62
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090376   (947586) от 06.01.2017
+
+Markus Schulz - Global DJ Broadcast New Year's Rehab (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cubicolor - Next Planet
+02. Wanya Prize - Whisper of Silence
+03. Guy Mantzur & Sahar Z - Temporary Sanity (Cornucopia Remix)
+04. Khen - One Day of Independence(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86678E96C6269CB415935806DF353E118A055F1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088407   (947585) от 06.01.2017
+
+Нодар Думбадзе | Хазарула (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хазарула — старая, засыхающая яблоня, отдавшая бабушке и внуку свой последний богатый урожай яблок и переставшая плодоносить. Бабушка требует срубить бесплодное дерево, но мальчику жаль яблоню. В конце концов Хазарулу по просьбе бабушки срубает сосед, и тут обнаруживается нечто удивительное…Жанр: ПрозаПродолжительность: 00:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC90E4E2E1F25095843622E431008A29B68A675B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090228   (947584) от 06.01.2017
+
+Газета | Сезон у дачи. Спецвыпуск №18 (116) (Декабрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о садоводстве, огородничестве, цветоводстве. Очень много интересной и полезной информации. В спецвыпусках журнала "Сезон у дачи" обсуждаются самые востребованные темы среди читателей журнала, вопросы по которым они задают авторам журнала.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7AC2F234F1D41B59C382BE049629D50E5527A5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090152   (947583) от 06.01.2017
+
+James LaBrie - Elements Of Persuasion (2005) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crucify (06:01)
+02. Alone (05:37)
+03. Freaks (05:30)
+04. Invisible (05:38)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A04981BE153606B65F3FD564FCBC52016E422B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090494   (947582) от 06.01.2017
+
+Squeezer 2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минимизировать, компилировать и сжимать веб-источники и изображения
+Squeezer дружище веб-разработчика. Он может компилировать ваши сценарии, оптимизировать изображения, и убрать ненужные файлы, чтобы ускорить время загрузки сайта. Просто перетащите  ваши файлы, и Squeezer позаботится об остальном!
+
+• Простота в использовании, интуитивно понятный пользовательский интерфейс(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06 января 2017Разработчик: InSili.co.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5DBDB5A14E79333321E38C6C0B37B6CBB089F23
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081258   (947581) от 06.01.2017
+
+TunesKit 3.3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947581.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit - простой в использовании и мощный iTunes DRM медиа конвертер
+Tuneskit конвертирует MP4 видео файлы ,поможет любителям iTunes легко обойти Fairplay DRM защиту от iTunes приобретенных и арендованных фильмов / телевизионных шоу в том числе 1080P HD фильмов и телевизионных шоу, конвертируя быстро и без потерь iTunes зашифрованные M4V в формат MP4 с сохранением (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 января 2017Разработчик: TunesKitПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3494C5E591E414269E50AF82EFBEBD97EC3946BC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090284   (947580) от 06.01.2017
+
+OmniFocus Pro 2.8.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947580.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniFocus 2: когда время — важнейший ресурс
+Многие люди никогда не задумывались над тем, каким же всё-таки ценным ресурсом они оперируют. Секунды, минуты, часы, дни — все эти единицы времени неустанно просачиваются сквозь пальцы нашей жизни. У нас остаётся два варианта: так и продолжать смотреть на зря потраченное время и жалеть или же взяться за чёткое планирование, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 января 2017Разработчик: The Omni GroupПоддерживаемая ОС: OS X 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CFE56E021D65ED33F2AFF36DD43606E3E56F294
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090067   (947579) от 06.01.2017
+
+Вера Королёва | Свет радости в мире печали. Митрополит Алма-Атинский и Казахстанский Иосиф (2004) [FB2, EPUB, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга посвящена митрополиту Алма-Атинскому и Казахстанскому Иосифу (Чернову; 1893 † 1975), чья жизнь и деятельность неразрывно связаны с историей Русской Православной Церкви XX века, являя собой непрерывную череду испытаний, скорбей, гонений и лишений на протяжении долгого времени. Около двадцати лет суждено было исповеднику веры Христовой провести в тюрьмах, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB, PDF (сверстан для Amazon Kindle 4 и 5)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAAC409A115DB2749B667998E8B24CD64479F22
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090225   (947543) от 06.01.2017
+
+Газета | Сезон у дачи №26 (228) (Декабрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847F46853A48DCA4A7BD8BFBD127B55E26C8CD6D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090345   (947541) от 06.01.2017
+
+VA - Greatest Dance Rainbow Hits (2017) [MP3|251-320 Kbps] <Funky, Electronica, Tech House, Future Bass, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.Rich - Feels Like Love (Soca 2017) 03:36
+02. Thuy Top - Be Your Own Color (Original Mix) 03:04
+03. Dua Lipa - Blow Your Mind (Mwah) (Butch Le Butch Lost Disco Remix) 07:56
+04. Evgeny Lebedev - Behind You (Original Mix) 06:07(   Читать дальше...   )Жанр: Funky, Electronica, Tech House, Future Bass, ClubПродолжительность: 03:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F68466152E16A4AA66FF78BDE102BEF3806EBF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090121   (947539) от 06.01.2017
+
+VA - Deep House + Kizomba (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Ramos - So Sick
+02. Monsieur De Shada - Swimming Pool Girl
+03. Liju - Meu Marido
+04. Jian Amari - Let's Chill(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D5F9AEBBE0D6BC9931E9C7974878A61C0CB458
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090520   (947535) от 06.01.2017
+
+VA - Milano Fashion Week (Deep House Selection) (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Submantra - I Know (From P60 the Headloop Remix) 5:46
+02.  DJ Umbi - Sonidos (Instrumental Mix) 7:39
+03.  Anthony Mea - Datto (DJ Umbi Remix) 6:13
+04.  Portofino-Sunrise - Morning Breeze 6:00(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDEC58571CB0EE20E47FADDA6D499213C946E21
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090407   (947531) от 06.01.2017
+
+VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz feat. CeCe Peniston - Make You Fall 04:31
+02. Dash Berlin feat. Kate Walsh - When You Were Around 02:59
+03. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (Den Rize Remix) 03:45
+04. MaRLo feat. Sarah Swagger - Always Be Around 03:57(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0615B328DC0FE778B4171032DF61CB43B583CEEF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090187   (947527) от 06.01.2017
+
+D. Batistatos - 4 Albums  (2006-2016) [FLAC|Lossless|WEB-DL|tracks] <Dub, Downtempo, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/save_picture_947527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1. 2006 - Architect
+2. 2009 - Weeper On The Shore
+3. 2012 - Sunshine Velvet(   Читать дальше...   )Жанр: Dub, Downtempo, AmbientПродолжительность: 03:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A1EB2EB1AA73C0F2AFE8310CB71D9F4B52B417
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

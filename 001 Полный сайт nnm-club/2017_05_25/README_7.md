@@ -1,0 +1,735 @@
+https://t.me/izofen
+###  Публикация: 1137099   (669466) от 25.05.2017
+
+TextSoap 8.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669466.jpg" />
+</div>
+
+
+###  Подробнее
+
+TextSoap  для Mac OS - Поможет подчистить текстовые документы различных форматов. TextSoap удалит из текста ненужные символы, пробелы и отступы. Грамотно отформатирует параграфы и устранит множество других проблем и ошибок в оформлении, позволив придать документу желаемый, опрятный вид. TextSoap автоматически исправляет множество проблем и ошибок в тексте, экономя (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Unmarked Software, LLCПоддерживаемая ОС: Mac OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97545F137D13DCD564C4CD95166D95A326D4DBFB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137147   (669465) от 25.05.2017
+
+The Walter Norris Trio - Lush Life (1991) Concord Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lush Life [07:26]
+02. I'll Remember April [04:42]
+03. My Foolish Heart [05:22]
+04. Vars/Mont Dauphin [07:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D52B963D225E21BD8CDFD572E863C221AB0E74
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137069   (669464) от 25.05.2017
+
+Independent Art - Uplifting Trance Collection By Independent Art Vol.11 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy (Original Mix)
+02. Offshore (Original Mix)
+03. The Final Walk (Original Mix)
+04. Cyberion (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57CC21E370FD347C0EEE57D79192BDED8900518
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137102   (669463) от 25.05.2017
+
+TextLab 1.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669463.jpg" />
+</div>
+
+
+###  Подробнее
+
+TextLab - текстовый инструмент преобразования, который позволяет Вам быстро управлять и экспортировать свой текст и данные в удобочитаемый и понятный формат. Например, если Вы копируете и вставляете JSON в примере, он предлагает утвердить и отформатировать это JSON. TextLab мудр, так как он предлагает, какие операции могли быть выполнены основанные на Вашем вводе. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Ondrej KvasnovskyПоддерживаемая ОС: OS X 10.7.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35065EBBDAF93414EA4E04426B24D1D71681D0BA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137134   (669462) от 25.05.2017
+
+Howard Alden - I Remember Django (2010) Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Cares [03:33]
+02. Up Jumped You With Love [05:14]
+03. I Remember Django [05:08]
+04. Jubilee Stomp [04:30](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D842D3B65C106F16A553DF0194683E19CE6EE0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137151   (669461) от 25.05.2017
+
+Joseph Bonner - Triangle (1975) 2009, Whynot [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triangle [06:51]
+02. The Wind And The Rain [10:22]
+03. Mr P.C. [07:41]
+04. Vega [10:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78181E632A8A15B254D4FF4CFEA394227EB0F9CF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137153   (669412) от 25.05.2017
+
+Foscor - Groans to the Guilty (2009) Digipack [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groans to the Guilty 04:19
+02. In Case the Seasons Break 04:48
+03. Melangia 06:26
+04. Raids To Punishment 04:33(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E8861223E6372EDAF66D3825FC36D9618EDC52
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137141   (669411) от 25.05.2017
+
+Kenny Garrett - Sketches Of MD: Live At The Iridium (2008) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ring [14:36]
+02. Intro To Africa [09:22]
+03. Sketches Of MD [10:03]
+04. Wayne's Thang [10:58](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E71D3006AFDB00F3160ABBFE13008364BD279D2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137091   (669410) от 25.05.2017
+
+Solaroid - Awa’s Dream (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Awa’s Dream (05:44)
+2. Wet Souvenir (07:30)
+3. In Serata Per Caso (05:43)
+4. Tennent (06:18)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0C4239D8FFCA3BF8D0CA39A6C1382F46DE0543
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136995   (669409) от 25.05.2017
+
+В. Д. Лаптёнок | Правда о религиозном сектантстве (1960) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669409.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре рассказано о религиозных сектах, действовавших на территории Белорусской ССР в 1940-50-е годы. Показан общественный вред сектантства, их деструктивное влияние на верующих.Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D6867695EF2A4DCDDDC7D150FE7F507F176B6E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137093   (669408) от 25.05.2017
+
+И. Карнер | Социальные функции права (1923) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Введение:
+
+Не без некоторого колебания решился я опубликовать настоящую работу. Поскольку она относится к области, пограничной между экономией и юриспруденцией, она предполагает существование законченной системы этих обеих наук. Пока речь идет об экономии, я спокоен, ибо я опираюсь на марксову критику политической экономии. Но критику буржуазной юриспруденции еще (   Читать дальше...   )Жанр: История, политология, правоведение, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC1F7DD2F7C7EDFFA2B5D0A54E6DBA3882F2A49
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137255   (669407) от 25.05.2017
+
+VA - Stefano Maschio - Deep Lovely Precious Love (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefano Maschio - Barbacoa (Latin mix) (04:19)
+02. Stefano Maschio - Albatros (04:18)
+03. Stefano Maschio - Black Sheep (Spiritual Soul Cut remix) (03:51)
+04. Spiritual Soul - City Lights (05:12)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0867B48362564E7042CEF99B48B96D645137548
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137083   (669406) от 25.05.2017
+
+VA - Santorini Beach and Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puch - 3mptiness
+02. Miper - Move on
+03. Dominik Pointvogl - Coral Suite
+04. Tim Angrave - Sunshine(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A29059FD802B68264358DCA7CC963C3BE4CB22
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136843   (669405) от 25.05.2017
+
+Keosz - Seclusion (2015) EP [MP3|320 Kbps] <Ambient, Atmospheric Bass, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glib (03:03)
+02. Intention (05:43)
+03. All come back (04:18)
+04. Inside (01:32)(   Читать дальше...   )Жанр: Ambient, Atmospheric Bass, DroneПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A094B440CFB199FC9386CC6A4D46D55244E93DE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137318   (669404) от 25.05.2017
+
+VA - Evening Acoustic Playlist: 14 Relaxing and Chilled Acoustic Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Acoustic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Say Something
+02. Meg Birch - Your Song
+03. Shannon & Keast - Promise This
+04. Nora & Will - Shape of You(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1F558B9DA854FB3B1097EDBA9A38FF40558533
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137030   (669403) от 25.05.2017
+
+VA - Chill Out Paradise Vol.1 Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  351 Lake Shore Drive - Brighter Than The Sun 7:29
+02.  Placid Larry - Elastic Slum 4:25
+03.  Ann Grace - Eternal Love 4:50
+04.  Pier-O - Red Sunset (feat. Mia Lemar) 5:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3EC217F5E740913565FA30137F3A8D9A9E0BE7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137001   (669402) от 25.05.2017
+
+И. Амтер | Революционное движение в Северо-Американских Соединенных Штатах (1924) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предисловие:
+
+В настоящее время буржуазия Соединенных Штатов — самая могущественная в мире. Американская буржуазия неограниченно господствует в стране, народное богатство которой определяется в 350.000.000.000 долларов. Она настолько уверена в своей власти, что не постеснялась сбросить маску демократизма. А носила она ее долго и с успехом. Власть концентрируется (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CAD7967591E0A5726A96A2EC181537E10EE1B9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137111   (669401) от 25.05.2017
+
+Stock + Pro 3.7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stock + Pro Самый легкий способ смотреть и отслеживать Ваши инвестиции.
+Stock + Pro является самым популярным инвестиционным приложением для OS X. Разработанный, чтобы быть легким для новичков, включая современные инструменты для закаленных ветеранов.  Чистый и организованный интерфейс поможет сосредотачиваться на анализе всего рынка. Ясная и краткая обучающая программа (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Chimp Studios LLCПоддерживаемая ОС: Mac OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CE29903EE8F174E4D0ED6139F56FDC5D2680B7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136972   (669400) от 25.05.2017
+
+Rising Galaxy - Re-Animation (2017) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Act
+02. No News From Iceberg 17
+03. Hypnosis
+04. Storm Ahead, A Cat is Sleeping(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA0732D7FBE486A54421C98680DA56C83319761
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137046   (669399) от 25.05.2017
+
+PriceWatcher 1.2.15 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669399.jpg" />
+</div>
+
+
+###  Подробнее
+
+PriceWatcher - это программное обеспечение, которое отслеживает изменения цен (Amazon, ...) и уведомляет вас о снижении цены.
+
+Особенности :
+-Поддерживаемые магазины: Amazon, iTunes, Booking.com.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Kevin QuereПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Французский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D511012508AF7C256C45B37F0B1FB29A9302DD7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136733   (669398) от 25.05.2017
+
+Ю. А. Калистратов | Заработная плата в СССР и в капиталистических странах (1931) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669398.jpg" />
+</div>
+
+
+###  Подробнее
+
+(Вместо введения)
+
+«Теперь — экономический кризис почти во всех промышленных странах капитализма. Теперь — сельскохозяйственный кризис во всех аграрных странах. Вместо «процветания» — нищета масс и колоссальный рост безработицы... Кризис уже успел вызвать новую волну капиталистической рационализации, новое ухудшение положения рабочего класса, рост безработицы, расширение (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D08A9943189840DB93F828BFF8AF59CD39E3E91
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137106   (669397) от 25.05.2017
+
+App Pier 1.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669397.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Pier представляет собой клавиатурный пусковой механизм и коммутатор с поддержкой Touch Bar для нового Macbook Pro.
+
+С App Pier вы можете сэкономить место на экране, скрыв док-станцию MacOS, поскольку App Pier позволит вам запускать приложения и переключаться между ними с помощью быстрых клавиш и сенсорной панели.  Вы можете хранить свои любимые приложения в App (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Zafer ArıcanПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72697DC9E90861C16F78BC3364D2B8117C9E37FC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137295   (669396) от 25.05.2017
+
+ДОНЕЦГУБКОМ КСМ (ред.) | Заветы Ильича молодежи (1924) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпускаемая книжка „Заветы Ильича молодежи" есть попытка дать каждому молодому рабочему и крестьянину небольшую памятку об Ильиче, которая служила бы ему всегдашним справочником в его жизни и, главное, первой ступенькой по лестнице изучения ленинизма, на самый верх которой должна взобраться молодежь, чтоб придти — к коммунизму.Жанр: История, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C60C17D1FF6664F258C354166852458E7CB9067
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137148   (669395) от 25.05.2017
+
+Kris Berry - Berry Street (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, RnB>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delete You (4:06)
+02. Ninja (3:27)
+03. She Knows (3:44)
+04. No Axe To Grind (3:02)(   Читать дальше...   )Жанр: Jazz, Pop, RnBПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660D7053F26338E58A1A54A5E0E5E780920AE8E0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137131   (669394) от 25.05.2017
+
+И. Эслен | Политика внешней торговли (1927) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга проф. Эслена принадлежит к числу очень немногих работ, охватывающих основные вопросы внешне-торговой политики буржуазных государств. Ценность этой книги — не в теоретических построениях автора, примыкающего к австрийской школе, и не в его попытках дать обоснование свободной торговле, а в добросовестном подборе и систематизации фактов.
+
+Настоящий перевод пришлось (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760140AD8BCCD9758C2117978FDA7534EDFD21CF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137250   (669393) от 25.05.2017
+
+Г. Менде | Путь Карла Маркса от революционного демократа к коммунисту (1957) [DJVU, FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_669393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги профессор Георг Менде - один из видных философов Германской Демократической Республики. "Путь Карла Маркса от революционного демократа к коммунисту" - исследование первого периода идейного развития К. Маркса (1837-1844 гг.).
+
+Г. Менде в своем небольшом, но ценном труде широко анализирует многие документы, раскрывающие становление К. Маркса как (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06098FEA888DEFA2F1BCABC700CD2E8B4E091104
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

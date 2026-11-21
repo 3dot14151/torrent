@@ -1,0 +1,734 @@
+https://t.me/izofen
+###  Публикация: 1507842   (798171) от 06.11.2021
+
+VA - Luxury Lounge Sunset, Vol. 4 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamhunter - Hurricane Bay (3:35)
+02. Lazy Hammock, Ivan M-sax - Clean Slate (5:06)
+03. Schwarz, Funk - Keep On (Remastered Version) (5:49)
+04. Corrado Saija - Sommeil Noir (Extended Version) (14:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA9514DA41F682F8B5871CFA48B22192958B58E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507845   (798170) от 06.11.2021
+
+VA - Best Sound of Chill & Lounge 2021 – Winter Edition (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiozoom - Smooth Mover (3:49)
+02. Soundset City - Nu City (3:43)
+03. Bernon - Around the World (4:15)
+04. Jean Mare - Blue Cascades (4:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162C5FBD4F03CC3805B4C950C0DC19E3A1B36C61
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507852   (798169) от 06.11.2021
+
+VA - Best Sound of Chill & Lounge 2021 - Summer Edition (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightbar Jazz - Breath of the City (4:50)
+02. Soundset City - Shine On (Funky Lounge Mix) (3:53)
+03. Audiozoom - So Beautiful (3:25)
+04. Jazzy System - China Town (3:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7E69658AD1894FD49AA7BEF217F3B546E656B0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507877   (798168) от 06.11.2021
+
+VA - Luxury Buddha Lounge, Vol. 1 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metaharmoniks - From Soul to Soul (3:15)
+02. Sylvering - Domino Dancing (2:47)
+03. 351 Lake Shore Drive, Blueberry - Soirée Rouge (6:47)
+04. Simon Le Grec, Kelly Johnson - Tell Me What Love Can Do (Jorgensen Remix) (8:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E055005559B152589A4F9A32E47D7817768B5C02
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507953   (798167) от 06.11.2021
+
+SnapMotion 5.0.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798167.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapMotion - приложение, которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
+
+SnapMotion имеет два режима:
+● Ручной режим, где вы можете извлекать изображения точно в установленное время.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2012-2019 NeededAppsПоддерживаемая ОС: macOS 11.0.+Язык интерфейса: Английский, Немецки и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2894F8CA96F2B7D123EC0AF3907E2B38B7B45C8D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507956   (798166) от 06.11.2021
+
+SiteSucker 4.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798166.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker. Альтернативный менеджер загрузки сайтов
+SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать сайт (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: © 2021 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D0A1FBDCB963981BC0C7A9271DA56B494805C3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508085   (798165) от 06.11.2021
+
+Bookends 14.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
+Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: © 2021 Sonny SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E778976FE2DF828884CEFAD3CA1A5EDD883A12E1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507950   (798164) от 06.11.2021
+
+GlueMotion 2.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798164.jpg" />
+</div>
+
+
+###  Подробнее
+
+GlueMotion - идеальный инструмент для фотографов. Приложение позволяет редактировать пакетные Deflicker и собирать последовательности изображений в покадровые фильмы.
+GlueMotion был создан, чтобы сэкономить время и помочь вам в процессе работы. Благодаря использованию инструмента пакетного редактирования, нет необходимости использовать дополнительные приложения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2012-2019 NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427132F5EC5092D94219A4197E50AF5EDE527E53
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508073   (798163) от 06.11.2021
+
+DropDMG 3.6.2 fix [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
+Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2021Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Голландский, Датский и д.р.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB95E57655DB5587D4D0B5070A73E3BED2A2DF34
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508027   (798162) от 06.11.2021
+
+MacPilot 13 v13.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лёгкое включение и отключение скрытых функций Mac OS X, оптимизация и ремонт вашей системы, выполнение множества рутинных процедур по обслуживанию системы путём простого нажатия на кнопку.
+Независимо от того, профессионал вы или начинающий пользователь, теперь вы сможете повысить производительность компьютера несколькими кликами мыши. В приложении предусмотрено выполнение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2021Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0823B7246A0247A48C971730552962B05B88EFB9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507907   (798161) от 06.11.2021
+
+VA - Café De La Cita, Vol. 4 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2020) [AAC|~288 Kbps] <Lounge, Chill Out, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightview - Cityscape (Lounge Sound Mix) (3:28)
+02. Soundset City - Break in the City (3:43)
+03. CiYou - I'm Driving (3:21)
+04. Nightzoom - Cool Mixture (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:820B5BFE78DD68007B077947A1D35A1B885B3150
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507984   (798160) от 06.11.2021
+
+VA - Urban Chill Nation, vol. 2: Best of Chillhop & Lo-Fi Tunes (2021) [AAC|~304 Kbps] <Chill Out, Lo-Fi, ChillHop>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_798160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Reflections (4:07)
+02. G.Pantelidis - Hypnotic Poem (4:29)
+03. Dellasollounge - Given My Everything (2:42)
+04. Simon Le Grec - One More Night (Radio Mix) (3:46)(   Читать дальше...   )Жанр: Chill Out, Lo-Fi, ChillHopПродолжительность: 01:27:53
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507905   (798159) от 06.11.2021
+
+VA - Café De La Cita, Vol. 3 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2019) [AAC|~313 Kbps] <Lounge, Chill Out, Jazz>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_798159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Artenovum (Smooth Chillout Mix) (5:26)
+02. Bernon - City Beats (Big Town Mix) (4:11)
+03. Jean Mare - City Waves (Smokers Lounge Mix) (4:33)
+04. Jazzy System - Another World (Abstract Vision Cut) (5:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:40:49
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507980   (798158) от 06.11.2021
+
+VA - Urban Chill Nation, vol. 1: Best of Chillout, Nu Jazz & Lo-Fi Tunes (2020) [AAC|~314 Kbps] <Chill Out, Lo-Fi, Nu Jazz>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/save_picture_798158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco, THE ONE Lavic - Day After Day (Original Mix) (3:42)
+02. Magmatunes - Hit Me (5:28)
+03. Marga Sol - Starry Night (Original Mix) (5:47)
+04. Roberto Bronco - Come Together (Original Mix) (4:47)(   Читать дальше...   )Жанр: Chill Out, Lo-Fi, Nu JazzПродолжительность: 01:32:08
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508076   (798157) от 06.11.2021
+
+NCH Express Accounts Plus 9.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Express Accounts - это профессиональное программное обеспечение для бухгалтерского учета, идеально подходящее для малых предприятий, которым необходимо документировать и сообщать о входящих и исходящих денежных потоках, включая продажи, квитанции, платежи и покупки.
+• Легко отслеживать платежи и депозитные операции
+• Просматривайте балансы и отчеты, чтобы узнать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE28F779C87B2FC58B887BFBE2030185B7D6ACA4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508079   (798156) от 06.11.2021
+
+NCH Express Animate 6.39 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Express Animate - это приложение для анимации, ПО дает вам возможность анимировать формы, текст и импортированные изображения. Вы также можете улучшить свои кинопроекты на этапе пост-обработки, используя анимацию движения по ключевым кадрам , маскирование, фиктивные объекты и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: © 2021 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDF006E93AAE73D8A274E4FDE5964BB850B1BF3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507904   (798155) от 06.11.2021
+
+VA - Café De La Cita, Vol. 2 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2018) [AAC|~304 Kbps] <Lounge, Chill Out, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Dulcimers Vibes (Chillout Mix) (4:10)
+02. Jean Mare - Down to Underground (Nu Jazzy Smooth Mix) (3:51)
+03. Bernon - Crying (Deep Drive Mix) (5:27)
+04. Nightbar Jazz - Late Night (Drum & Bass Downbeat Mix) (3:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2435EB6A80BF2A5CAFB0430418CED01D65EFB55A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507096   (798154) от 06.11.2021
+
+Морн / Mourne (2021) WEBRip [VP9/2160p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершите захватывающее путешествие по 4 временам года в горах Морн, которые являются одними из самых живописных на острове Ирландия.Производство: ИрландияЖанр: Документальный, видовойРежиссер: Richard WatsonПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 00:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E89C87362C02D13C729B0A6D9EF9E1731615E38
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507903   (798153) от 06.11.2021
+
+VA - Café De La Cita, Vol. 1 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2017) [AAC|~312 Kbps] <Lounge, Chill Out, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Galactic Highway (Nu Chillgroove Mix) (5:03)
+02. Bernon - Suitcases to Space (Jazzy Chillout Version) (5:19)
+03. Dave Neville - The Sun Is Coming (Smooth Jazz Mix) (6:47)
+04. Avalon Project - I Can Read Your Mind (Chill Breeze Mix) (5:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2009BDE91A7B5263CF0613FFB8B652E2F3DA17
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508010   (798152) от 06.11.2021
+
+Invisor - Media File Inspector 3.18 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Invisor – Инспектор файлов мультимедиа
+Отображает техническую информацию о вашем видео и аудио файлов с возможностью сравнения собранных данных.
+Invisor основан на хорошо известной библиотеке MediaInfo и показывает подробную информацию о контейнере файла и потоков данных, включая видео, аудио, субтитры и главы. Поддерживает большинство форматов видео и аудио файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: © 2021 Maxim PozdeevПоддерживаемая ОС: macOS 10.7.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40373F65CBD1AED73DD4DCA5F561CA2D7B2C1654
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507880   (798151) от 06.11.2021
+
+VA - Luxury Buddha Lounge, Vol. 3 (2014) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jasmon - Oriental Cafe (4:06)
+02. Man In A Room, Natasha Tsirou - Marveland (5:22)
+03. SoulAvenue - Padmasundari (5:56)
+04. Aqualise - Sonar (Original Version) (7:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE789E1E647C4A6805EDC1035D9FBCBB70FEC4B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507887   (798150) от 06.11.2021
+
+VA - Chill Out Nation, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge Groove Avenue - Next to the Sun (4:20)
+02. Peter Pearson - Chilled To The Heart (4:34)
+03. Marga Sol - What I Long For (Chill Mix) (5:24)
+04. D-Chill, Paola Cordoni - Are You Still (5:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:326B3BF56957595E18D48812281F1E27F901C1DC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507878   (798149) от 06.11.2021
+
+VA - Luxury Buddha Lounge, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sylvering - The Power of Love (4:35)
+02. Smooth Deluxe - My Sweet Aimée (5:36)
+03. Guenter Haas - Lost in a Dream (6:42)
+04. E-Love - You Take My Heart (Gardenhouse Chill Out Edit) (6:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F335974E6B114CBAA57F6FF92A3039D380960A35
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507908   (798148) от 06.11.2021
+
+VA - Café De La Cita, Vol. 5 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2021) [AAC|~296 Kbps] <Lounge, Chill Out, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzy System - China Town (3:46)
+02. Audiozoom - So Beautiful (3:25)
+03. Cuetec - Around Midnight (4:23)
+04. Jean Mare - Metropolitan Nights (Lounging Electro Cut) (4:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F85E4F8B3F2EC0A4B1B604418BEC80EDDE7768F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508020   (798147) от 06.11.2021
+
+iFlicks 3.8 fix [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как добавить и смотреть фильмы в iTunes, iPhone или iPad? Используйте iFlicks. Добавьте метаданные к фильмам и сериалам и ваша медиатека будет выглядеть просто шикарно. Управление вашей видео коллекцией еще никогда не было такой удобной.
+
+iFlicks — это метаданные к сериалам и фильмам. При помощью добавления метаданных iFlicks поможет сделать вашу iTunes библиотеку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: © 2015-2020 by iFlicks.Поддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3C125A9CA06BC6C25C6C4C4E2EB0AC84B2DE69
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507977   (798146) от 06.11.2021
+
+PhotosRevive 2.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_798146.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotosRevive автоматически раскрашивает ваши старые черно-белые фотографии. Приложение использует революционный искусственный интеллект, который добавит цвета ультра-реалистичным способом. Приложение очень простое в использовании. Сканируй или импортируй свою фотографию и все. Приложение раскрасит его без каких-либо усилий с вашей стороны.Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2021 NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C477E41AB0E0BEFD231F460C89C86C80FAAA57A1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
