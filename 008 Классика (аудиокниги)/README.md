@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1899278   (1089593) от 
+###  Публикация: 1899278   (1089593) от 12.11.2026
 
 Луи Буссенар | Похитители бриллиантов (2026) [MP3, Георгий Арсеньев]
 
@@ -25,7 +25,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1899374   (1089592) от 
+###  Публикация: 1899374   (1089592) от 12.11.2026
 
 Ги де Мопассан | Бесполезная красота и другие рассказы (2026) [MP3, Всеволод Кузнецов]
 
@@ -51,7 +51,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1899224   (1089589) от 
+###  Публикация: 1899224   (1089589) от 12.11.2026
 
 Уильям  Голдинг | Повелитель мух (2026) [MP3, Филипп Волошин]
 
@@ -529,7 +529,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/" />
+  <img src="http://mybot314.ru/picture_torrent/Z:/picture/013/pict1083190.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/" />
+  <img src="http://mybot314.ru/picture_torrent/Z:/picture/013/pict1083188.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/" />
+  <img src="http://mybot314.ru/picture_torrent/Z:/picture/013/pict1083187.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/" />
+  <img src="http://mybot314.ru/picture_torrent/Z:/picture/013/pict1083186.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ http://mybot314.ru/main/16-spisok-vseh-resursov.html
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/" />
+  <img src="http://mybot314.ru/picture_torrent/Z:/picture/013/pict1083185.jpg" />
 </div>
 
 

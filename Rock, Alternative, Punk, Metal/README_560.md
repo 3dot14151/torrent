@@ -1,0 +1,801 @@
+###  Публикация: 1399861   (725210) от 02.08.2020
+
+Septic Flesh - Sumerian Daemons (2003) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_725210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. beHold... tHe land of Promise (02:10)
+02. uNbeliever (04:52)
+03. Virtues of the Beast (05:18)
+04. FaUst (05:10)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E965C076953B13DF09BA0C91D5FDD26B2EEEAFC4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399886   (725082) от 02.08.2020
+
+The Neologist - Are We Not Drawn Onward To New Era (2020) Disc 1 [MP3|320 Kbps] <Melodic Death Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_725082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fall Of An Empire (2020) (04:37)
+ 02. Cyclical Timing (2020) (04:12)
+ 03. 3.0 (2020) (04:04)
+ 04. A Place Where The Dead Don't Bother Me (2020) (03:43)(   Читать дальше...   )Жанр: Melodic Death Metal, Modern MetalПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4EF529B10597B68C02FDA3B681D97756D45CA9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399678   (725065) от 02.08.2020
+
+Lockdown Revival - Stay Home (2020) [MP3|320 Kbps] <Modern Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_725065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lockdown (01:18)
+ 02. Wake Me Up (03:10)
+ 03. The Call (04:17)
+ 04. Wrong (04:38)(   Читать дальше...   )Жанр: Modern Metal, Alternative MetalПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED946E687A87BE61315E98CA87F638DDFE1358F2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218342   (725023) от 08.04.2018
+
+Инкогнито - Наши голоса (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_725023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бесконечность
+02. Наши голоса
+03. Кипит любовь
+04. Саванна(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D004FC056783F51B24E27EA9F6DD0E7AC9E981
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206703   (725005) от 04.06.2010
+
+Slade - Nobody's Fools (1976) Remastered Japanese Release /2006, Daiki Sound/ [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody's Fool [04:41]
+02. Do The Dirty [04:42]
+03. Let's Call It Quits [03:31]
+04. Pack Up Your Troubles [03:24]
+05. In For A Penny [03:36]
+06. Get On Up [03:57]
+07. L.A. Jinx [03:26]
+08. Did Ya MaMa Ever Tell Ya [03:06]
+09. Scratch My Back [03:06]
+10. I'm A Talker [03:17](   Читать дальше...   )Жанр: RockПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285003   (724999) от 24.02.2019
+
+Telekinesis - Effluxion (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Effluxion (03:32)
+02. Cut the Quick (04:22)
+03. Like Nothing (02:53)
+04. Running Like a River (01:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC414339519D0A9D3AAC9E4F1B946FD91B8CBF4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399707   (724980) от 02.08.2020
+
+Dark Wizardry - Burden Of Salvation (2020) [MP3|320 Kbps] <Symphonic Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture (07:11)
+ 02. To Victory I (05:45)
+ 03. To Victory II (06:33)
+ 04. Todeskampf (02:01)(   Читать дальше...   )Жанр: Symphonic Metal, Progressive MetalПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CBA71BA5B30085029CE1999998DD0D094257EA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789900   (724943) от 26.05.2014
+
+NZM - Eternal Fire (2014) [MP3|320 кб/с]<Heavy \ Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Fire
+02. The Force Within
+03. I'm In Your Blood
+04. The Land Of The Rising Sun
+05. Darling
+06. War
+07. Follow Me
+08. Hold Me Tight
+09. Take My Hand
+10. Life After LifeЖанр: Heavy \ Power MetalПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CEAC2DCA5410F9FDD82FB14925240191968922
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790166   (724930) от 26.05.2014
+
+Hurriganes - Roadrunner (1974) [MP3|320 кб/с]<Classic Rock, Rock-n-Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. It Ain't What You Do
+02. Hey Groupie
+03. Tallahassee Lassie
+04. The Phone Rang
+05. I Will Stay
+06. Get On
+07. In The Nude
+08. Mister X
+09. Slippin' And Slidin
+10. Oowee-Ohla(   Читать дальше...   )Жанр: Classic Rock, Rock-n-RollПродолжительность: 00:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B492139C490A5A2996E6D8F2EADB97719BB5D3E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789814   (724929) от 26.05.2014
+
+Syndemic - For Those In Desperation (2014) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. Shelter In Disease
+2. Leaves
+3. Silent Wrath
+4. Psychotic Disorder
+5. Progeny Of Sorrow
+6. Thought Labyrinth
+7. Interlude
+8. Resonance Complex
+9. Abysmal Structures
+10. Echo ChamberЖанр: Melodic Death MetalПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E5263AB8F3525118148F505E5EE1950D3AFD87
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285098   (724919) от 24.02.2019
+
+Anemone - Beat My Distance (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Your Own (03:31)
+02. Daffodils (03:53)
+03. Memory Lane (04:51)
+04. Sunshine (Back to the Start) (05:30)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3082657EB89E7F0DD4C551AF10DF15D031CA15A7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285009   (724910) от 24.02.2019
+
+Julia Jacklin - Crushing (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body (05:07)
+02. Head Alone (02:59)
+03. Pressure To Party (03:02)
+04. Don't Know How To Keep Loving You (05:32)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DDC61E5409EB51BAEB0219CF43AB535718405B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218288   (724890) от 08.04.2018
+
+VA - Rock Legends: The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Rock, Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc: 1
+01. Rainbow - I Surrender
+02. Thin Lizzy - The Boys Are Back In Town
+03. Kiss - Rock And Roll All Nite(   Читать дальше...   )Жанр: Rock, Classic Rock, Hard RockПродолжительность: 06:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F46917F7A8F874C586350A168B8D08C960E855
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128967   (724841) от 27.04.2017
+
+Johnny Crash - Unfinished Business (2008) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724841.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Damnation Alley
+2 Monkey See Monkey Do
+3 Mama Don't Care (What She Don't See)
+4 Renegade(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D92F1D5CC5B6E972BCEFF9C3E5DB3654270DDE
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128969   (724831) от 27.04.2017
+
+Volbeat - The Strength / The Sound / The Songs (2005) [APE|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Caroline Leaving  (03:14) 
+02.  Another Day, Another Way  (03:03) 
+03.  Something Else Or...  (04:08) 
+04.  Rebel Monster  (02:54) (   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36B14B8399A9817B28BA6ED7A61C1D7D566BE81
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789806   (724804) от 26.05.2014
+
+Patrizia - Rock the Throne (2014) [MP3|320 кб/с]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zombie
+02. On the Brink
+03. Creep
+04. Show Must Go On (feat. Mike Garson)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6DCCA6A73BBD7CC98B3A934D5F3A7F439B25CA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790115   (724803) от 26.05.2014
+
+Clark Hutchinson - Retribution (1970) [MP3|320 кб/с]<Hard Psychedelic, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. Free To Be Stoned
+2. After Hours
+3. In Another Day
+4. Best Suit
+5. Death, The LoverЖанр: Hard Psychedelic, Blues RockПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5611C1B30EAEF0365B3BD732144ABB5A5CC95FB9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790158   (724798) от 26.05.2014
+
+Se Delan - The Fall (2014) [FLAC|Lossless]<Progressive Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (3:28)
+02. Chasing Changes (5:32)
+03. Beneath The Sea (6:15)
+04. Little One (4:51)
+05. Today (3:07)
+06. Tonight (4:10)
+07. The Hunt (3:52)
+08. Dirge (4:56)
+09. On My Way (5:15)
+10. Lost Never Found (5:17)Жанр: Progressive Rock, Female VocalПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD969A73455DE389BB442766A1FC3E3B7E9298B7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790085   (724796) от 26.05.2014
+
+Raven - Back To Ohio Blues (1975) [MP3|320 кб/с]<Hard Psychedelic Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+1. Can't You See
+2. Raven Mad Jam
+3. Don't you Feel
+4. War With My Soul
+5. Back To Ohio BluesЖанр: Hard Psychedelic Blues RockПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6DA8EAD64B5F8A99738F2892C1C974BA90DF20
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285016   (724787) от 24.02.2019
+
+Strand of Oaks - Eraserland (2019) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weird Ways
+02. Hyperspace Blues
+03. Keys
+04. Visions(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF00619BBC570849B3DEE34104F43399EFC70AD
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285086   (724772) от 24.02.2019
+
+Emerald Sabbath - Ninth Star (2019) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о том, как ирландский инспектор по ядерной безопасности собрал 10 бывших участников Black Sabbath, чтобы выпустить трибьют-альбом одной из величайших групп в истории.
+
+Альбом "Ninth Star" Emerald Sabbath - это амбициозный эпический рок и дань уважения классической музыке Black Sabbath.
+(   Читать дальше...   )01 - Embryo (Intro) 0:52
+ 02 - Die Young 4:34
+ 03 - Fluff 4:13
+ 04 - Trashed 4:38(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CE03D5633FC47138296BE03594C2B2C861E9D6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129067   (724670) от 27.04.2017
+
+Red Dawn - Never Say Surrender (1993) [APE|Lossless|image + .cue] <Hard Rock, Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flyin' High (5:45)
+02. I'll Be There (4:11)
+03. Liar (3:24)
+04. Dangerous Child (6:18)(   Читать дальше...   )Жанр: Hard Rock, Melodic Rock, AORПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DFF709540326D6764964B198BD38E9C7000EAB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023636   (724655) от 05.06.2016
+
+Billy Satellite - Billy Satellite 1 (1984) Re-release, 2000, ATM Records [MP3|320 кб/с] <Rock, Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satisfy Me    03:41
+02. Last Call    03:30
+03. Do Ya?    03:48
+04. I Wanna Go Back    03:52(   Читать дальше...   )Жанр: Rock, Melodic Rock, AORПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E819E05F5F1EA70B274C12754F058AED0B47A8E5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023393   (724651) от 05.06.2016
+
+VA - Metal For The Masses 666 (2007) [FLAC|Lossless|image + .cue] <Death Metal, Metalcore, Thrash, Hardcore, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/save_picture_724651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arch Enemy - Revolution Begins (4:11)
+02. Suicide Silence - No Pity For A Coward (3:11)
+03. In This Moment - Beautiful Tragedy (3:23)
+04. Devian - Scarred (3:50)(   Читать дальше...   )Жанр: Death Metal, Metalcore, Thrash, Hardcore, Black MetalПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6796B3C55DAB98B5F62D48FA5E43959F7F676D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790173   (724630) от 26.05.2014
+
+Ram Jam - The Very Best Of (1990) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Black Betty
+02. Let It All Out
+03. Keep Your Hands On The Wheel
+04. Right On The Money
+05. All For The Love Of Rock'N'Roll
+06. 404
+07. High Steppin'
+08. Overloaded
+09. Hey Boogie Woman
+10. Too Bad On Your Birthday(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B8F71C13B79BF149B0E2C3B3CECDA48DE5D266
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789872   (724628) от 26.05.2014
+
+Martin Barre - Away With Words (2013) [MP3|320 кб/с]<Progressive Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+(3:10) 01. At First Light - Moths
+(6:04) 02. Its My Round - Requiem
+(3:15) 03. One Brown Mouse - Fatcat
+(6:11) 04. Air (Lament Of The Spalpeen - Martin's Jig - Hymn 43)
+(1:12) 05. All Bars Hold
+(3:44) 06. Pussy Wilow
+(4:14) 07. Snapshot - Paparazzi
+(4:54) 08. Long Ago - Home
+(4:06) 09. Fire At Midnight - From The Ashes
+(3:05) 10. Protect And Survive(   Читать дальше...   )Жанр: Progressive Rock, InstrumentalПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D590BA5CA3A689D6FF216B4A0049D0BF8C9DA8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

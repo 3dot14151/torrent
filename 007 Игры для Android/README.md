@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1898988   (1088972) от 
+###  Публикация: 1898988   (1088972) от 14.11.2026
 
 Diablo III: Eternal Collection 0.2.7 Unofficial Port by Desm0nt [Ru/Multi]
 
