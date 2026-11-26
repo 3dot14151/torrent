@@ -1,0 +1,724 @@
+
+###  Публикация: 1256667   (352111) от 23.10.2018
+
+Aurora Borealis - Praise The Archaic Lights Embrace (1998) [APE|Lossless|image + .cue] <Black Metal, Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_352111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Offerings of Jade and Blood
+02. A Gaze Into Everdark
+03. In the Depths of a Labyrinth
+04. Aggressive Dynasty(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136B1399DF1D1AA83DB776D4EF1B5088C425F998
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256712   (352110) от 23.10.2018
+
+Bodyrox Feat. Luciana - Yeah Yeah (2006) [FLAC|Lossless|tracks + .cue] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_352110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Radio Edit) (2:45)
+02. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Vocal Club Mix) (8:19)
+03. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Instrumental) (6:57)
+04. Bodyrox feat Luciana - Yeah Yeah (Electro Radio Edit) (2:37)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: : 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8480E2B794D14AADDBD689203DB470B9DB39638A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256857   (352109) от 23.10.2018
+
+DJ Base - Энергия Жизни 1 (2001) [MP3|256 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_352109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.DJ Base - Energiya ZHiZni 2000Жанр: Progressive HouseПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5747CA4CC29D73FADE113704732533A0225DA7D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256775   (352108) от 23.10.2018
+
+IconJar 1.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_352108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все ваши иконки отлично организованы в удобный интерфейс
+Разработанный, чтобы сделать жизнь разработчиков приложений и дизайнеров немного легче, IconJar представляет собой легкий и удобный органайзер иконок для вашего Mac.
+
+Если вы дизайнер или просто-напросто кто-то, чья линия работы включает в себя работу со значками (или глифы), то вы знаете, как громоздким оказывается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2018Разработчик: Davey Heuser and Curtis HardПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DFDB6C657A714CBE12CCB9EAF1E3DE9F08F523
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256689   (352107) от 23.10.2018
+
+Brief Respite - Lullaby to the Moon (2005) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_352107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.    Shattered Glass    05:49
+02.    Order by Chaos    06:12
+03.    Amer et contre tous    04:29
+04.    Lullaby to the Moon    05:00(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED8E574DD6E5EE5D0FEF845C2DC3D145A86D92C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256720   (352001) от 23.10.2018
+
+VA - Dark Amsterdam (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_352001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betsie Larkin & Roman Messer - Unite (Extended Full Fire Mix)
+02. Didit Aphrodite - Pochinki Bound (Extended Mix)
+03. Michael Milov - I'll Be Free (Extended Mix)
+04. Escea - The Future (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC1A776FD6665BEE3A25F73FAC1B947D13E62EC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256739   (352000) от 23.10.2018
+
+David Eugene Edwards & Alexander Hacke - Risha (2018) [FLAC|Lossless|image + .cue] <Folk rock, alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_352000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Triptych
+2. All in the Palm
+3. The Tell
+4. Helios(   Читать дальше...   )Жанр: Folk rock, alternativeПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0699430F4950691F1FDEE338AD6619B211AAE042
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256744   (351999) от 23.10.2018
+
+Mirror for Sony TV 3.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров Sony
+Приложения для зеркального отображения экрана вашего Mac на любом Смарт-ТВ Sony. Никаких проводов и дополнительных аппаратных средств не требуется!
+
+Приложение работает на любой модели Смарт-ТВ Sony с 2012 и позже.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB187A45BFB211A0B49E1FFDB8C9824334BE459
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256799   (351998) от 23.10.2018
+
+Path Finder 8.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CocoatechПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A94A120E250F4C4DD173FB6A628FD5D8E8B144D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256684   (351997) от 23.10.2018
+
+Калеб Крисп | Остановите Айви Покет! (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351997.jpg" />
+</div>
+
+
+###  Подробнее
+
+После трагического происшествия в Баттерфилд-парке Айви Покет оказалась в доме гробовщиков, которые взяли её под опеку. Но опасные приключения на этом не закончились. Алмаз Тик-так открыл страшную тайну: Ребекка, которую Айви считала погибшей, оказалась в Проспе, другом мире, где её подвергают ужасным испытаниям. Айви во что бы то ни стало надо проникнуть туда и (   Читать дальше...   )Жанр: Городское фэнтези; Фантастика для детейПеревод: Наташа АллунанФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2CD645DE9C13FD4B8C2C0C7C5B3F7792F983C7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256726   (351996) от 23.10.2018
+
+Клавдия Лукашевич (сост.) | Сказки современных русских писателей. Том 2 (1911) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки русских писателей.
+Для младшего и среднего школьного возраста.Жанр: Детская проза. Сказка.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22AC1420CFF50D93DA3A6458E2BF621F152937C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256742   (351995) от 23.10.2018
+
+Barney Kessel - Modern Jazz Performances From Bizet's Carmen (1958) 1986, Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swingin' The Toreador [5:52]
+02. A Pad On The Edge Of Town [6:46]
+03. If You Dig Me [4:04]
+04. Free As A Bird [5:00](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D86429667A46EBE92B88A05CA7B313D17236CA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256796   (351994) от 23.10.2018
+
+Artistry Photo Pro: Photo Edit 3.0.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте скрытый потенциал на ваших фотографиях с помощью этого мощного редактора фотографий. Благодаря встроенным более 100 эффектам, более 90 типов настроек для настройки фотографий с цветовой обработки на гамма и корректировки кривой тона, наши инструменты редактирования дают пользователям возможность применить эффект или несколько эффектов для всей фотографии. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2018Разработчик: It's About Time ProductsПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04077FC75EFC2C2E611D44C3295FAE7070D7A7A1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256848   (351993) от 23.10.2018
+
+Гектор Шульц | Ванти (2017) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я давно планировал написать историю про человека с синдромом Аспергера. Непростую историю, а по-своему удивительную и прекрасную. В ней я хотел показать, что людям, подобным Ванти, нужна частица тепла и заботы от обычных людей. Благодаря этой частице они могут почувствовать себя нужными и любимыми. А также могут помочь и тем, кто давно забыл, что такое счастье и (   Читать дальше...   )Жанр: Проза, ДрамаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E031573A9B19E54A8C28730BB0CECD34822E618
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256767   (351992) от 23.10.2018
+
+QuickRes 4.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя Macbook’и с дисплеями Retina появились уже достаточно давно, всеравно некоторые сайты и интерфейсы в приложениях вынуждают пользователей переключаться на разрешение отличное от стандартного для Retina-дисплеев. Да и в обычной жизни, некоторым удобнее устновить чуть меньшее разрешение, чтобы получить приемлемый размер шрифта и элементов интерфейса. Это не столько (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2018Разработчик: ThnkDevПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCE9E20A77FE97F0EC147AA1AD6FC2867B9DC1C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256798   (351991) от 23.10.2018
+
+Tweak Photos 2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351991.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Все любят фотографировать. Но насколько хорошо Вы можете редактировать тысячи снимком, используя Ваш Mac является большим вопросом" - говорят разработчики Приложения.
+
+Компания Systweak разработала совершенно новое приложение для пакетного редактирования изображений на Mac - Tweak Photos. С помощью Tweak Photos , редактирование тысячи Ваших фотографий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2018Разработчик: Systweak Software Private LimitedПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FA0DE127FF74CA5A343F4B7E75E7DBC157A72C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256662   (351990) от 23.10.2018
+
+iVI Video Converter 4 v4.620 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351990.jpg" />
+</div>
+
+
+###  Подробнее
+
+iVI - это видео конвертер с самым высоким рейтингом американского Mac App Store.
+iVI способна конвертировать и импортировать видео в iTunes и iMovie методом drag and drop. iVI идентифицирует ТВ шоу и фильмы и автоматически добавит метадату: постеры, детали эпизодов, списки актеров и т. п. iVI конвертирует видео для проигрывания на Mac, AppleTV (1-3), iPad, iPhone (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2018Разработчик: Southpole SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A3E285F785AFD1DA78112374446321E3E1F82E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256794   (351989) от 23.10.2018
+
+DJ Бинокль - Counter-Strike Attack (2002) [MP3|320 Kbps] <Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Unknown Artist – Intro (Smoke Machine In Beats)0:26
+02 Depeche Mode – I Feel Loved (Danny Tenaglia Mix)Remix – Danny Tenaglia 4:45
+03 Dirty Vegas – Days Go By (Full Vocal Mix) 4:14
+04 Sia – Drink To Get Drunk (Different Gear Mix) 4:45(   Читать дальше...   )Жанр: Club HouseПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2FE5DD05D5C75CB92BF7DEA2A9CB50905A16CB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256688   (351988) от 23.10.2018
+
+ProPresenter 6 v6.3.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351988.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProPresenter – это система для презентаций, которая использует два экрана, предоставляя пользователям возможность легко и быстро показывать слайды на одном экране и контролировать презентацию – на другом.
+В программу встроен ProVideoPlayer, который позволяет воспроизводить видео. ProPresenter поддерживает любое разрешение экрана, что вместе с экранами новых Мас с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2018Разработчик: Renewed Vision LLCПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Корейский, Испанский, Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB3AC29869AC969F275B9DC8532F96152E3F3A4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256815   (351987) от 23.10.2018
+
+Comodo Dragon 69.0.3497.81 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый браузер на базе технологии Chromium с дополнительными функциями, повышающими безопасность. Обеспечивает повышенную конфиденциальность, имеет технологию проверки доменов, которая идентифицирует и выделяет превосходящие сертификаты SSL из низших, останавливает куки и другие веб-шпионы, а также предотвращает все прослеживания загрузки браузера.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BBC6D999EA3E3E3693E8A17980FE19A98E4099
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256715   (351986) от 23.10.2018
+
+VA - Autumn Mood: Ambient Serene Music (2018) [MP3|320 Kbps] <Ambient, Downtempo, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351986.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Fx - A Man Who Stands
+002. Alpha And Omega - Leafing Through The Memories
+003. Inward Universe - Residues Lives
+004. Spirrin - Legacy(   Читать дальше...   )Жанр: Ambient, Downtempo, RelaxПродолжительность: 09:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAF0F1C9701C0443A88E05804718C558DCBA487
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256769   (351985) от 23.10.2018
+
+VA - Essencia Vol.2 (Compiled By Digital-X) (2018) [MP3|320 Kbps] <Psytrance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exolon - Drop of Strings (8:38)
+02. Owntrip - Deep (7:49)
+03. Akasha (BR) vs Dktronic - Future (8:00)
+04. Mystic - In My Mind (8:13)(   Читать дальше...   )Жанр: PsytranceПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE69DC170A266D4CEA3D854757009BF1B3DE6074
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256777   (351984) от 23.10.2018
+
+VA - Blasted Note (2018) [MP3|320 Kbps] <Psytrance >
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kontrol Z & Cocodrilo - Tropical Business
+02. Dezzert - Sic Mundus Creatus Est
+03. Synthetik Chaos & Shred'er - Too Much
+04. Audioglyph - Main Frame(   Читать дальше...   )Жанр: PsytranceПродолжительность: 01:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7D09097C134C2D98D435115CA9FB6404BAA53F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256758   (351983) от 23.10.2018
+
+California Sunshine - Bicycle Tune (2018) [MP3|320 Kbps] <Psytrance, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351983.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shining Star 08:40
+2. Deep Noise 11:02
+3. Horizon Trip 08:06
+4. Delusions 07:29(   Читать дальше...   )Жанр: Psytrance, ProgressiveПродолжительность: 01:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915C04AD585B0BFD759C233D32865F47F5340D21
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256733   (351982) от 23.10.2018
+
+Константин Шереметьев | Умничка. Как воспитать талантливого ребёнка (2015) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс необходим всем, у кого уже есть дети, кто ещё только собирается их завести и кто участвует в воспитании. Вы узнаете массу ценнейшей информации и практические советы автора, как вырастить и воспитать ребёнка по-настоящему счастливым, здоровым и талантливым.Жанр: Саморазвитие 08:39:11Продолжительность: 08:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB50E0A89CFF17D9F9D411CC269F517D8D7232C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256716   (351896) от 23.10.2018
+
+VA - Chill A Tropical Delight (2018) [MP3|320 Kbps] <Chillout, Downtempo, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_351896.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jens Buchert - Gravity
+002. Koda - Mikis (Original Mix)
+003. Lionel Indies - Rose (Original Mix)
+004. Aether - Flower In Winter(   Читать дальше...   )Жанр: Chillout, Downtempo, AmbientПродолжительность: 11:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A77121FCF34A2DCCC38A2D53E061936C0546E6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

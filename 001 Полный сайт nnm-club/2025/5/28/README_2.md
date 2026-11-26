@@ -1,0 +1,566 @@
+###  Публикация: 1799542   (16543) от 28.05.2025
+
+Видеть / See (2019) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit] (сезон 1, серии 1-8 из 8) Пифагор
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16543.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далёком будущем человеческая раса полностью лишилась зрения. Чтобы выжить, людям пришлось найти новый способ сосуществовать, строить и добывать пищу. Всё меняется, когда в семье бесстрашного воина Бабы Восса рождаются зрячие близнецы. Их появление рискует нарушить хрупкий баланс нового мира и ввергнуть успокоившуюся цивилизацию в хаос.Производство: США / Chernin Entertainment, Endeavor ContentЖанр: фантастика, боевик, драмаРежиссер: Андерс Энгстрем, Фред Туа, Френсис ЛоуренсАктеры: Джейсон Момоа, Сильвия Хукс, Xeра Хильмар, Кристиан Камарго, Арчи Мадекве, Неста Купер, Элфри Вудард, Иден Эпштейн, Оливия Ченг, Ядира Гевара-Прип и др.Перевод: Дублированный (Пифагор)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full, SDH), английские (Full, SDH), украинские (Forced, Full)Продолжительность: ~00:58:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DDEFA32172ED0A642EA4503E79FE4C3E500935
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799539   (16542) от 28.05.2025
+
+Мисс Остин / Miss Austen (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 4) TVShows
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16542.jpg" />
+</div>
+
+
+###  Подробнее
+
+1830 год. Кассандра уже 13 лет живёт в Чотон-коттедже одна после смерти своей сестры Джейн Остин. Однажды ей приходит известие о тяжёлой болезни старого знакомого – преподобного Фаула. Она без предупреждения едет его навестить, преследуя свою тайную цель. Кассандра хочет найти все письма Джейн, которые та писала покойной жене викария, чтобы они не попали в чужие (   Читать дальше...   )Производство: Великобритания, США / BBC Studios, PBS Masterpiece, Bonnie ProductionsЖанр: мелодрама, драмаРежиссер: Эшлин УолшАктеры: Кили Хоуз, Пэтси Ферран, Роуз Лесли, Синнове Карлсен, Альфред Энох, Филлис Логан, Макс Айронс, Калам Линч, Кевин МакНолли, Джессика Хайнс, Миррен Мак, Клер Фостер, Феликс Скотт, Ив Понсонби, Хьюберт БёртонПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DF3ECD91218EA50A3AF391AD2CD2405D3230A1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799577   (16538) от 28.05.2025
+
+Jeff McMillan - Being Bad Feels So Good (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blues Night (3:47)
+02.  Ten Twenty Blues (4:02)
+03.  Boogieman Blues (5:10)
+04.  Bag of Bones (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E1FECB27B04E1B1B4821338D4B5DBDA894AD24
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799582   (16537) от 28.05.2025
+
+Pepe Bueno & os Estranhos - Confissoes e Outros Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Diablues (3:20)
+02.  Denny Caldeira - Atrás do Pôr do Sol (3:12)
+03.  O Blues e a Prancha (4:06)
+04.  Real Valor (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD258F4DBB726C66EFE012C79BDC03A184CC9898
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799570   (16536) от 28.05.2025
+
+Atrophy - Socialized Hate, Violent By Nature (2022) 2 x CD, Compilation, Remastered [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16536.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Socialized Hate:
+1-1 Chemical Dependency 4:07
+1-2 Killing Machine 3:47
+1-3 Matter Of Attitude 3:25(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6241BCD79C15FA51D4ED1CFD97408E47CDEF1BF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799583   (16535) от 28.05.2025
+
+Radio One Experience - Free Spirit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Before You Accuse Me (3:50)
+02.  Wind Cries Mary (3:38)
+03.  Red House (3:45)
+04.  Same Old Blues (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87E63E8A6C918D2B43A31AE322F2CF31EF3D707
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799575   (16534) от 28.05.2025
+
+Henrik Sundqvist - Thoughts Of Sand (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't Fall Backwards (4:12)
+02.  Thoughts Of Sand (5:16)
+03.  Let it Go (3:49)
+04.  When Everything (5:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497D7C7B4089EB7A29B38461508869BC6F0423C8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799585   (16533) от 28.05.2025
+
+Richard Cagle & the Voodoo Choir - Zia Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dance Dance Dance (3:34)
+02.  Knocking Me Down (3:58)
+03.  Hello Sunshine (2:56)
+04.  Downtown Groove (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044150AEB369635A9DA50A22961B60CCF33A2733
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799589   (16532) от 28.05.2025
+
+The Mat Day Band - The Mat Day Band (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Greg Coulson - No One Else To Blame (4:47)
+02.  Throne Of Glass (7:35)
+03.  Travelin' Man (4:21)
+04.  Fooled (7:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655B14BBE4580E5C32859138A061E03123E0E3E8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799581   (16531) от 28.05.2025
+
+Matt Schofield Trio - Many Moons, Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Can't Catch My Breath (5:38)
+02.  Any Questions (5:59)
+03.  Shoe On The Other Foot (5:26)
+04.  Measure Of A Man (7:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7971C5FAB5A12394B120CC7E9FF247C09EEDB3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799541   (16530) от 28.05.2025
+
+НХЛ. Кубок Стэнли 2025. Запад - Финал. 4-й матч. Даллас Старз - Эдмонтон Ойлерз (27.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16530.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 мая 2025, среда. 03:00 МСК, 1/2 финала. 4-й матч. Стадион: Роджерс Плэйс (Эдмонтон, Канада), 18 347 зрителей (98% при вместимости 18 641)
+Главный судья: Крис Руни (Бостон, США); Главный судья: Дэн О'Рурк (Калгари, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада); Линейный: Райан Дейзи (Мансфилд, США)Телекомпания: Setanta Sports 2Жанр: Спорт, хоккейЯзык озвучки: Русский, английскийПродолжительность: 02:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF42D766787754BD698BB26FA0693EAFAA14092
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799591   (16529) от 28.05.2025
+
+Wreckless James - Train of hurt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Train of hurt (3:32)
+02.  On the one (2:52)
+03.  Crying Out Loud (4:39)
+04.  Mobhanded (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E14D45267A4763743705C0255FF4F3790A67B2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799491   (16528) от 28.05.2025
+
+ЛихорадкА - Смысловые Диссонансы (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свет (3:24)
+02. Темные Звезды (3:52)
+03. Моя Вселенная (4:12)
+04. Ночь Умрет (5:46)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE967E451D81218631DAFF230DEB7E6F14D1FE8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799515   (16527) от 28.05.2025
+
+Duke Ellington - Ellington Uptown / The Liberian Suite / Masterpieces By Ellington (1947 - 1952) 2CD, 2018, Poll Winners Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mood Indigo [15:32]
+02. Sophisticacted Lady [11:33]
+03. The Tattooed Bride [11:48]
+04. Solitude [8:30](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56146571442DF973359DD15FFB7F893CAA947851
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799573   (16526) от 28.05.2025
+
+Early Times & the High Rollers - Fallen Angels (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walk out on Me (3:09)
+02.  Pistol Under My Pillow (3:25)
+03.  Bedroom Eyes (3:36)
+04.  Papa Died & Left Me (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CA8A3CAACB65F1B6E3E92838A11BBB095AC01C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799587   (16525) от 28.05.2025
+
+Southbound Snake Charmers - Bonnie vs Clyde (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bonnie vs Clyde (3:31)
+02.  Flying High (3:07)
+03.  When the Lights Go Down (3:43)
+04.  On My Trail (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB72A6DB7FFFA9E36C88DD3FF2EAD8D50CF45B6D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799548   (16524) от 28.05.2025
+
+Осторожней, моя милая / Beware, My Lovely (1952) BDRip [H.264] [EN / RU Sub]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16524.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре внимания фильма запуганная вдова, оказавшаяся в ловушке одна в своём доме в спальном квартале вместе с пугающим, несущим угрозу незнакомцем, который, по всей видимости, сумасшедший и который колеблется между непродолжительными актами доброты и проявлениями убийственных намерений...Производство: США, Filmakers, TheЖанр: нуар, драма, криминалРежиссер: Гарри ХорнерАктеры: Ида Люпино, Роберт Райан, Тейлор Холмс, Барбара Уайтинг, James Willmas, О. З. Уайтхед, Д. Поллок, Брэд Морроу, Джимми Мобли, Шелли Линн АндерсонПеревод: субтитрамиЯзык озвучки: английскийСубтитры: русские (e-ball), английскиеПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16A880F65A1E5C9EBEC365ED2A73B411324B234
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799505   (16523) от 28.05.2025
+
+Earmake - Cosmic Hero 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <RetroWave, Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnum Opus
+02. Morior Invictus
+03. Supernova
+04. Whispering Eons(   Читать дальше...   )Жанр: RetroWave, Synthpop, SpacesynthПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D3D3E0324258C195573ADCE3144C9086C5A649
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799497   (16522) от 28.05.2025
+
+Как избавиться от мачехи / Виктория должна умереть / Victoria ma do (2024) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отношения детей Николая с новой мачехой не заладились с самого начала. Возлюбленная отца раздражала Хенрику и Хедвига своими нововведениями и правилами. Насмотревшись комиксов, брат и сестра видят единственный способ избавиться от Виктории наверняка — нанять киллера. Но «на помощь» приходит иммигрант Карл, который превращает семейную драму в комедию...Производство: Норвегия / P? Film ASЖанр: комедия, семейныйРежиссер: Гуннбьорг ГуннарсдоуттирАктеры: Ине Марие Вильман, Мортен Свартвейт, Аньет Г. Хааланд, Анетте ХоффПеревод: профессиональный одноголосыйЯзык озвучки: русский, норвежскийСубтитры: английскиеПродолжительность: 01:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F514383B81D091108FC05D42FEE8506456E0E5D
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799553   (16521) от 28.05.2025
+
+Suzi Quatro - If You Knew Suzi… (1978) 2017 Remaster, Chrysalis Records [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/002/save_picture_16521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Change My Luck
+02. Tired Of Waiting
+03. Suicide
+04. Evie(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2FDA79CADCCE598F6A8B9D55D3C0A1F9E9A8DB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

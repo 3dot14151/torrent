@@ -1,0 +1,727 @@
+###  Публикация: 1032016   (646055) от 07.07.2016
+
+Григорий Данилевский | Царь Алексей с соколом. Семнадцатый век (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_646055.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей миниатюре «Царь Алексей с соколом» он описывает царскую охоту. Сокол с руки царя сорвался в погоне за цаплей и вместе с добычей упал в какой-тo огород, в неизвестном месте, куда, разгоряченные азартом, забрели охотники. Конь царя забрался на гору и уперся, фыркая, в обрыв.
+«Прямо против обрыва, над которым он стал, между безлистых еще деревьев сада возносились (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D076E13570636F0E0B4F952977BF1A30CD72F9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032539   (646054) от 07.07.2016
+
+VA - Trance Sensations (The Hottest Trance Hits for the Dancefloor) (2016) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_646054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Meade - Sacred Spaces (7:26)
+02. Rex Brandtner & French Skies - Exorkismos (8:48)
+03. I5land - Paradise Lost (Andy Woldman & DJ T.H. Remix) (8:02)
+04. Vechigen & Lisaya - Do Not (Trance Mix) (7:39)(   Читать дальше...   )Производство: RexxBeatzЖанр: TranceПродолжительность: 01:20:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0236C0ACE7A37BDF1CF10EA595CBD4A627EFC0F6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032074   (646053) от 07.07.2016
+
+Миссия Rosetta завершится 30 сентября 2016 года столкновением космического аппарата с поверхностью кометы 67P
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_646053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миссия Европейского космического агентства (ЕКА) под названием Rosetta, которая заключалась в исследованиях кометы 67P, которая также известна под названием кометы Чурюмова-Герасименко, приближается к моменту ее завершения, который случится спустя 12 лет после ее начала. Руководство ЕКА назначило 30 сентября 2016 года датой, когда орбитальный космический аппарат (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032424   (646052) от 07.07.2016
+
+The Amorettes - White Hot Heat (2016) [MP3|320 Kbps] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_646052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Batter Up
+02. Let The Neighbours Call The Cops
+03. Come 'n' Get It
+04. Roll(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B60DA78EEDCB443EE581DA5FD12C185C5DB37C7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032532   (646051) от 07.07.2016
+
+Human Error - Intersection (2016) [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_646051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fearless (feat MC Shot)
+ 02. Anger
+ 03. My Nation
+ 04. Lose My Soul (feat Sisley)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA075F12F817F084F358F818B8E321A4091023C6
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032269   (646050) от 07.07.2016
+
+VA - The Best - In Music We Trust (2016) [MP3|320 Kbps] <House, Electro House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_646050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blazetools -  Delta (Original Mix) 5:37
+02. Captain Jack -  Say Captain Say Wot 2015 (Blaikz & Dhsb remix) 5:15
+03. Beth -  Don't You Worry Child (Charming Horses Remix) 4:59
+04. Finger & Kadel -  Paxi Fixi (Original Mix) 5:07(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 08:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8273ED27180924DEE78BDF8A7E6633FD22FA6BB2
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032523   (646049) от 07.07.2016
+
+Dr Meaker - Dirt & Soul (2016) [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_646049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep in My Heart (feat. Lorna King)
+ 02. Right Back (feat. Sian Evans)
+ 03. Wanna Feel Love (feat. Yolanda)
+ 04. Remedy (feat. Romaine Smith)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD0FF2F9FA60A98F958D9FE3C2BD7B17DF79B80
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032178   (646048) от 07.07.2016
+
+Alina (Wegel) - 3 альбома (2003-2005) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_646048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Увела чужого парня я
+02. Холодно
+03. Не таи, скажи
+04. Волшебная страна(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC43E5E3F4889726D824A9DFB31329BD51D6092
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032432   (646047) от 07.07.2016
+
+Ежи Пильх | Безвозвратно утраченная леворукость (2008) [FB2, RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_646047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежи Пильх является безусловным лидером издательских продаж в категории немассовой литературы. Его истинное амплуа - фельетонист, хотя пишет он и "традиционную" прозу. Жанры под пером Пильха переплетаются, так что бывает довольно трудно отличить фельетон от прозы и прозу от фельетона. "Безвозвратно утраченная леворукость" - сборник рассказов-фельетонов. (   Читать дальше...   )Жанр: Современная художественная проза, Современная зарубежная прозаПеревод: Татьяна ИзотоваФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D76ED622BC0E4CC03A60078C48C34338B22FB7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032540   (646046) от 07.07.2016
+
+Freqax - Meant To Believe (2016) LP [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_646046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meant to Believe (Intro)
+ 02. Dark Times
+ 03. Life (with Instinkt)
+ 04. We, The World(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EADC35098B1EC3C68A0C643603383C7BEE3886A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032507   (646045) от 07.07.2016
+
+TC - Unleash The Wolves (2016) LP [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_646045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start A Riot
+ 02. Have You
+ 03. Next Hype (ft. Jakes)
+ 04. Storm Brew (ft. Stylo G)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D16263CE7F70E562DC24B58FA88FDB190A3A0B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032085   (646044) от 07.07.2016
+
+VA - Psychedelic Gatherin (2016) [MP3|320 Kbps] <Trance, Psychedelic, Psy Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_646044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yner -  Contradictory Nightmare (Original Mix) 7:26
+02. Sensitive Seeds -  Inside A Simulation (Original Mix) 6:33
+03. Principles of Flight -  Peintre Sonore (Original Mix) 8:32
+04. Abstract Layers -  Permafrost (Original Mix) 9:09(   Читать дальше...   )Жанр: Trance, Psychedelic, Psy TranceПродолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2903DA3E690AA24E10DB1DB378C38C77D37EBB1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032427   (645963) от 07.07.2016
+
+Гарольд Роббинс | Воспоминания минувших дней (1995) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Характерные черты творчества Роббинса — захватывающий сюжет, динамичное развитие событий, обостренное внимание к проблемам. Особую увлекательность придают постоянно присутствующие элементы детектива. В настоящем издании представлен малоизвестный роман американского писателя.Жанр: Любовный романПеревод: Д. МишинФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB15F138611CD1EEA273DD0BEA4EC76C76823D02
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032334   (645962) от 07.07.2016
+
+Palaye Royale - Boom Boom Room (Side A) (2016) [MP3|320 Kbps] <Glam Rock, Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Feel Quite Right
+02. How Do You Do?
+03. My Youth Generation
+04. Mr. Doctor Man(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Alternative RockПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCBEA8A357F662003CA0D653DF00B73E618C288
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032143   (645961) от 07.07.2016
+
+Георг Борн | Дон Карлос (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645961.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе «Дон Карлос» автор повествует об истории дона Карлоса Младшего — претендента на испанский престол.
+Георг Борн - величайший мастер повествования, в совершенстве постигший тот набор приемов и авторских трюков, что позволяют постоянно держать читателя в напряжении. В его романах всегда есть сложнейшая интрига, а точнее, такое хитросплетение интриг политических (   Читать дальше...   )Жанр: Исторический романПродолжительность: 47:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488487D27847591BD620AD1737667BC1A325412E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032493   (645960) от 07.07.2016
+
+Siba.pro - Discography 8 Releases (2006-2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Neo-Classical, Glitch>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Planet (03:43)
+ 02. 10000 ly (04:17)
+ 03. StarHunter (03:28)
+ 04. Black Sea (03:51)(   Читать дальше...   )Жанр: Downtempo, Ambient, IDM, Neo-Classical, Trip-Hop, Glitch •Продолжительность: 00:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5794DE8D0C93AFCF3BAB96A80CD85402130080B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032440   (645959) от 07.07.2016
+
+Симон Кармиггелт | Несколько бесполезных соображений (1985) [FB2, RTF]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга знакомит читателя с творчеством крупнейшего нидерландского прозаика старшего поколения, мастера короткого рассказа. Миниатюры Кармиггелта повествуют о заботах и чаяниях простых людей. Простые и короткие, веселые и грустные, его маленькие рассказы более 40 лет радовали нидерландцев.Жанр: Короткие рассказы, Юмористическая проза, Нидерландская литератураФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C7CAABAC79AA43DFD93FA876C3A818F47CDB3F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031763   (645958) от 07.07.2016
+
+Жан-Люк Банналек | Курортное убийство (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окрестности городка Конкарно в Бретани издавна любимы художественной богемой, – еще бы, ведь там когда-то жили и творили великие импрессионисты…Но на этот раз кто-то использовал искусство совсем иного рода, – искусство убивать и оставаться незамеченным. Кому же помешал безобидный старичок Пьер-Луи Пеннек, любимец останавливавшихся в его отеле «Сентраль» парижских (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6634A32667DD1B24ED279B42431D2862538BE99
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032224   (645957) от 07.07.2016
+
+Ромэн Сарду | Никому не уйти (2008) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он преступник нового типа — умный, хитрый, неуловимый. Уже несколько лет агенты ФБР охотятся за ним, но все их усилия безуспешны. У него нет своего почерка, он не «подписывается» под совершаемыми преступлениями, потому что его преступления абсолютно не похожи друг на друга.
+Кто же поставит точку в кровавой истории, которую в буквальном смысле слова пишет убийца, (   Читать дальше...   )Жанр: ДетективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C37D3DDAC8FC595C986C9B623E93E20C8705693
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032228   (645956) от 07.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 76 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Boys - My Love ( Extended Remix 1989 )
+02. Kylie Minogue - Got To Be Certain ( 1988 )
+03. Blue System - Deja Vu ( 1991 )
+04. Ace Of Base - Don't Turn Around ( U.S. Version 1993 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58983F750AB8A924F8C443C9AEF7B445EBBE527
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032132   (645955) от 07.07.2016
+
+VA - Wake up Tunes (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocketpunk - The Warning Wheel
+02. Dr. Ruth - Piano Sonata (Benny Knox Remix)
+03. Circuito Zeta - En Directo
+04. Mario Sacco DJ - Frenesia(   Читать дальше...   )Жанр: HouseПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271601A87336B820570F192F58C01C90AE16C81E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032278   (645954) от 07.07.2016
+
+Кристина Ульсон | Маргаритки (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следственной группе Алекса Рехта предстоит очередное дело: в центре Стокгольма найдены застреленными пожилой пастор и его жена. Все улики указывают на то, что священник и убил жену, после чего покончил с собой, но так ли это? В подпольной квартире уже которые сутки заперт Али, нелегальный иммигрант из Ирака. Неизвестные, которые помогли ему совершить побег, теперь (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8144F07DDD87E9EF431A91CBB0649090EF3959
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032105   (645953) от 07.07.2016
+
+Григорий Федосеев | Последний костер (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть "Последний костер" рассказывает об удивительной жизни и трагической смерти героя книг Г.Федосеева - его постоянного спутника и проводника - эвенка Улукиткана. Действие повести происходит в Восточной Сибири в 50-х годахЖанр: Советская классическая прозаПродолжительность: 19:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C520E45FFD8BEADEF288D436705B5966F3ECECE7
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032322   (645952) от 07.07.2016
+
+The Dead Daisies - The Dead Daisies (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Gonna Take Time
+02. Lock'n'Load (featuring Slash)
+03. Washington
+04. Yeah Yeah Yeah(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DEF41BE823B3EF37BD7AD573F0709A7E58A390
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032497   (645951) от 07.07.2016
+
+ХаРа - Мерячение (live in studio) (2016) [MP3|192 Kbps] <Ethnic Acoustic Rock, Trance>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Исходил
+02. Долушка
+03. Восток
+04. Ой, да мы(   Читать дальше...   )Жанр: Ethnic Acoustic Rock, TranceПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D3A5040112E7809119E55B2B86DF9BE6CC2AD8
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032091   (645950) от 07.07.2016
+
+VA - Progressive Goa Trance Vol. 2 (2016) [MP3|320 Kbps] <Trance, Psy Trance, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_645950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolock -  Proggy Froggy 9:02
+02. Flucturion 2.0 -  Paper-layered Panorama 6:46
+03. Inkel -  Pulsating Vibe 7:06
+04. Nature & Norma Project -  Digital Age 7:29(   Читать дальше...   )Жанр: Trance, Psy Trance, Goa TranceПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE7CB681515AE10F3AFB90A9F0929A3462A7CD9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

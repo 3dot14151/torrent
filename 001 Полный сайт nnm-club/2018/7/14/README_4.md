@@ -1,0 +1,728 @@
+
+###  Публикация: 1235819   (556619) от 14.07.2018
+
+Ossian - Kuldetes (2008) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ebredés (intro)
+02. A Szamuzott visszater
+03. A Veletlen
+04. Uj Aranykor(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68B03532AF5A39126AD1946584C41BBEE66FEAA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235863   (556618) от 14.07.2018
+
+Benny Goodman - Smooth Operator (1930-e - 1960-e) 2005, Weton-Wesgram [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_556618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Dance [2:36]
+02. Flying Home [3:18]
+03. Good Enough To Keep [2:56]
+04. A Smo-o-oth One [3:20](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235439   (556617) от 14.07.2018
+
+Николай Помяловский | Мещанское счастье. Молотов (1954) [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556617.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мещанское счастье» и «Молотов» — самые известные произведения писателя, представляют собой дилогию, в центре которой — повествование о судьбе разночинца Молотова. Произведения затрагивают многие проблемы социального характера: проблема воспитания, повествуют о женской эмансипации, об отношениях разночинцев и дворянства, но основной проблемой является осмысление (   Читать дальше...   )Жанр: История, искусство, прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76830898F8CEB5BF074939ECF8227DC3B69C83AA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235844   (556616) от 14.07.2018
+
+Я. А. Иоффе | Блокада и народное хозяйство в мировую войну (1929) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель настоящей работы — привлечь внимание читателей к наиболее острым вопросам нашей экономической обороноспособности описанием той огромной роли, которую сыграла хозяйственная война и ее наиболее грозное оружие — экономическая блокада — во время мировой войны.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADFD2EE60CFF7CE43B7106DA826A5022AEF9703
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235774   (556615) от 14.07.2018
+
+Hothouse Flowers - People (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock, Folk Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Sorry [0:03:36.02]
+02. Don't Go [0:03:49.18]
+03. Forgiven [0:03:22.22]
+04. It'll Be Easier In The Morning [0:03:35.55](   Читать дальше...   )Жанр: Pop Rock, Folk Rock, Blues RockПродолжительность: 00:51:58.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6447D03DC4201F54CA5E7C5D7E0FB45043C558AA
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235846   (556614) от 14.07.2018
+
+В. А. Быстрянский | Преступление в прошлом и будущем (1921) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_556614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преступление самым тесным образом связано с классовым обществом и его порождением — государством. Всякое государство есть организация насилия, господства одного класса над другим, — необходимость подобной организации вытекает из распадения общества на классы, со взаимно противоположными интересами. Для охраны своего господства над эксплуатируемыми классами, командующий (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235895   (556613) от 14.07.2018
+
+Axcraft - Dancing Madly Backwards (1974) Reissue, 1999, Akarma [MP3|320 Kbps] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. So Far Away
+2. Astral Love
+3. 727 Suite
+4. Firewheel(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AAA34FD2D7FB9643E1B872B00F62BD34D74FD1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235703   (556612) от 14.07.2018
+
+VA - Transcentence: Psychedelic Compilation (2018) [MP3|320 Kbps] <Psychedelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556612.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Astrix - Sahara
+002. Braincell - Flying Saucers
+003. Mina - Black Or White
+004. Symphonix - Body Effect(   Читать дальше...   )Жанр: PsychedelicПродолжительность: 12:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC8116683B9E3AB6EA12CD978E3302DBD57F48A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235813   (556611) от 14.07.2018
+
+VA - German Top 50 Official Dance Charts 13.07.2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_556611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Profesor - Bella Ciao (HUGEL Remix)
+02. Purple Disco Machine - Dished (Male Stripper)
+03. Shakedown - At Night (Purple Disco Machine Remix)
+04. Energy 52 - Cafe Del Mar (Tale Of Us Renaissance Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 03:00:08
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235951   (556610) от 14.07.2018
+
+Моnо Inс. - Тоgеthеr Тill Тhе Еnd (2017) 2CD [FLAC|Lossless|image + .cue] <Gothic Rock, Darkwave, Synth Gothic>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_556610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Banks Of Eden (3:55)
+ 02. Together Till The End (4:23)
+ 03. Boatman (feat. Ronan Harris) (5:45)
+ 04. Out In The Fields (4:06)(   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Synth GothicПродолжительность: 01:25:24
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235867   (556609) от 14.07.2018
+
+The Running Man - The Running Man (1972) Reissue, 2000, Akarma [MP3|320 Kbps] <Psych-Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556609.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Higher And Higher
+2. Hope Place
+3. Nicholas
+4. Another(   Читать дальше...   )Жанр: Psych-Prog RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D2A1DF2A506DA6407D41440DE914A832FA15AF
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235862   (556608) от 14.07.2018
+
+VA - Schneeweiss 8 (Presented by Oliver Koletzki) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Flu - Mygut (Solomun remix) [08:22]
+02. Oliver Koletzki - A Tribe Called Kotori (Koletzki's Woodfloor version) [06:55]
+03. Bloody Shelby Feat. Lazarusman - Ready [07:53]
+04. Rampa - Fluke [06:39](   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 03:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9D51D32E736DB2E6A4BD797C987B84756C1C4E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235858   (556607) от 14.07.2018
+
+Лорен Оливер | Хана. Аннабель. Рэйвен. Алекс [сборник] (2014) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести из цикла «Делириум».
+Впервые на русском языке!
+Долгожданная новинка для всех поклонников трилогии «Делириум»!
+Необычное возвращение в мир будущего, где любовь признана опасным заболеванием. Вы узнаете о том, как жили герои трилогии до встречи с Линой.(   Читать дальше...   )Жанр: Зарубежная фантастика, Зарубежные любовные романы, Любовно-фантастические романы, Социальная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C5DB5E08D11D0051D371466569C8B3A835AF1E
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235871   (556606) от 14.07.2018
+
+VA - The Official UK Top 40 Singles Chart 13.07.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Years & Years - If You're Over Me
+02. George Ezra - Shotgun
+03. Clean Bandit feat. Demi Lovato - Solo
+04. Jonas Blue feat. Jack & Jack - Rise(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388192EC27F03C53866F1C806399BED7C2089650
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235749   (556605) от 14.07.2018
+
+VA - A State Of Deep III (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Progressive House, Melodic Techno, Neotrance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_556605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antti Rasi - Liita Ja (Speaking In Tongues Remix) [8:38]
+02. Dale Middleton - Night Stories [8:17]
+03. Florian Kruse, Hendrik Burkhard - We Own The Night (John Monkman Remix) [7:14]
+04. Haptic & Mattia Pompeo - Resilient [7:24](   Читать дальше...   )Жанр: Progressive House, Melodic Techno, NeotranceПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235869   (556604) от 14.07.2018
+
+VA - German Top 100 Single Charts 13.07.2018 (2018) [MP3|320 Kbps] <Pop, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556604.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bushido - Für Euch alle (feat. Samra & Capital Bra)
+002. Dynoro & Gigi D'Agostino - In My Mind
+003. El Profesor, Hugel - Bella ciao (HUGEL Remix)
+004. Clean Bandit - Solo (feat. Demi Lovato)(   Читать дальше...   )Жанр: PopПродолжительность: 05:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD98B68AB6DC9D563556DE093ADD922B589CA9C4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235953   (556603) от 14.07.2018
+
+Graham Bonnet Band - Live… Here Comes The Night (Japanese Edition) (2017) [WavPack|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes Of The World
+02. All Night Long
+03. S.O.S.
+04. Stand In Line(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91CCF9B9C87FB6C9039C97E5769461C8F1E244B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235850   (556602) от 14.07.2018
+
+Филис К. Каст | Предсказание богини (2018) [FB2]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_556602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александра Паттон прекрасно себя чувствовала в прерии Аризоны. Во всяком случае, здесь ее не так сильно донимали призраки. Она и в мыслях не держала покинуть эти места, когда ей предложили отправиться в древнюю Британию и отыскать священный талисман Боудикки. С помощью талисмана люди защитят мир от разрушения. Необыкновенный дар – видеть души умерших, – по мнению (   Читать дальше...   )Жанр: Зарубежное фэнтези, Любовное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235852   (556601) от 14.07.2018
+
+Филис К. Каст | Богиня по крови (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Богиня».
+
+С помощью бога тьмы Рианнон освободилась из плена древнего дерева, в которое была заключена за все зло, что она совершила в обоих мирах. Родив дочь, которая являла собой великую силу добра, Рианнон неожиданно опомнилась и раскаялась в том, что натворила. В это же время в параллельном мире та, что была как две капли воды похожа на Рианнон, (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтези, Любовное фэнтези, ПопаданцыПеревод: В. П. АршанскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C48D272F0218ABC6282BC0A3C230A278903B96C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235925   (556600) от 14.07.2018
+
+Взлёты и падения: Конец неба / HiGH & LOW the Movie 2: End of SKY (2017) HDRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556600.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как банда под предводительством Кохаку потерпела поражение, на территории SWORD воцарилось спокойствие. Которое, впрочем, не было долгим. Очень скоро появились новые жестокие банды: Doubt во главе с Ранмару Хаяси и Prison Gang с главарём Дзэси. Не за горами день, когда развернётся новая битва за власть.Производство: Япония / HI-AXЖанр: Боевик, драмаРежиссер: Сигэаки Кубо, Цуёси НакакукиАктеры: Акира, Ситаро Акияма, Сё Аояги, Кэндзи Дарвиш, Юя Эндо, Май Хакасэ, Хацунори Хасэгава, Кэисукэ Хорибэ, Ватару Итиносэ, Наоко ИидзимаПеревод: Многоголосый закадровый, любительский (КОЛОБОК)Субтитры: ОтсутствуютПродолжительность: 02:03:42Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8FF18B309ACBA4033E877973623BD05445B4AB
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235924   (556599) от 14.07.2018
+
+Взлёты и падения: Последняя миссия / High & Low: The Movie 3 - Final Mission (2017) HDRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы скрыть коррупцию со стороны правительства, специально обученная для этого группа Kyuryu снова выходитиз тени. Но на их пути встают члены SWORD, которые не допустят преступлений на улицах их города.Производство: Япония / HI-AXЖанр: Боевик, драмаРежиссер: Сигэаки Кубо, Цуёси НакакукиАктеры: Акира, Анарчи, Сё Аоягиб Элли, Юя Эндо, Хацунори Хасэгава, Кэнто Хаяси, Кэисукэ Хорибэ, Ватару Итиносэ, Наоко ИидзимаПеревод: Многоголосый закадровый, любительский (КОЛОБОК)Субтитры: ОтсутствуютПродолжительность: 01:58:04Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE3EEC1B1C06080C0013843719EB6D1AF399296
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235910   (556598) от 14.07.2018
+
+Джейсон Арнопп | Последние дни Джека Спаркса (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556598.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ваших руках книга, работая над которой умер Джек Спаркс – гонзо-журналист и атеист, пустившийся в охоту за сверхъестественным. Спаркс смеется над дьяволом. Он не допускает и мысли, что мистические проявления могут быть реальны. Его цель – разоблачить фальшивое видео о призраке, которое неизвестные загрузили на его страницу в соцсети. Но в жизнь Спаркса уже вползают (   Читать дальше...   )Жанр: Мистика, Триллеры, УжасыПеревод: Елизавета ШульгаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA359B53BB90FEE9EBD8BFAF4345B5EDB9B3CF3
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235864   (556597) от 14.07.2018
+
+Кори Доктороу | Все пройдет… (2018) [MP3]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_556597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монах Ордена созерцательных аналитиков, порвавший с внешним миром шестнадцать лет назад, вынужден выйти за пределы обители, дабы найти своего товарища, исчезнувшего после создания Аномалии с некорректной контрольной суммой.…Жанр: ФантастикаПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235974   (556596) от 14.07.2018
+
+VA - Highway 100 Initiative Melodies (2018) [MP3|320 Kbps] <Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_556596.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. UDM - Music For Life (Extended Mix)
+002. SoundEdit - Velocity (Fresh Code Remix)
+003. Anna Lee & FloE - Cyclone (Alex Wright Remix)
+004. Aly & Fila With Emma Hewitt - You & I (Extended Club Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 10:33:36
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235497   (556595) от 14.07.2018
+
+VA - Billboard Hot 100 Singles Chart 14.07.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Drake, Big Freedia, 5thward Weebie - Nice For What
+002. Drake - Nonstop
+003. Cardi B, Bad Bunny & J Balvin - I Like It
+004. Drake - God's Plan(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D04152A087E25B1CC6D9890BBC9F3F0F64F07A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235823   (556594) от 14.07.2018
+
+Татия Суботина | Лунная ведьма (2018) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_556594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, ведьмы не умеют любить. Наглая ложь! Еще как умеют! Только вот не каждая согласится слепо довериться опасному чувству, боясь потерять собственное сердце.
+Ниэла однажды сглупила. Она влюбилась не в того колдуна и в наказание была лишена магии. Десять лет страданий, бесчестия и презрения от ковена, и вот лунной ведьме выпал шанс вернуть утраченное. Воспользуется (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC003E2B8DDCA6C3BEB3FCCF7B167CDE6AFE728
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

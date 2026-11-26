@@ -1,0 +1,706 @@
+
+###  Публикация: 1852669   (1056164) от 08.02.2026
+
+Роберт Шекли | Дипломатическая неприкосновенность (2025) [MP3, ReadMic]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Землю посетил посол некоей межгалактической империи с предложением для землян войти в её состав. Однако предложение выглядит скорее как требование и ультиматум. "Гостем" приказано заняться группе учёных и инженеров во главе с полковником Серси.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65623D6E2D855CE4867E925992233C6558D2E18A
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852529   (1056163) от 08.02.2026
+
+Rigooni - Serenade (2020) [FLAC|Lossless|tracks] <Deep House, Organic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Blue Rose For Daniele 09:03
+02. Serenade 09:02
+03. Eudaimonia 10:08
+04. August Tears 08:25Жанр: Deep House, Organic HouseПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83ACF3BB0C7915E3435DD66967C8860E3392551
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852672   (1056162) от 08.02.2026
+
+Проекты - VideoHive - Cinematic Slideshow - 61687095 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinematic Slideshow — это глубокий, эмоциональный и вдохновляющий проект для After Effects, который превращает набор разрозненных кадров в полноценный кинематографический опыт. Плавные движения камеры, элегантная работа с текстом и легкий эффект параллакса создают атмосферу большого кино, где каждый снимок обретает вес и значимость.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1291EC92186D9795197ACC8DBD765D48562DEBB0
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852676   (1056161) от 08.02.2026
+
+Icecream Photo Editor Pro 1.53 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Photo Editor – фоторедактор и менеджер фотографий для Windows. С легкостью редактируйте свои фотографии как профессионал: добавляйте текст и изображения, обрезайте и изменяйте размер, добавляйте фильтры, создавайте коллажи и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86740D1BB8E65F5BE6A54A2C5AE3F08DD962C542
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852678   (1056160) от 08.02.2026
+
+Фоны - YouWorkForThem - Abstract Liquid Backgrounds Graphics - E16423 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Украсьте свои проекты всего за пару кликов с помощью коллекции из 8 высококачественных фонов в формате JPG . Используйте их в макетах или применяйте к фотографиям, изображениям, фирменному стилю, снимкам для портфолио, презентациям, баннерам и т.д.Формат: JPGРазрешение файлов: 4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5889B01363BE06FA6136E17D0A67E860AAC3BF9
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852591   (1056159) от 08.02.2026
+
+Ai - No name compilation part 48 Soulful Ballad (2026) [MP3|320 Kbps] <Soulful Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Want You Tonight
+02 - Wise Love
+03 - I Heard You Die in My Dream
+04 - Baby, You're Slipping Away(   Читать дальше...   )Жанр: Soulful BalladПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C4F5248B39411184F98449FAD0BD5E4B642B01
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852489   (1056158) от 08.02.2026
+
+VA - Мелодии и ритмы (Russian Edition) (mixed by Dj V) (2026) [MP3|320 Kbps] <CLub House, Dance, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Моя Мишель x Casso & D-Block Europe - Зима в сердце (Elmy Edit)
+02-BEARWOLF - Посмотри в глаза (Solomon08 Remix)
+03-Время И Стекло x Mind Electric - Имя 505 (Pitchugin Mashup)
+04-Минаева vs Andy Shik & Silver Ace - Шоколадка (DJ Baur VIP Edit)(   Читать дальше...   )Жанр: CLub House, Dance, PopПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F74DD488A8DE555BF18FEE064984022EA8E553B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852466   (1056157) от 08.02.2026
+
+Ai - Russian Covers Part 4 (2026) [MP3|192 - 320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ai - El Condor Pasa  (Полет Кондора)
+02 - K-Pop - Heart Attack (Бьётся Сердце)
+03 - Radůza - Есть Вещи Которые
+04 - Ai - Дом Восходящего Солнца (Русский Кавер)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA66FC55BAD86140DF7EAC8DFD56F25CB37094D1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852437   (1056156) от 08.02.2026
+
+VA - Euro Hits 2022 (2022) [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056156.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:36]. 001-Swedish House Mafia - Calling On
+[2:22]. 002-Gran Error & Elvana Gjata & Antonia - Clap Clap
+[2:52]. 003-Inna & Stefflon Don - Yummy
+[3:03]. 004-Doja Cat - Vegas(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 06:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BF74F959027CD95D1EC8EFA94877D5BF996CE4
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852518   (1056155) от 08.02.2026
+
+Пропавшая Джой / Потеряшка Джой / Lost Joy (2025) WEBRip [H.264/1080р] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейн и её парень Джон отдыхают на природе. Их отношения оказываются под ударом, когда она сталкивается со странными видениями и звуками, а он их не замечает. Джейн начинает сомневаться в своей адекватности, а Джон оказывается слишком тревожным.Производство: США / Artistic Endeavors, True ImaginationЖанр: триллер, драма, детективРежиссер: Джордан ЛеммленАктеры: Уинтер Бассетт, Джордан Леммлен, Винсент Каталина, Александр Ставроу, Пьер Экладиос, Стивен Янузик, Эми Леммлен, Лэмби Леммлен, Люк Роудс, Стейси СвадишПеревод: Многоголосый профессиональный (IVI)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEB83D9FA66A834DC12FA9014732109221E74FC
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852665   (1056154) от 08.02.2026
+
+Yohan J. Rodriguez | The C# and .NET Interview Compendium. 700+ Questions and Code Examples for Serious Developers (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056154.jpg" />
+</div>
+
+
+###  Подробнее
+
+A practical .NET interview prep guide with hundreds of real-world questions and C# code to help you land your next job.
+Master the core concepts. Answer with confidence.
+The C# and .NET Interview Compendium is a 700+ page, question-driven guide to help you crush technical interviews with concise definitions, real-world code, and zero fluff.
+This book doesn’t just (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4634A500717525A40F74FB4476E2271AEB4D96B
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852668   (1056153) от 08.02.2026
+
+Joyce Farrell | Microsoft Visual C#. Introduction to Object Oriented Programming (MindTap Course List). 8th Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Develop strong programming skills needed for professional success with Farrell's MICROSOFT VISUAL C#: INTRODUCTION TO OBJECT ORIENTED PROGRAMMING, 8th Edition. Approachable, clear and straightforward examples and style help you understand structured and object-oriented programming concepts. Master critical principles and techniques that easily transfer to other programming (   Читать дальше...   )Жанр: Object-Oriented Design, Microsoft Programming, Introductory & Beginning ProgrammingЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE6A57E196CFD8C10AA0B8180DC8F5FDD5F5440
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852671   (1056152) от 08.02.2026
+
+Chandradev Prasad Sah | Ultimate Blazor WebAssembly for Web Development. Unlock the Full Potential of Blazor WebAssembly 8.0 and C# to Build High-Performance Web Applications with Ease (English Edi ...
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Empower Your Web Development with Blazor WASM 8.0
+
+Book Description
+Ultimate Blazor WebAssembly for Web Development is your comprehensive guide to mastering the latest advancements in Blazor technology. This book will equip you with the knowledge and skills needed to leverage Blazor Web Assembly 8.0 and C# effectively and seamlessly to enhance the performance of (   Читать дальше...   )Жанр: Microsoft .NET, C# Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Orange EducationФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45530900FA67563CB1675BD9A32C232AC8083EF5
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852673   (1056151) от 08.02.2026
+
+Б. Страуструп | C++11. Язык программирования C++. Четвертое издание (2024) [PDF, DJVU]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет стандарт ISO/IEC 14882-2011 (называемый в обиходе C++11) и призвана помочь программистам быстро и доступно перейти от стандарта С++98 и любых других языков программирования к С++11. Традиционно, как и в предыдущих изданиях, автор демонстрирует свой «фирменный стиль» — эффективные подходы к решению разнообразных задач проектирования и программирования, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БИНОМ-МЕДФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE68159E93F4FA1FC819F1F1865047FF366E7215
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852675   (1056150) от 08.02.2026
+
+Tom Graves, Slade Beard | Doing Enterprise-Architecture. A Maturity-Model Guide to Architecture Development. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enterprise architecture is a set of business practices that connect an organization’s strategy with its management of change. It is concerned with the structure and story of the enterprise, and ensuring that everything across the whole enterprise will work together in the most effective way.
+
+Yet when doing enterprise architecture, what should we do, in what sequence, (   Читать дальше...   )Жанр: Computer Hardware Design & Architecture, Management Science, Enterprise ApplicationsЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4883F3CC89CCE45C29F3449A5D67FAE9025B5B81
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852683   (1056149) от 08.02.2026
+
+VA - National Pop Dance Music Vol.128 (2026) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cyril Martin - Feel The Town (03:00)
+ 002. Dara Kinara - Tak Peduli (03:23)
+ 003. Marebo - Wir Sind Nicht Heilbar (06:08)
+ 004. Gazzarino - Ballerina Cappuccina (01:26)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1724C840F903DC2D3030B45D26E6836B970835
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852519   (1056148) от 08.02.2026
+
+Альберт Санчес Пиньоль | Страхи (Книга 1). Холодная кожа (В пьянящей тишине) (2026) [MP3, Виталий Сулимов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разочарованный в жизни ирландец нанимается метеорологом в навигационную корпорацию и отправляется на далекий антарктический остров, предвкушая скучную жизнь вдали от мира, в обществе одного лишь смотрителя маяка. Но в первую же ночь на остров выходят порождения моря, и добровольное отшельничество оборачивается нескончаемым кошмаром. Что происходит с людьми, когда (   Читать дальше...   )Жанр: Фантастика, триллер, мистикаИздательство: Азбука-АттикусПродолжительность: 07:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E797A09CED1602F4A3C0058CE3F46CD15C37C48F
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852524   (1056147) от 08.02.2026
+
+Альберт Санчес Пиньоль | Страхи (Книга 2). Пандора в Конго (2012) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томас Томсон, молодой писатель, которого нанимают написать роман на основе показаний приговоренного к смерти преступника. Маркус Гарвей обвиняется в убийстве двух англичан, с которыми вместе отправился на поиски золота в Конго. Подозреваемый всё отрицает и винит во всём тектонов, белых двухметровых человекоподобных существ с овальной головой и шестью пальцами на (   Читать дальше...   )Жанр: Фантастика, приключенияИздательство: Нигде не купишьПродолжительность: 14:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2D5843FFED45C5F5BF4CF186F522E4BD165726
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852525   (1056146) от 08.02.2026
+
+Вячеслав Калинин | Северная сага (Книга 2). Белый Кречет (2026) [MP3, Алексей Шмелёв]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никакой мистики, никакой фантастики. Просто главный герой, отчаянный молодой парень с редким славянским именем Ратибор, попал в прошлое. Так бывает. Древняя Русь, варяги, викинги, хузары, печенеги, князья, холопы, бояре, дружинники, купцы и многие другие. Что ждет Ратибора дальше? Удастся ли ему завоевать свое место под солнцем? А тут ведь где-то еще один попаданец (   Читать дальше...   )Жанр: Фантастика, приключения, попаданцыИздательство: ЛитРесПродолжительность: 09:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73DE2292ED7B3BBA97BAD747E75A9E67939B4730
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852540   (1056145) от 08.02.2026
+
+Влада Ольховская | Чёрный Город (Книга 4). Семь Ветров (2026) [MP3, Вячеслав Булавин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истинная зима – страшное время в пустошах. Вьюга стирает привычную реальность, и даже безобидные снежинки могут оказаться совсем не тем, чем кажутся. В эту пору особенно ценятся убежища, такие, как Семь Ветров – единственный большой город посреди уничтоженного мира.
+Но теперь угроза поселилась и внутри: люди погибают, а враг, похоже, притворился одним из своих. И (   Читать дальше...   )Жанр: фантастика, детективИздательство: ЛитРесПродолжительность: 07:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8B65AC2E8BD7AAC6977A023936D625C7615127
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852598   (1056144) от 08.02.2026
+
+Хищник: Планета смерти / Predator: Badlands (2025) BDRip [H.265/1080p] [10-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056144.jpg" />
+</div>
+
+
+###  Подробнее
+
+В глазах воинственного отца молодой хищник Дек — полное ничтожество и позор клана. Отец приказывает старшему сыну убить его, но тот ценой собственной жизни спасает брата и отправляет его на населённую агрессивными тварями планету Генна. Там Дек встречает располовиненную девушку-андроида Тию, некогда прибывшую сюда в составе экспедиции с Земли, и, чтобы доказать отцу (   Читать дальше...   )Производство: США, Австралия, Новая Зеландия, Канада, Германия / 20th Century Studios, Deutsche Filmakademie, Government of AustraliaЖанр: фантастика, боевикРежиссер: Дэн ТрахтенбергАктеры: Эль Фаннинг, Димитриус Шустер-Коломатанги, Рави Нарайан, Chris Terhune, Майкл Хомик, Стефан Грубе, Рубен Де Йонг, Камерон Браун, Элисон Райт, Мэтт ДафферПеревод: Дублированный (MovieDalen, Jaskier), многоголосый (HDRezka, LostFilm, Asilmedia)Язык озвучки: Русский, узбекский, английскийСубтитры: Русские, английскиеПродолжительность: 01:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437AA220EC0A27BB13DB2AAFF4B79C77F92D4672
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852679   (1056143) от 08.02.2026
+
+Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.2.1) Repack FitGirl
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carmageddon: Rogue Shift - это жестокое состязание, где единственной возможностью спастись с умирающей планеты становится победа в смертоносных заездах. Триумфатор получает право на рискованное путешествие к последнему космопорту, расположенному за горами. Действие разворачивается в 2050 году в мире, пережившем апокалипсис. Ночью улицы городов наводняют орды мутантов, (   Читать дальше...   )Тип издания: RepackРазработчик: 34BigThings srlЖанр: Экшены, ГонкиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19C243DB64AE1F2950EEFC4E1AF676E72799355
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852680   (1056142) от 08.02.2026
+
+Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.2.1) Repack Decepticon
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carmageddon: Rogue Shift - это жестокое состязание, где единственной возможностью спастись с умирающей планеты становится победа в смертоносных заездах. Триумфатор получает право на рискованное путешествие к последнему космопорту, расположенному за горами. Действие разворачивается в 2050 году в мире, пережившем апокалипсис. Ночью улицы городов наводняют орды мутантов, (   Читать дальше...   )Тип издания: RepackРазработчик: 34BigThings srlЖанр: Экшены, ГонкиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742AA84FF8FE7EB9EBC92A1FBD2740E52B54EC85
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852691   (1056141) от 08.02.2026
+
+Проекты - VideoHive - Ultimate Search Bar Kit - 58654874 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные, гибкие и полностью настраиваемые анимации поисковой строки для After Effects. Идеально подходят для UX/UI-видео, демонстраций веб-сайтов, рекламных роликов приложений, презентаций и многого другого!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F5765C4F01D01393DEE279ADD7D38DA60117F1
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852692   (1056140) от 08.02.2026
+
+YT Downloader 10.2.1 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056140.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40639236D4982DF65921C335AA4CB60486C9F947
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852696   (1056138) от 08.02.2026
+
+Шаблоны - Creative Market - Liquid Text Effects Vol.1 - 16088964 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/005/save_picture_1056138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихий поток или яростная волна — выбор за вами, какой эффект вы хотите добавить к своим сообщениям на этот раз. Одно можно сказать наверняка: независимо от вашего выбора, этот набор предоставит вам все необходимые инструменты! Кислотная текущая лава, плавно переливающиеся цвета и взрывы неоновых оттенков — все это ждет вас внутри.
+
+Этот универсальный набор текстовых (   Читать дальше...   )Формат: PSDРазрешение файлов: 5000x5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6738DC2DDE63C0F956EAD32B8CEBB6DE86D011C
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------

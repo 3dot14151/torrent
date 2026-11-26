@@ -1,0 +1,149 @@
+
+###  Публикация: 238626   (475088) от 24.09.2010
+
+Before The Dawn - Дискография (2001-2010) [MP3|192-320 kbps]<Melodic Death/Gothic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Melodic Death/Gothic
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 238886   (475087) от 24.09.2010
+
+Indica - Дискография (2004 - 2010) [MP3|320 kbps]<Alternative Rock / Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative Rock / Pop RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 239313   (474975) от 24.09.2010
+
+Александр Башлачев - Лучшие песни. Новая Коллекция (2010) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01. Время Колокольчиков (3:03)
+02. Некому Березу Заломати (3:25)
+03. Посошок (4:38)
+04. Поезд (3:20)
+05. Палата № 6 (2:35)
+06. В Чистом Поле Дожди (4:22)
+07. Осень (3:02)
+08. Грибоедовский Вальс (3:32)
+09. Похороны Шута (3:40)
+10. Музыкант (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:07
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 239234   (474686) от 24.09.2010
+
+NIRVANA - Nevermind (1991) [MP3|320 kbps]<Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/008/save_picture_474686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: GrungeПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 239025   (474593) от 24.09.2010
+
+Леонид Фёдоров, Владимир Волков - 11 альбомов (2000-2010) [APE|Lossless]<Rock Avant-garde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://master1cbest.ru/picture_torrent/" />
+</div>
+
+
+###  Подробнее
+
+01 - Пролог
+02 - Гость
+03 - Хуан да Анна
+04 - На дне
+05 - В Париж
+06 - Девочка и мяч
+07 - В Мадрид
+08 - На краю
+09 - Wolfgang
+10 - Эпилог. Понял, да?Жанр: Rock Avant-gardeПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+нет
+```
+
+http://mybot314.ru/main/16-spisok-vseh-resursov.html
+
+
+
+---------------------------------------------------------------------------------------------------------------
